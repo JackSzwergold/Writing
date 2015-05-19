@@ -2,9 +2,11 @@
 
 By Jack Szwergold, May 19, 2015
 
-She was my second grade teacher at P.S. 100 and was abusive.
+She was my second grade teacher at P.S. 100 and she was abusive.
 
-One day when I was playing with one of the other oddball kids in the class—who happened to be a black kid—she freaked out. When I say “oddball,” I mean the school was predominantly filled with white, middle-class, secular Jewish kids from Trump Village and not “freaks” like me: A white, secular Jewish kid who came from a poor immigrant family living in a tenement in Brighton Beach. Or a black kid who was poor and lived in Coney Island like the kid I was playing with. Heck, I don’t even know if she was freaking out because I was a white kid playing with a black kid or because we wouldn’t just sit down and be quiet, but she freaked out.
+One day when I was playing with one of the other oddball kids in the class—who happened to be a black kid—she freaked out.
+
+When I say “oddball,” I mean the school was predominantly filled with white, middle-class, secular Jewish kids from Trump Village and not “freaks” like me: A white, secular Jewish kid who came from a poor immigrant family living in a tenement in Brighton Beach. Or a black kid who was poor and lived in Coney Island like the kid I was playing with. Heck, I don’t even know if she was freaking out because I was a white kid playing with a black kid or because we wouldn’t just sit down and be quiet, but she freaked out.
 
 It was the end of the day, we were all waiting to be sent home and just running around desks. Horsing around. Smiling and laughing. And then suddenly she screamed, grabbed us both by the ear and tossed us like bags of sand into the giant wooden wall closet.
 
