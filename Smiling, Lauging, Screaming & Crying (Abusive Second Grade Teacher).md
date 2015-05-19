@@ -14,7 +14,7 @@ The closet was one of those shallow closets with sliding doors that everyone hun
 
 The right side of head landed hard on the wood that held the coat hooks and just inches away from a metal jacket hook that was right in front of my face. My hands managed to brace the rest of my body against the plaster wall; slowing me down a bit not much. The black kid I was playing with landed a few feet down from me in the closet. He was facing me when he landed and seemed to hit his head the same way I did.
 
-We both started screaming and crying as she quickly slid the door closed. It was dark with some light from the outside coming it, but mostly dark. The other students outside were quiet with only the occasional noise of shuffling or couging. She kept us locked in the closet until school ended 5 minutes later. Then she let us out as if nothing happened..
+We both started screaming and crying as she quickly slid the door closed. It was dark with some light from the outside coming it, but mostly dark. The other students outside were quiet with only the occasional noise of shuffling or couging. She kept us locked in the closet until school ended 5 minutes later. Then she let us out as if nothing happened.
 
 I told my parents about what happened when I got home and they complained to the school. And the “reward” for complaining was not having the teacher reprimanded or fired but was the administration of the school saying I was mis-zoned for P.S. 100. Meaning they were kicking me out. I was officially sent to P.S. 253 for 3rd grade.
 
