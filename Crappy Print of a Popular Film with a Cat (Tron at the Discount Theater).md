@@ -6,7 +6,7 @@ I went to see *Tron* at the Midwood Theatre on Avenue J. Forgot who clued me int
 
 It was the first time ever went to a discount theater and it’s not like I’m rich. I just genuinely don’t remember any discount theaters in New York City at the time. The concept was a bit odd to me since movies were pretty cheap anyway—like $3-$4 or so—at theaters near me in Brighton Beach like the Oceana or the Kingsway. And with the bus ride cost 75 cents per direction—not to mention snacks—I barely saved anything. But I don’t even remember if *Tron* played near me anyway on it’s official run, so whatever. I finally had a chance to see it before it disappeared into obscurity.
 
-The afternoon was also pretty cool because there were a lot of kids around my age—like 13 to 14—who were in line to see *Tron* as well for a really cheap price. That was basically the whole crowd; a bunch of tween kids with $1 budgeted for *Tron*. So when I showed up on my own after getting off the B68 bus I looked around and I found a few junior high school friends. We hung around, talked and waited in line and eventually made it into the movie theater.
+The social scene that afternoon was also pretty cool because there were a lot of kids around my age—like 13 to 14—who were in line to see *Tron* as well for a really cheap price. That was basically the whole crowd; a bunch of tween kids with $1 budgeted for *Tron*. So when I showed up on my own after getting off the B68 bus I looked around and I found a few junior high school friends. We hung around, talked and waited in line and eventually made it into the movie theater.
 
 And that is when the “fun” began.
 
