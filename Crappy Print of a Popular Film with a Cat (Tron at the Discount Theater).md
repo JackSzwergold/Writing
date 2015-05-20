@@ -16,7 +16,7 @@ I really have very little memory of the film itself due to the theater’s condi
 
 By that point the only thing that latched onto my attention from about 20 minutes into the film until it ended was this cat that would walk up and down the aisles. I don’t know if the cat was black, orange or another color, but its silhouette—and pointy ears—were as clear as day from the aisle seat where I sat. And this energetic, active cat running up and down the aisles—probably chasing mice and bits of dropped candy—was far more compelling to me than the crappy film playing on a crappy screen at a crappy theater I was in.
 
-When the film ended, we all went home. Seriously it was just a bad experience for everyone on every level. Usually when I leave a movie theater I have some sense of having visited another world. This time I had the sense I visited a dump for 90+ minutes and got nothing out of it but a cat show. For $1 I could have bought a soda, chips and watched cats in the alley behind my building and gotten a better experience.
+When the film ended, we all went home. Seriously it was just a bad experience for everyone on every level that we just parted ways to do something—anything—better. Usually when I leave a movie theater I have some sense of having visited another world. This time I had the sense I visited a dump for 90+ minutes and got nothing out of it but a cat show. For $1 I could have bought a soda, chips and watched cats in the alley behind my building and gotten a better experience.
 
 ***
 
