@@ -14,7 +14,7 @@ So I let go of the railing and fell face first in the sand. I don’t know why I
 
 As I stood up and shook the sand off my clothes—and wiped it out of my mouth with my hand—I could hear my friends laughing above which didn’t bother me much since we were all giving each other grief. But I also heard some miscellaneous noises coming from below the boardwalk and behind me which were odd.
 
-The noises were people under the boardwalk. Not exactly near me—or even threatening me—but across the way on the other side of the boardwalk. And not even really faces, but just shadows and shapes. None of them stood straight and most were stooped over; grabbing bags and attempting to push carts in the sand.
+The noises were people under the boardwalk. Not exactly near me—or even threatening me—but across the way on the other side of the boardwalk. And not even really faces, but just shadows and shapes. None of them stood straight and most were stooped over; grabbing bags and attempting to push what looked like carts in the sand.
 
 Presumably they were shuffling about and moving deeper under the boardwalk because of the inadvertent intrusion of the noise we were making with our childish feats of strength. Maybe they felt threatened by us? Their movements of the silhouettes looked old; like the old folks you’d see in the daylight on Brighton Beach Avenue. Maybe some of these people were the same exact people you’d see on Brighton Beach Avenue and this is sadly where they lived? Completely conceivable considering how poor the neighborhood was.
 
