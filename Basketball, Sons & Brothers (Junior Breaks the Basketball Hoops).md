@@ -31,7 +31,3 @@ So the basketball joined the soccerball in the closet and that was the end of th
 ***
 
 *Attribution-NonCommercial-ShareAlike 4.0 International (CC-BY-NC-SA-4.0)*
-
-
-
-
