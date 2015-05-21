@@ -1,4 +1,4 @@
-# Basketball, Sons & Brothers (Junior Breaks All the Basketball Hoops)
+ Basketball, Sons & Brothers (Junior Breaks All the Basketball Hoops)
 
 By Jack Szwergold, May 20, 2015
 
@@ -24,7 +24,7 @@ As I came near my building I saw my superintendent’s family outside the buildi
 
 So Junior visits his family in Brooklyn because he’s doing well as a professional basketball player. But then he trashes the exact hoops that helped him get where he is so nobody can enjoy them anymore. He got what he needed from the courts and that was that.
 
-Being NYC in the early 1980s the NYC Department of Parks and Recreation wasn’t rushing to get the hoops fixed since they were always having budgetary problems or some nonsense like that. I think they were fixed four months later by the time fall rolled around. But by then it was too cold to play and I didn’t care about basketball much anymore or even wanted to deal with the other courts and the horeshit territorial politics they contained just to practice playing.
+Being NYC in the early 1980s the NYC Department of Parks and Recreation wasn’t rushing to get the hoops fixed since they were always having budgetary problems or some nonsense like that. I think they were fixed four months later by the time fall rolled around. But by then it was too cold to play and I didn’t care about basketball much anymore or even wanted to deal with the other playgrounds and the horeshit territorial politics they contained just to practice playing.
 
 So the basketball joined the soccerball in the closet and that was the end of that.
 
