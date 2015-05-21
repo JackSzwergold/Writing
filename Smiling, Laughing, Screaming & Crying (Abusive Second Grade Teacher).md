@@ -1,6 +1,6 @@
 # Smiling, Laughing, Screaming & Crying (Abusive Second Grade Teacher)
 
-By Jack Szwergold, May 19, 2015
+By Jack Szwergold, May 20, 2015
 
 She was my second grade teacher at P.S. 100 and she was abusive.
 
