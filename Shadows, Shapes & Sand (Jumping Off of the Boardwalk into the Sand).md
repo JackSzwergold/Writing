@@ -16,7 +16,7 @@ As I stood up and shook the sand off my clothes—and wiped it out of my mouth w
 
 The noises were people under the boardwalk. Not exactly near me—or even threatening me—but across the way on the other side of the boardwalk. And not even really faces, but just shadows and shapes. None of them stood straight and most were stooped over; grabbing bags and attempting to push what looked like carts in the sand.
 
-Presumably they were shuffling about and moving deeper under the boardwalk because of the inadvertent intrusion of the noise we were making with our childish feats of strength. Maybe they felt threatened by us? Their movements of the silhouettes looked old; like the old folks you’d see in the daylight on Brighton Beach Avenue. Maybe some of these people were the same exact people you’d see on Brighton Beach Avenue and this is sadly where they lived? Completely conceivable considering how poor the neighborhood was.
+Presumably they were shuffling about and moving deeper under the boardwalk because of the inadvertent noise we were making with our childish feats of strength. Maybe they felt threatened by us? The movements of the silhouettes looked old; like the old folks you’d see in the daylight on Brighton Beach Avenue. Maybe some of these people were the same exact people you’d see on Brighton Beach Avenue and this is sadly where they lived? Completely conceivable considering how poor the neighborhood was.
 
 I stood still and looked at those shadows for a few seconds until my friends shouted, “What are you doing? Come back up!”
 
