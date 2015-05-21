@@ -22,7 +22,7 @@ I stood still and looked at those shadows for a few seconds until my friends sho
 
 So I climbed back up the steps and everyone started to give me grief about falling face first in the sand. A few more kids jumped but it was getting late so we all started walking towards 2nd Street Park where we’d probably horse around a little bit more before going home.
 
-As we walked along the boardwalk I looked down between the slats of the boardwalk to try and catch a glimpse of the people I just saw shuffling about. I could hear movement and voices but there wasn’t enough light to make anything out, but I knew they were there.
+As we walked along the boardwalk I looked down between the wooden slats to try and catch a glimpse of the people I just saw shuffling about. I could hear movement and voices but there wasn’t enough light to make anything out. But I knew whoever they were, they were down there and I was up here.
 
 ***
 
