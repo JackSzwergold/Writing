@@ -12,7 +12,7 @@ Despite this joy, my childhood passion in the sport was rewarded with some crapp
 
 This is a slight tangent, but to better understand where this crappy basketball came from, I complained about the real—and utterly useless—soccerball my brother got me a few months before for Hannukah. 100% of nobody played soccer in the neighborhood back in the 1970s but pretty much everybody played basketball. The real soccerball collected dust in the closet while the toy basketball got real playtime on real courts.
 
-While I hated the toy basketball, I dealt with it. At least it was kind of the right size and I could kind of dribble it if I inflated it enough. So I made the best of this crappy, passive-aggresive “gift” from my brother since I just wanted to play basketball in some way. And 2nd Street Park was where I’d attempt to play since there was a decent mix of kids there.
+While I hated the toy basketball, I dealt with it. At least it was kind of the right size and I could sort of dribble it if I inflated it enough. So I made the best of this crappy, passive-aggresive “gift” from my brother since I just wanted to play basketball in some way. And 2nd Street Park was where I’d attempt to play since there was a decent mix of kids there.
 
 I could never practice playing with a toy basketball like that around the tougher, older, more experienced kids at other courts around the neighorhood like the courts in Trump Village. But I could at least find one measely empty court at 2nd Street Park—where the kids were easier to deal with—to practice dribbling, layups and shots with the piece of junk. And if I couldn’t? I could just hang out and do something else.
 
