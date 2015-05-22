@@ -51,10 +51,3 @@ As we gathered ourselves together to head back to Brooklyn, I spotted the scalpe
 ***
 
 *Attribution-NonCommercial-ShareAlike 4.0 International (CC-BY-NC-SA-4.0)*
-
-
-
-
-
-
-
