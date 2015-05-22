@@ -40,7 +40,7 @@ Just before the got to the front door I remembered that he hadn’t paid me back
 
 I heard him lock the door as I stood in front of my friend’s apartment. I could hear his family eating dinner and didn’t want to disturb them so I headed down the stairs, out the door, past the phalanx of yentas and then headed home.
 
-The tickets were tucked into the inside pocket of my denim jacket and pulled them out at one point during the walk home: *Rush* at the Meadowlands! My first arena concert! My first real concert was seeing *Sting* at *Radio City Music Hall*, but that was a concert hall. An arena show was something completely different.
+The tickets were tucked into the inside pocket of my denim jacket and I pulled them out at one point during the walk home to admire them: *Rush* at the Meadowlands! My first real arena concert! I mean, first real concert was seeing *Sting* solo on the “Dream of the Blue Turtles” tour at *Radio City Music Hall*, but that was a concert hall. An arena show was something completely different.
 
 The next day at school I gave my friends the tickets I scored and a few weeks later we were at the Meadowlands to see *Rush*.
 
