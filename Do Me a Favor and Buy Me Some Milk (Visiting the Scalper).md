@@ -24,7 +24,7 @@ As luck would have it my friend and his parents were just coming home at that mo
 
 “Who is it?” said the scalper as he peered at me through the peephole. “It’s Jack and I got the milk!” I said as I held up the brown paper bag. I heard the locks unlock, the chain drop and the door open. “Come on in,” he said as he opened the door and let me into his dark, dim, badly lit apartment.
 
-The only real light in the place came from the kitchen which had some crappy metal table in the middle and a refrigerator to the left of it. He was a fairly schlubby middle-aged, dark haired Jewish guy with a mustache and curly hair. We both walked into the kitchen and gave him the milk he asked for. “Thanks for the milk,” he said as he opened the fridge and put it inside. It was odd since I could clearly see there was another milk container in there; maybe it was spoiled?
+The only real light in the place came from the kitchen which had some crappy metal table in the middle of it and a refrigerator to the left of the table. He was a fairly schlubby middle-aged, dark haired Jewish guy with a mustache and curly hair. We both walked into the kitchen and gave him the milk he asked for. “Thanks for the milk,” he said as he opened the fridge and put it inside. It was odd since I could clearly see there was another milk container in there; maybe it was spoiled?
 
 But more importantly with the extra light I got a closer look at the fridge: It was seemed to be covered from top to bottom with backstage passes from tons of concerts. I recognized passes from bands like *The Police*, *Van Halen*, *The Cars* and others. This guy really was into the music business it seemed. Well at least his little “ticket brokering” side of the business.
 
