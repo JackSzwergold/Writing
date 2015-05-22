@@ -2,7 +2,7 @@
 
 By Jack Szwergold, May 21, 2015
 
-The first time I heard about the *B-52s* was when I called up one of the neighborhood tough guys who was a friendly to me. By “friendly” I mean he was at least not a bully to me and gave me the time of day.
+The first time I heard about the *B-52s* was when I called up one of the neighborhood tough guys who was friendly to me. By “friendly” I mean he was at least not a bully to me and gave me the time of day. He was cool.
 
 The reason I was calling him was one of the gigs he had was working for a ticket scalper; waiting in line with a wristband and stuff like that. And I wanted to score some *Rush* tickets during the “Grace Under Pressure” tour. The concert was sold out through all of the legit channels, so I thought he could hook me up.
 
