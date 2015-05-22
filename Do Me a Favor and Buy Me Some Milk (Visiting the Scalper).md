@@ -48,7 +48,7 @@ I was completely into the show and was wearing my official “Moving Pictures”
 
 As we gathered ourselves together to head back to Brooklyn, I spotted the scalper a few rows back and said hello. He told me he couldn’t sell all the tickets, so he decided to come to the show anyway. He looked as schlubby as before, but this time he wasn’t alone; he literally had two Asian women on each arm hanging out with him.
 
-Neither one of them looked anything like any of the other women in the pictures on his refrigerator. And all three of them—including him—had backstage passes.
+Neither one of them looked anything like any of the other women in the pictures on his refrigerator. And all three of them—including him—had backstage passes stuck to their shirts.
 
 ***
 
