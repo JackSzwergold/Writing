@@ -38,7 +38,7 @@ All the pictures were set in some tropical vacation locale. And they were standa
 
 Just before the got to the front door I remembered that he hadn’t paid me back for milk I bought and mentioned it to him. “Shit! You’re right!” he said as he fumbled through his pockets and got out a dollar and change for the milk. “Thanks!” I said. “You’re welcome!” he said. And within a moment I was out in the hallway again.
 
-He closed the door and I heard him lock all the locks as I stood in front of my friend’s apartment. I thought about knocking to say I was okay, but I could hear my friend’s family eating dinner and didn’t want to disturb them. So I instead I ran down the stairs, walked out the door, slipped past the phalanx of yentas and headed home.
+He closed the door and I heard him lock all the locks as I stood in the hallway front of his—and my friend’s—apartment. I thought about knocking to tell them I was okay, but I could hear my friend’s family eating dinner and didn’t want to disturb them. Besides, I was okay and didn’t need any help. So I instead I ran down the stairs, walked out the door, slipped past the phalanx of yentas and headed home.
 
 The tickets were tucked into the inside pocket of my denim jacket and I pulled them out at one point during the walk home to admire them: *Rush* at the Meadowlands! My first real arena concert! I mean, first real concert was seeing *Sting* solo on the “Dream of the Blue Turtles” tour at *Radio City Music Hall*, but that was a concert hall. An arena show was something completely different.
 
