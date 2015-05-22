@@ -8,7 +8,7 @@ The reason I was calling him was one of the gigs he had was working for a ticket
 
 The second I asked about the tickets, he blew me off immediately and said I should call the scalper directly to deal with it. It was kind of intimidating to have to talk to a scalper directly, but at least I was one step closer to *Rush* tickets.
 
-After he gave me the scalper’s number he said, “Why do you listen to that *Rush* junk anyway? You should listen to stuff like the *B-52s*… Chekc this out: They’re using a toy piano…” And through the phone I could barely make out the tune, but would soon learn it was the track “Dance This Mess Around” off of their first album.
+After he gave me the scalper’s number he said, “Why do you listen to that *Rush* junk anyway? You should listen to stuff like the *B-52s*… Check this out: They’re using a toy piano…” And through the phone I could barely make out the tune, but would soon learn it was the track “Dance This Mess Around” off of their first album.
 
 I hung up the phone, made a mental note to pick up a *B-52s* album the next time I went record shopping and then called up the scalper to see what he could do for me as far as *Rush* tickets went.
 
