@@ -46,7 +46,9 @@ The next day at school I gave my friends the tickets I scored and a few weeks la
 
 I was completely into the show and was wearing my official “Moving Pictures” t-shirt I got at *Postermat* on 8th Street in the Village a few months beforehand. The encore was *2112* with a laser show and then the show ended.
 
-As we gathered ourselves together to head back to Brooklyn, I spotted the scalper a few rows back and said hello. He told me he couldn’t sell all the tickets, so he decided to come to the show anyway. He looked as schlubby as before, but this time he wasn’t alone; he literally had two Asian women on each arm hanging out with him. Neither one of them looked anything like any of the other women on his refrigerator.
+As we gathered ourselves together to head back to Brooklyn, I spotted the scalper a few rows back and said hello. He told me he couldn’t sell all the tickets, so he decided to come to the show anyway. He looked as schlubby as before, but this time he wasn’t alone; he literally had two Asian women on each arm hanging out with him.
+
+Neither one of them looked anything like any of the other women in the pictures on his refrigerator. And all three of them—including him—had backstage passes.
 
 ***
 
