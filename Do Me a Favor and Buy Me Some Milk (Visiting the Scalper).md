@@ -22,7 +22,7 @@ When I got to the building I passed by the usual cadre of “security guards” 
 
 As luck would have it my friend and his parents were just coming home at that moment. “Hey Jack! What are you doing here?” he said. “Heading over to your neighbor’s place,” I said. The blood seemed to run out of their faces and the pause was extremely pregnant and awkward. “I’m going to buy some tickets from him,” I said and they relaxed a bit. “Well, if anything happens let us know,” he said as they slowly closed the door, looking at me as I turned around and rang the bell of the scalper’s apartment.
 
-“Who is it?” said the scalper as he peered at me through the peephole. “It’s Jack. Got the milk!” I said as I held up the brown paper bag. I heard the locks unlock, the chain drop and the door open. “Come on in,” he said as he opened the door and let me into his dark, dim, badly lit apartment.
+“Who is it?” said the scalper as he peered at me through the peephole. “It’s Jack and I got the milk!” I said as I held up the brown paper bag. I heard the locks unlock, the chain drop and the door open. “Come on in,” he said as he opened the door and let me into his dark, dim, badly lit apartment.
 
 The only real light in the place came from the kitchen which had some crappy metal table in the middle and a refrigerator to the left of it. He was a fairly schlubby middle-aged, dark haired Jewish guy with a mustache and curly hair. We both walked into the kitchen and gave him the milk he asked for. “Thanks for the milk,” he said as he opened the fridge and put it inside. It was odd since I could clearly see there was another milk container in there; maybe it was spoiled?
 
