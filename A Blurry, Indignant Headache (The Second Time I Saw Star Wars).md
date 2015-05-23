@@ -10,7 +10,7 @@ And I say “friend” in quotes since my brother had bizarre ideas of who my fr
 
 So this time he decided to take me and my pal Howie from down the block to see *Star Wars*. Why Howie? Not sure and not complaining since Howie was cool and I liked him. But it seemed like the choice to take Howie along was based solely on the fact Howie was hanging outside his building at that moment we walked by and not much else.
 
-With that decision made by him—and only him—and without even asking us if we had seen the film we were swept up by him, placed in whatever crappy car he had back then—a Ford Pinto, I think?—and off we went to see *Star Wars*.
+With that decision made by him—and only him—and without even asking us if we had seen the film we were swept, placed in whatever crappy car he had back then—a Ford Pinto, I think?—and off we went to see *Star Wars*.
 
 We headed into Manhattan to the Loews Astor Plaza in Times Square since it was the only theater in the city playing *Star Wars*. All along the way my brother was telling us about how much we would like it and how it was a “sleeper hit” or some nonsense like that. This was before the days of portable stereos, Walkman’s and iPods so all we could do is sit and listen to this rambling bullshit while classical music from WQXR or WNYC played in the background and he occasionally yelled at traffic.
 
