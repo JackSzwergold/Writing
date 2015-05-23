@@ -12,7 +12,7 @@ So this time he decided to take me and my pal Howie from down the block to see *
 
 With that decision made by him—and only him—and without even asking us if we had seen the film we were swept up, placed in whatever crappy car he had back then—a Ford Pinto, I think?—and off we went to see *Star Wars*.
 
-We headed into Manhattan to the Loews Astor Plaza in Times Square since it was the only theater in the city playing *Star Wars*. All along the way my brother was telling us about how much we would like it and how it was a “sleeper hit” or some nonsense like that. This was before the days of portable stereos, Walkman’s and iPods so all we could do is sit and listen to this rambling bullshit while classical music from WQXR or WNYC played in the background and he occasionally yelled at traffic.
+We headed into Manhattan to the Loews Astor Plaza in Times Square since it was the only theater in the city playing *Star Wars*. All along the way my brother was telling us about how much we would like the film and how it was a “sleeper hit” or some nonsense like that. This was before the days of portable stereos, Walkman’s and iPods so all we could do is sit and listen to this rambling bullshit while classical music from WQXR or WNYC played in the background and he occasionally yelled at traffic.
 
 When we got to the theater, we ran in, found some seats, sat down and the film started. Howie and I got into to the film, but not as intently as someone first seeing it. It was still fresh in our young memories so seeing it again so soon after first seeing it wasn’t as exciting as seeing it the first time. But at least there was some excitement at being able to see key scenes—like the battle scenes—again.
 
