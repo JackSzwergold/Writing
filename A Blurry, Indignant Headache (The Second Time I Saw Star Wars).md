@@ -6,7 +6,7 @@ I had already seen *Star Wars* in summer camp a few weeks before when my brother
 
 He wanted to take me to see *Star Wars* but was oblivious to the fact I had already seen it. And like everything he did to “improve people’s lives,” he came in like a hurricane of good intentions wrapped in thunderstorm of utter, headache-inducing, dysfunctional cluelessness.
 
-And I say “friend” in quotes since my brother had bizarre ideas of who my friends were and whose choice it was to choose which “friend” was dragged along on these “special days.” Meaning he’d show up without warning, I’d have to grab a “friend” from the neighborhood as quickly as possible, we would all go somewhere “special” and we’d all have “fun.” At the end of the day, it was definitely a “special” thing to do. But it was not “special” in the way he thought it to be and the activity was rarely fun.
+And I say “friend” in quotes since my brother had bizarre ideas of who my friends were and whose choice it was to choose which “friend” was dragged along on these “special days.” Meaning he’d show up without warning, I’d have to grab a “friend” from the neighborhood as quickly as possible, we would all go somewhere “special” and we’d all have “fun.” At the end of the day, it was definitely a “special” thing to do. But it was not “special” in the way he thought it to be and the activity was rarely as much “fun” as he thought it was.
 
 So this time he decided to take me and my pal Howie from down the block to see *Star Wars*. Why Howie? Not sure and not complaining since Howie was cool and I liked him. But it seemed like the choice to take Howie along was based solely on the fact Howie was hanging outside his building at that moment we walked by and not much else.
 
