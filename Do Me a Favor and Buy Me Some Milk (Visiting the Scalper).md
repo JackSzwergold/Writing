@@ -26,7 +26,7 @@ As luck would have it my friend and his parents were just coming home at that mo
 
 The only real light in the place came from the kitchen which had some crappy metal table in the middle of it and a refrigerator to the left of the table. He was a fairly schlubby middle-aged, dark haired Jewish guy with a mustache and curly hair. We both walked into the kitchen and gave him the milk he asked for. “Thanks for the milk,” he said as he opened the fridge and put it inside. It was odd since I could clearly see there was another milk container in there; maybe it was spoiled?
 
-But more importantly with the extra light I got a closer look at the fridge: It was seemed to be covered from top to bottom with backstage passes from tons of concerts. I recognized passes from bands like *The Police*, *Van Halen*, *The Cars* and others. This guy really was into the music business it seemed. Well at least his little “ticket brokering” side of the business.
+But more importantly with the extra light I got a closer look at the fridge: It was seemed to be covered from top to bottom with satin cloth backstage pass stickers from tons of concerts. I recognized passes from bands like *The Police*, *Van Halen*, *The Cars* and others. This guy really was into the music business it seemed. Well at least his little “ticket brokering” side of the business.
 
 “So you want to go see *Rush*?” he asked. “Yeah,” I responded. I needed four tickets and gave him $100 for it. “Why do you like this band? They’re a kid’s band.” he said as he counted the money, took out a zipper bag filled with tickets and pulled them out for me to checkout. I picked out a decent set of floor tickets and said I was cool.
 
@@ -48,7 +48,7 @@ I was completely into the show and was wearing my official “Moving Pictures”
 
 As we gathered ourselves together to head back to Brooklyn, I spotted the scalper a few rows back and said hello. He told me he couldn’t sell all the tickets, so he decided to come to the show anyway. He looked as schlubby as before, but this time he wasn’t alone; he literally had two Asian women on each arm hanging out with him.
 
-Neither one of them looked anything like any of the other women in the pictures on his refrigerator. And all three of them—including him—had backstage passes stuck to their shirts.
+Neither one of them looked anything like any of the other women in the pictures on his refrigerator. And all three of them—including him—had satin cloth backstage pass stickers stuck to their shirts.
 
 ***
 
