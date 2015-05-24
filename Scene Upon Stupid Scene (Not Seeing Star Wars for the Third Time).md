@@ -2,7 +2,7 @@
 
 By Jack Szwergold, May 24, 2015
 
-The third time I was apparently going to see *Star Wars* was with my sister her husband. They came by my parents place in Brighton Beach and then her husband just impulsively said, “You want to go see *Star Wars*?” I said immediately, “Yeah, but I saw it already in camp and with Ben.” This time I made sure they at least knew I saw the film so I didn’t end up in the same mess as the last time with my brother. He said, “So what? We’ll go see it again.” Which seemed friendly and honest enough of a response, so why not? So we headed to the subway at Ocean Parkway, hopped on a train and about an hour later we got off at Bryant Park on 42nd Street near Times Square.
+The third time I was apparently going to see *Star Wars* was with my sister her husband. It was the summer of 1977 and they came by my parents place in Brighton Beach and her husband just impulsively said, “You want to go see *Star Wars*?” I said immediately, “Yeah, but I saw it already in camp and with Ben.” This time I made sure they at least knew I saw the film so I didn’t end up in the same mess as the last time with my brother. He said, “So what? We’ll go see it again.” Which seemed friendly and honest enough of a response, so why not? So we headed to the subway at Ocean Parkway, hopped on a train and about an hour later we got off at Bryant Park on 42nd Street near Times Square.
 
 Bryant Park wasn’t Times Square, but it was close enough. We walked up 42nd Street past King Karol Records, past the storefront peep shows, made a right onto Broadway, walked past the Nathan’s and headed towards 45th Street.
 
