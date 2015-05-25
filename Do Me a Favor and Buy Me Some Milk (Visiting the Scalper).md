@@ -52,4 +52,6 @@ Neither one of them looked anything like any of the other women in the pictures 
 
 ***
 
-*Attribution-NonCommercial-ShareAlike 4.0 International (CC-BY-NC-SA-4.0)*
+*Do Me a Favor and Buy Me Some Milk (Visiting the Scalper) (c) by Jack Szwergold*
+
+*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

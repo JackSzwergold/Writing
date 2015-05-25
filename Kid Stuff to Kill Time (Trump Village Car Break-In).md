@@ -16,4 +16,6 @@ A few moments later I would hit West 5th Street, hook a right towards the shoppi
 
 ***
 
-*Attribution-NonCommercial-ShareAlike 4.0 International (CC-BY-NC-SA-4.0)*
+*Kid Stuff to Kill Time (Trump Village Car Break-In) (c) by Jack Szwergold*
+
+*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
