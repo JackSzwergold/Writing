@@ -2,7 +2,7 @@
 
 By Jack Szwergold, May 26, 2015
 
-The second time I saw *The Empire Strikes Back* was with my dad. It was when they re-released the film in theaters back in 1981. This was a big deal in those days before cable TV and video rental stores since some people owned VCRs but they were far from commonplace. And even if they were commonplace, our family was pretty poor so we couldn’t afford one. You simply weren’t able to just watch films on demand at all like you can nowadays.
+The second time I saw *The Empire Strikes Back* was with my dad when they re-released the film in theaters back in 1981. This was a big deal in those days before cable TV and video rental stores since some people owned VCRs but they were far from commonplace. And even if they were commonplace, our family was pretty poor so we couldn’t afford one. You simply weren’t able to just watch films on demand at all like you can nowadays.
 
 It was playing in a theater called the Kent Theatre that was located on Coney Island Avenue near Avenue H. The theater was far from majestic, but was a nice, small, charming—and not at all dumpy—neighborhood theater. It had to be a Saturday when we went since that’s usually when I went with my dad on weekend trips like this. We took the D train to Avenue H and walked a few blocks over to Coney Island Avenue. The theater wasn’t crowded at all and I don’t think it was turned into a double or triple screen theater yet. So we had a nice-sized, relatively empty theater to watch *The Empire Strikes Back* on pretty much all to ourselves.
 
