@@ -4,7 +4,9 @@ By Jack Szwergold, May 27, 2015
 
 Jeff was a classmate of mine in high school in 1982 or 1983. We had an art class and a gym class together. He was pretty cool and lived somewhere in a deeper Brooklyn than me; maybe Bensonhurst? We both wore denim jackets and band buttons. And like all teenagers, we bonded over music.
 
-One day he noticed I was listening to a copy of *The Doors* greatest hits LP I dubbed to a cassette tape on my Sanyo Walkman knock-off. He was really into *The Doors* and introduced me to Jim Morrison’s “An American Prayer” which was the first “spoken word”/poetry record I ever listened to. As a 15 year old who only really listened to *Rush*, *Led Zeppelin* and *The Police* at that point—and had only recently got *The Doors* greatest hits LP from Titus Oaks—this was a tad mind-blowing.
+One day he noticed I was listening to a copy of *The Doors* greatest hits LP I dubbed to a cassette tape on my Sanyo Walkman knock-off. Jeff was really into *The Doors* and introduced me to Jim Morrison’s “An American Prayer” by dubbing me a cassette tape of it which he gave me the next day in class. It blew my mind.
+
+“An American Prayer” was the first “spoken word”/poetry record of any kind I had ever listened to. As a 15 year old who only really listened to *Rush*, *Led Zeppelin* and *The Police* at that point—and had only recently got *The Doors* greatest hits LP from Titus Oaks—this was a tad mind-blowing.
 
 Released posthumously in 1978—7 years after Jim Morrison’s death—“An American Prayer” prayer was a combination of Jim Morrison reading his own poetry and his fellow bandmates dicking around on instruments. As an adult I can barely listen to it without thinking, “What is this drunk asshole talking about?” But as a teenager this thing blew my mind. I had to read all kinds of poetry in school writen by poets I barely had a connection to. But a rock star creating and reading poems that were not song lyrics who was just reading them to read them? Wow. That was something different.
 
