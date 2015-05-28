@@ -20,9 +20,8 @@ With that said, I let the conversation die off and hung up the phone. It was sti
 
 When September rolled around and high school started up again, I saw Jeff around the hallways and such, but we never had any classes together again. Thankfully I never had to talk to Jeff again for any reason.
 
-
 ***
 
-*Treasure Chest of Gold Coins (My Accent and the Speech Class) (c) by Jack Szwergold*
+*Altar of Silence (Jim Morrison, Jeff and the Runaway) (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
