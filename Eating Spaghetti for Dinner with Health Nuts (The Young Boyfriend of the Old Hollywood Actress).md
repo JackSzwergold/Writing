@@ -24,7 +24,7 @@ As I walked to the door, everyone—including the creepy cousin—stood up to sa
 
 Their apartment was on the top floor of the building so I hit the elevator button to go down. After a few seconds—with no sign of the elevator coming—I turned around and ran down the stairs and out onto the street.
 
-It was a nice, warm evening so I decided to walk along the boardwalk back to Ocean Parkway—instead of walking underneath the elevated subway on Brigton Beach Avenue—to take in some of the fresh air and sun before calling it a day.
+It was a nice, warm evening so I decided to walk along the boardwalk back to Ocean Parkway—instead of walking underneath the elevated subway on Brigton Beach Avenue—to enjoy some of the fresh air and sun before calling it a day.
 
 ***
 
