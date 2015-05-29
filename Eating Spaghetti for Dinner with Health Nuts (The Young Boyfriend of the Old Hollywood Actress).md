@@ -16,7 +16,7 @@ The guy was tanned, a bit creepy and definitely gay. Now I’m saying “gay”�
 
 What was a big deal was how creepy he was in everything he did and how he carried himself. If he wasn’t open about his own sexuality, it was quite open—and glib—about his relationship with that elderly Hollywood actress he was “dating.” He was in his late 30s and she was in her early 80s; that’s a pretty damned creepy age gap. And we all got to hear about it while eating cheap spaghetti with canned parmesan sprinkled over it and washing it all down with glasses of White Rose ginger ale.
 
-“What do you think of the spaghetti, Jack? It tastes good, right?” the cousin said oddly while staring at me from across the table. The guy had the smile and eyes of a slick salesman and/or lunatic. I nodded and agreed the food was good. And soon after that I practically inhaled the spaghetti off of the plate and excused myself from the table.
+“What do you think of the spaghetti, Jack? It tastes good, right?” the cousin said oddly while staring at me from across the table. The guy had the smile and eyes of a slick salesman and/or lunatic. I nodded and agreed that the food was good. And soon after that I practically inhaled the spaghetti off of my plate and excused myself from the table.
 
 I went back to my friend’s room to check on the games that were being copied. Happily everything had finished copying and I packed up my stuff so I could go home.
 
