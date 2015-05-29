@@ -22,7 +22,7 @@ I went back to my friend’s room to check on the games that were being copied. 
 
 As I walked to the door, everyone—including the creepy cousin—stood up to say goodbye to me. “Nice meeting you, Jack!” the cousin said just as I was heading out the door. The way he said it, I half expected him to be out in the hallway with me when the door closed. But happily everyone said their goodbyes, the door was closed and then it was only me standing in the hallyway.
 
-Their apartment was on the top floor of the building so I hit the elevator button to go down. After a few seconds with no sign of the elevator coming, I turned around and ran down the stairs and out onto the street.
+Their apartment was on the top floor of the building so I hit the elevator button to go down. After a few seconds—with no sign of the elevator coming—I turned around and ran down the stairs and out onto the street.
 
 It was a nice, warm evening so I decided to walk along the boardwalk back to Ocean Parkway—instead of walking underneath the elevated subway on Brigton Beach Avenue—to take in some of the fresh air and sun before calling it a day.
 
