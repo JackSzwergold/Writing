@@ -30,7 +30,7 @@ I mean yes, this was still *Star Wars* we]re talking about. So you could buy all
 
 And with that said, my personal enjoyment of *Star Wars* ended with *Return of the Jedi* and the pre-Internet media over-saturation I experienced during that film’s initial release. Part of me wants to blame David for sharing his copy of the official Marvel comics adaptation of *Return of the Jedi* with everyone else in our junior high school class. But—when all is said and done—by the time 1983 rolled around *Star Wars* was no longer a magically unique, nascent series of science fiction films that inspired wonder and amazement. *Star Wars* had officially transformed itself into a Hollywood cash cow franchise whose only job was to crassly push viewer’s emotional buttons and sell them merchandise.
 
-And I was getting too old for that sort of thing.
+And if I could walk to a crappy corner newsstand and learn what the plot of an upcoming major film was before even seeing it, I was simply getting too old for that sort of thing.
 
 ***
 
