@@ -14,7 +14,7 @@ We soon found out why he was so cool and generous: His brother worked for a majo
 
 For example, in 1982 when Eddie Murphy was starring in *48 Hrs.*, guess who showed off his bootleg copy of the film on Betamax to the class? David did. While few people owned VCRs back then this kid not only had access to a Betamax deck, he also had enough industry access to score a bootleg copy of *48 Hrs.* in an era when movie bootlegging was far from common to say the least. He also was able to get his hands on a pre-release copy of the video game *Berserk* for the Atari 2600 as well and show that off in class. The kid was well connected and sometimes us mere “commoners” benefited from his access to pop-culture bounty.
 
-And one spring day in 1983, a few of us *Star Wars* fans benefited from his access.
+And one spring day in 1983, a few of us *Star Wars* fan classmates benefited from his access.
 
 On that day he showed up in our homeroom with a copy of the official Marvel comics adaptation of *Return of the Jedi* to share with us before the film was officially released. For the first time in my life, the entire plot of a film was “spoiled.”
 
