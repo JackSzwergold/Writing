@@ -16,7 +16,7 @@ For example, in 1982 when Eddie Murphy was starring in *48 Hrs.*, guess who show
 
 And one spring day in 1983, a few of us *Star Wars* fan classmates benefited from his access.
 
-On that day he showed up in our homeroom with a copy of the official Marvel comics adaptation of *Return of the Jedi* to share with us before the film was officially released. For the first time in my life, the entire plot of a film was “spoiled.”
+On that day he showed up in our homeroom with a copy of the official Marvel comics adaptation of *Return of the Jedi* to share with us before the film was even officially released. For the first time in my life, the entire plot of a film I wanted to see was “spoiled.”
 
 We all eagerly huddled around a desk and gawked at the pictures and the story. Everyone soon learned that by the end of the film a new Death Star would be destroyed, Darth Vader would die and—for the first time in the series—Darth Vader would be unmasked so we could see what his real face actually looked like. Now granted, the Marvel comics adaptation creatively dodged any specific details of what Darth Vader’s real face actually looked like. So I could still look forward to being surprised by that little tidbit when I saw the movie on a big screen. But for all intents and purposes, the experience of seeing *Return of the Jedi* was now officially spoiled for me.
 
