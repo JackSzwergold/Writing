@@ -22,7 +22,7 @@ From the guy who looked who looked like he had a thyroid problem with a tentacle
 
 And if the seemingly endless parade of aliens in bullshit masks wasn’t bad enough, the acting of the core *Star Wars* cast itself was pretty abysmal and stiff as well. Harrison Ford was hamming it up in pretty much every shot while Mark Hammill was trying his hardest to be dark, brooding and intense but mainly came off as tepid, strained and to trying to hard.
 
-All of this is not to say that *Return of the Jedi* didn’t have it’s fun moments—such as the the speeder bike chase in the forest or the final Death Star battle—but those were all simply well-choreographed action scenes. When the film ended, seeing Darth Vader unmasked seemed more like a hokey gimmick at the end of a crappy video game “boss level” rather than some awe inspiring, heroic plot point you have waited years to see.
+All of this is not to say that *Return of the Jedi* didn’t have it’s fun moments—such as the the speeder bike chase in the forest or the final Death Star battle—but those were all simply well-choreographed action scenes. The overall film itself felt soulless, tedious and meaningless. When the film ended, seeing Darth Vader unmasked felt more like a hokey gimmick at the end of a crappy video game “boss level” rather than some awe inspiring, heroic plot point you have waited years to see.
 
 As the final credits rolled—and the lights in the theater came on—one of my friends said it best, “I don’t know what the fuck that was.” Nobody disagreed.
 
