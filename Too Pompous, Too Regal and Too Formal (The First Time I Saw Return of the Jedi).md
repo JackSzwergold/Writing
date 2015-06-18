@@ -14,11 +14,14 @@ Everyone piled out of the classroom, ran down the staircase, headed out of the s
 
 Unlike past releases of *Star Wars* and *The Empire Strikes Back*—which were initially limited releases that grew in size as weeks went on—*Return of the Jedi* was opening at pretty much every theater worth going to in the city and ven a few in Brooklyn as well such as the Kingsway on King’s Highway and Coney Island Avenue.
 
-“That’s it. They’re showing it at the Kingsway. How about Saturday?” We all agreed and decided to meet on Saturday in front of the Kingsway.
+“That’s it. They’re showing it at the Kingsway. How about Saturday?” We all agreed and decided to meet on Saturday in front of the Kingsway about 1/2 hour before showtime.
 
-Unlike modern blockbuster movies in the post-*Star Wars* era—where people wait in line and camp out for days on end—you could still show up at a theater without much deep planning on an opening weekend back then and have no problems getting in. So that’s what we did.
+Unlike modern blockbuster movies in the post-*Star Wars* era—where people wait in line and camp out for days on end—you could still show up at a theater without much deep planning on an opening weekend in the 1980s and have no problems getting in. So that’s what we did.
 
-Despite the fact the Kingsway was broken up into smaller theaters to be a multiplex, the specific theater we were going to see *Return of the Jedi* in was was huge. Nowhere near as huge the Loews Astor Plaza in Times Square, but still bigger than most standalone theaters in Brooklyn. The newly split theater we were seeing *Return of the Jedi* in used to be the balcony of the original Kingsway and we sat down near the left, center side.
+Despite the fact the Kingsway was already broken up into smaller theaters to be a multiplex, the specific theater we were going to see *Return of the Jedi* in was was huge. Nowhere near as huge the Loews Astor Plaza in Times Square, but still bigger than most standalone theaters in Brooklyn.
+
+
+The newly split theater we were seeing *Return of the Jedi* in used to be the balcony of the original Kingsway and we sat down near the left, center side.
 
 From the get go, the experience was non-thrilling. First, the theater was packed and nobody would shut up; especially parents who brought children to see the film who were too young to give a damn about the film. Next, was the film itself. It immediately felt “off” from the moment Darth Vader first appears at the beginning and suddenly there is some huge, awkward color guard of Imperial troops, officers and staff there to greet him. That made it feel all too pompous, too regal and too formal to be a part of the *Star Wars* universe that preceded it. But then it only got worse as the film went on and the endless parade of oddball aliens in bullshit masks showed up.
 
