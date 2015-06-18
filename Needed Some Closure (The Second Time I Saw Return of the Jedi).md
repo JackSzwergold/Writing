@@ -2,9 +2,9 @@
 
 By Jack Szwergold, June 17, 2015
 
-Back in the day—before VCRs and cable TV were commonplace—you had to actually go to a theater again to see a movie again. There simply wasn’t any other choice for most people and this wasn’t a completely new idea to me or anyone else.
+Back in the day—before VCRs and cable TV were commonplace—you had to  drag your ass to an actual theater to see a movie again. There simply wasn’t any other choice for most people if you enjoyed a film and wanted to take in the experience again.
 
-I mean I sat through two screenings each of *The Muppet Movie* and *Superman II* in the same day in the same theater because I liked each film that much. And when *The Empire Strikes Back* was screening again in theaters in 1981—after it’s initial 1980 release—I saw it again and was happy to pay to see it again. But with *Return of the Jedi* I went to see it again a week later in the same exact theater not because I liked it the first time but rather because I simply had no idea why I hated it so much. And I needed some closure to the issue.
+Going to a theater to see a movie again wasn’t a completely new idea to me or anyone else. Personally, I sat through two screenings each of *The Muppet Movie* and *Superman II* in the same day in the same theater because I liked each film that much. And when *The Empire Strikes Back* was screening again in theaters in 1981—after it’s initial 1980 release—I saw it again and was happy to pay to see it again. But with *Return of the Jedi* I went to see it again a week later in the same exact theater not because I liked it the first time but rather because I simply had no idea why I hated it so much. And I needed some closure to the issue.
 
 The deal was I invested a lot of my young life to giving a shit about *Star Wars*. And while I didn’t own every single piece of *Star Wars* memorabilia or toys, I did own a lot of stuff. Like piles of *Star Wars* Topps trading cards and Kenner action figures. And I scoured the local used book store’s used comics bin for pretty much any ragged copy of the *Star Wars* comic I could find. I mean I never even read those crappy comics, but I at least needed to purchase something with the *Star Wars* logo/name on it to sate my desire for new stuff in between films, right?
 
