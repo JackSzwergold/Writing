@@ -6,7 +6,13 @@ I was in 9th grade in junior high school when *Return of the Jedi* rolled into e
 
 But past that, the true nail in the *Star Wars* “awe and wonder” coffin was hammered in place one day when our middle-aged social studies teacher decided to spend the last 15 minutes of class yammering about seeing it in “the city” the night before.
 
-“I saw it opening night in the city and it was *spectacular*!” he said standing in front of the class with a light dusting of blackboard chalk on his navy blue “Fox Collection” (J.C. Penney Izod Lacoste knock-off) polo shirt. “The special effects were unbelievable!” he said with all of the the authority of a pompous full grown adult oddly needing to impress a classroom filled with 14 and 15 year olds. He then “opened up the floor” so we could all awkwardly ask a middle-aged social studies teacher nobody really liked vaguely disinterested questions about key points in the film. He half-heartedly answered a few questions and within a few minutes class dismissed.
+“I saw it opening night in the city and it was *spectacular*!” he said with no irony to a class of 14 and 15 year olds with a light dusting of blackboard chalk on the navy blue J.C. Penney “Fox Collection” (Izod Lacoste knock-off) polo shirt he was wearing. “The special effects were *unbelievable*!” he said with all of the sad authority of a pompous full grown adult who somehow needing to try to “connect” a classroom filled with bored, disinterested adolescents.
+
+After declaring that, he then “opened up the floor” so we could all awkwardly ask a middle-aged social studies teacher—that nobody really liked—vaguely disinterested questions about key points in the film. He half-heartedly answered a few questions with a few half-assed answers and within a few minutes, the class dismissed.
+
+
+
+
 
 We all piled out classroom, ran down the staircase, headed out of the school and onto the sunny spring street. “So do you want to go and see it?” I heard one of my classmates say. “Sure,” I responded, “But where and when?” Neither us knew so we started flipping through somebody’s copy of the Daily News to check times and theaters.
 
