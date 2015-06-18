@@ -10,9 +10,9 @@ But past that, the true nail in the *Star Wars* “awe and wonder” coffin was 
 
 After declaring his love of *Return of the Jedi*, he then “opened up the floor” so we could all awkwardly ask a middle-aged social studies teacher—that nobody really liked—vaguely disinterested questions about the film itself. He half-heartedly answered a few questions with a few half-assed answers and within a few minutes, the class dismissed.
 
-Everyone piled out of the classroom, ran down the staircase, headed out of the school and onto Neptune Avenue; the street right in front of the school. “So do you want to go and see it?” I heard one of my classmates say. “Sure,” I responded, “But where and when?” Neither us knew so we started flipping through somebody’s copy of the Daily News on a nearby bench to check times and theaters.
+Everyone piled out of the classroom, ran down the staircase, headed out of the school and onto Neptune Avenue; the street right in front of the school. “So do you want to go and see it?” I heard one of my classmates say. “Sure,” I responded, “But where and when?” Neither us knew so we started flipping through somebody’s copy of the Daily News on a nearby bench to check theaters and times.
 
-Unlike past releases of *Star Wars* and *The Empire Strikes Back*—which were initially limited releases that grew in size as weeks went on—*Return of the Jedi* was opening at pretty much every theater worth going to in the city. Even a few in Brooklyn as well such as the Kingsway on King’s Highway and Coney Island Avenue.
+Unlike past releases of *Star Wars* and *The Empire Strikes Back*—which were initially limited releases that grew in size as weeks went on—*Return of the Jedi* was opening at pretty much every theater worth going to in the city and ven a few in Brooklyn as well such as the Kingsway on King’s Highway and Coney Island Avenue.
 
 “That’s it. They’re showing it at the Kingsway. How about Saturday?” We all agreed and decided to meet on Saturday in front of the Kingsway.
 
