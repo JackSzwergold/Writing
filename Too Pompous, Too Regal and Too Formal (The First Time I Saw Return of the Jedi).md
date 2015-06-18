@@ -8,13 +8,9 @@ But past that, the true nail in the *Star Wars* “awe and wonder” coffin was 
 
 “I saw it opening night in the city and it was *spectacular*!” he said with no irony to a class of 14 and 15 year olds with a light dusting of blackboard chalk on the navy blue J.C. Penney “Fox Collection” (Izod Lacoste knock-off) polo shirt he was wearing. “The special effects were *unbelievable*!” he said with all of the sad authority of a pompous full grown adult who somehow needing to try to “connect” a classroom filled with bored, disinterested adolescents.
 
-After declaring that, he then “opened up the floor” so we could all awkwardly ask a middle-aged social studies teacher—that nobody really liked—vaguely disinterested questions about key points in the film. He half-heartedly answered a few questions with a few half-assed answers and within a few minutes, the class dismissed.
+After declaring his love of *Return of the Jedi*, he then “opened up the floor” so we could all awkwardly ask a middle-aged social studies teacher—that nobody really liked—vaguely disinterested questions about the film itself. He half-heartedly answered a few questions with a few half-assed answers and within a few minutes, the class dismissed.
 
-
-
-
-
-We all piled out classroom, ran down the staircase, headed out of the school and onto the sunny spring street. “So do you want to go and see it?” I heard one of my classmates say. “Sure,” I responded, “But where and when?” Neither us knew so we started flipping through somebody’s copy of the Daily News to check times and theaters.
+Everyone piled out of the classroom, ran down the staircase, headed out of the school and onto Neptune Avenue; the street right in front of the school. “So do you want to go and see it?” I heard one of my classmates say. “Sure,” I responded, “But where and when?” Neither us knew so we started flipping through somebody’s copy of the Daily News on a nearby bench to check times and theaters.
 
 Unlike past releases of *Star Wars* and *The Empire Strikes Back*—which were initially limited releases that grew in size as weeks went on—*Return of the Jedi* was opening at pretty much every theater worth going to in the city. Even a few in Brooklyn as well such as the Kingsway on King’s Highway and Coney Island Avenue.
 
