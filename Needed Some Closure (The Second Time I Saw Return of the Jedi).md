@@ -4,7 +4,7 @@ By Jack Szwergold, June 17, 2015
 
 Back in the day you had to drag your ass to an actual theater to see a movie again. In those days before VCRs and cable TV were commonplace there simply wasn’t any other choice for most people if you enjoyed a film and wanted to take in the experience again.
 
-I mean, going to a theater to see a movie again wasn’t a completely new idea to me or anyone else. Personally, I sat through two screenings each of *The Muppet Movie* and *Superman II* in the same day in the same theater because I liked each film that much. And when *The Empire Strikes Back* was rereleased in theaters in 1981—after it’s initial 1980 release—I was quite happy to pay full-price to be able see it again.
+I mean, going to a theater to see a movie again wasn’t a completely new idea to me or anyone else. Personally, I sat through two back-to-back screenings of *The Muppet Movie* and *Superman II* in the same day in the same theater because I liked each of those films that much. And when *The Empire Strikes Back* was re-released in theaters in 1981—after it’s initial 1980 release—I was quite happy to pay full-price to be able see it again.
 
 But with *Return of the Jedi* I went to see it again a week later in the same exact theater not because I liked it the first time. Not at all. In fact I hated it. But rather because I simply had no idea why I hated it so much. And I needed some closure to the issue.
 
