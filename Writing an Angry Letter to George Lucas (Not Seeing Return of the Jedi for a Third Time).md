@@ -32,7 +32,7 @@ So I walked to the hallway, picked up the telephone receiver and simply said “
 
 After a minute or so, my brother’s indignant pace calmed down enough for me to simply say, “I don’t think that it was scary.” And again, my brother revved himself up to complain about how that one scene with the Rancor beast was so horrible, so terrifying that he was going to write a letter to George Lucas about it. I simply responded, “Okay,” and passed the phone back to my dad.
 
-And as they talked on the phone, I went back to my room and noticed the sunset. So I found my keys, went outside and took a walk on the boardwalk before it got too dark. At least now I could get some fresh air and clear my head of all of this nonsense and real-world rancor.
+As they talked on the phone, I went back to my room and noticed the sunset. So I found my keys, went outside and took a walk on the boardwalk before it got too dark. At least now I could get some fresh air, clear my head of all of this nonsense—and real-world rancor—that was bitterly spewed into my head.
 
 ***
 
