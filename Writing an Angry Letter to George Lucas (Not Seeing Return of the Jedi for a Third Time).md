@@ -10,7 +10,7 @@ What was the “bad” my brother was supposedly “saving” me from in my life
 
 The reality is all of his concerns were utter bullshit: He simply hated his own parents for various nonsensical, trivial reasons and acted out many of his delusional insecurities via his supposed “concerns” for my welfare and well being.
 
-Which is all to say that as an adult, that is how I now understand his unwanted, destructive and dysfunctional behavior. As a child, I just felt his behavior was just bullshit and I wasn’t going to endure sitting through yet another *Star Wars* film with him for any reason.
+Which is all to say that as an adult, that is how I now understand his unwanted, domineering, destructive and dysfunctional behavior. As a child, I just felt his behavior was just bullshit and I wasn’t going to endure sitting through yet another *Star Wars* film with him for any reason.
 
 When I saw *Star Wars* with my brother he was indignant about me having already seen it before. And when we went to see *The Empire Strikes Back* he was constantly calling me “stupid” for tenuous reasons at best. There was no way I was going to deal with that childish bullshit from someone nearly 20 years older than me when it came time to see *Return of the Jedi*.
 
