@@ -30,9 +30,9 @@ So I walked to the hallway, picked up the telephone receiver and simply said “
 
 “This movie is supposed to be for the children!!!” he screamed to me as he explained how his son was so frightened by the Rancor beast in Jabba the Hutt’s Palace—the one that was going to eat Luke Skywalker—that his son screamed and cried. “We had to leave! He was crying so much!” he continued blabbering like an out of control machine gun, never giving me a second to say anything past that initial “Hello.” This went on for a few minutes as I tried to have whatever kind of conversation a kid can have when a screaming, incomprehensible asshole who is 20 years older than you is on the other end of the phone.
 
-After a minute or so, my brother’s indignant pace calmed down enough for me to simply say, “I don’t think that it was scary.” And again, my brother revved himself up to complain about how that one scene with the Rancor was so horrible, so terrifying that he was going to write a letter to George Lucas about it. I simply responded, “Okay,” and passed the phone back to my dad.
+After a minute or so, my brother’s indignant pace calmed down enough for me to simply say, “I don’t think that it was scary.” And again, my brother revved himself up to complain about how that one scene with the Rancor beast was so horrible, so terrifying that he was going to write a letter to George Lucas about it. I simply responded, “Okay,” and passed the phone back to my dad.
 
-And as they talked on the phone, I went back to my room and noticed the sunset. So I found my keys, went outside and took a walk on the boardwalk before it got too dark so I could get some fresh air and clear my head.
+And as they talked on the phone, I went back to my room and noticed the sunset. So I found my keys, went outside and took a walk on the boardwalk before it got too dark. At least now I could get some fresh air and clear my head of all of this nonsense and real-world rancor.
 
 ***
 
