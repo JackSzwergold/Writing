@@ -16,9 +16,9 @@ The first part of the journey home was simple enough; I just had to walk a few b
 
 But once I got to Ocean Parkway I figured out how to do it: I would cross the street with whatever group of adults were waiting to cross the street as well and just follow the flow of the crowd.
 
-So I stood and waited with a group of adults at the crosswalk. A few of them actually looked down at me and wondered who I was.  But once the light changed every’s attention was focused on crossing the street… Including mine.
+So I stood and waited with a group of adults at the crosswalk. A few of them actually looked down at me and wondered who I was. But once the light changed every’s attention was focused on crossing the street… Including mine.
 
-I carefully walked with the group the whole six lane width until I got to the other side of Ocean Parkway. And the second I got to the other side, I instantly sprinted up the block back home.
+I carefully walked with the group the whole six lane width of Ocean Parkway until I got to the other side. And the second my feet touched ground on the other side, I instantly sprinted up the block back home.
 
 Once I got to my apartment building, I buzzed our apartment buzzer and my mom answered, “Who is it?” I responded, “Jack!” and she let me in. I rang the doorbell to the apartment and she was stunned to see me alone, “Where is daddy?” “I don’t know,” I said as I ran inside and into my room.
 
