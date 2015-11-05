@@ -2,7 +2,7 @@
 
 By Jack Szwergold, November 4, 2015
 
-I have no idea where Bill came from, but one spring in the 1970s he just showed up and hung out on our Ocean Parkway block seemingly every day. He was this white guy who wore a denim jacket with a red haired, frizzy Jewfro and he would just stand out there with a thousand yard stare and a smile on his face. What was he smiling at or about? Who knew! He just stood and smiled.
+I have no idea where Bill came from, but one spring in the 1970s he just showed up and hung out on our Ocean Parkway block seemingly every day. He was this white guy who wore a denim jacket with a red haired, frizzy Jewfro and he would just stand out there with a thousand yard stare and a frozen smile on his face. What was he smiling at or about? Who knew! He just stood, smiled and started vacantly just like a real life caricature of hippie burnout you would see in an underground comic book at a head shop or hippie store.
 
 At first us neighborhood kids thought he was creepy. He was definitely damaged. Maybe he was a burnout? Or an acid casualty? Or a mental patient? Or all of the above? Brighton Beach was filled with all kinds of wacky characters in the 1970s and and with Coney Island Hospital a few blocks away any of those explanations would make sense. But after a while, we realized he was just weird but harmless. 
 
