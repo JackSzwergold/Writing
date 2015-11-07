@@ -9,7 +9,7 @@ I was an oddball kid at that school because my parents were poor Polish-Jewish i
 
 My accent was—and probably still is—a mix of American, Yiddish, Polish, Brooklyn and maybe even Spanish thanks to some of the neighborhood kids I played with. Definitely not from Texas. Regardless, the school decided my accent was an issue and I should go to “speech” class which was a bit embarrassing.
 
-Speech class was a special class where other kids with supposed speech issues were sent to get us to speak better or some crap like that. In my case, the class consisted of only three kids: The Puerto Rican boy with crossed eyes and some palsy, the deaf girl with pigtails and me.
+Speech class was a special class where other kids with supposed speech issues were sent to get us to speak better or some crap like that. In my case, the class consisted of only three kids: The cross-eyed Puerto Rican boy with some palsy, the deaf girl with pigtails and me.
 
 The first meeting of the class was in this special small room and the teacher told us we were going to be opening up a treasure chest that was filled with gold coins and that got me really excited! It seemed that instead of this class being some social embarrassment, I was going to do something the other “normal” kids weren’t: I was going to be checking out real gold coins from a real treasure chest!
 
