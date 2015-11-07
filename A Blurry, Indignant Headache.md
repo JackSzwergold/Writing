@@ -1,5 +1,5 @@
 # A Blurry, Indignant Headache
-## The Second Time I Saw Star Wars
+## The Second Time I Saw *Star Wars*
 
 By Jack Szwergold, May 23, 2015
 
