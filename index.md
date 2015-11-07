@@ -17,7 +17,7 @@ That time in second grade in the 1970s when a teacher flipped out on me and a fr
 The time in second grade in the 1970s when me, the cross-eyed Puerto Rican boy with some palsy and the deaf girl with pigtails had to go to a “special” class.
 
 #### [Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector](Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector)
-Remembering a catatonic hippie burnout in a seemingly constant fugue state who hung out around or block and protected children in the 1970s.
+Remembering a catatonic hippie burnout—who was in a seemingly constant fugue state—who hung out around or block and protected children in the 1970s.
 
 #### [Shadows, Shapes and Sand](Shadows, Shapes and Sand)
 The time in the 1970s I jumped off of the boardwalk and into the sand on a dare and noticed things I never noticed before.
