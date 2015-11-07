@@ -1,4 +1,4 @@
-# Spoilered
+# Spoiled Kid Spoilered
 ## Rich Kid Shares the Marvel Comics Adaptation of *Return of the Jedi*
 
 By Jack Szwergold, May 30, 2015
@@ -35,6 +35,6 @@ And if I could walk to a crappy corner newsstand and learn what the plot of an u
 
 ***
 
-*Spoilered: Rich Kid Shares the Marvel Comics Adaptation of Return of the Jedi (c) by Jack Szwergold*
+*Spoiled Kid Spoilered: Rich Kid Shares the Marvel Comics Adaptation of Return of the Jedi (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
