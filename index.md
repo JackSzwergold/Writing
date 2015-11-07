@@ -47,23 +47,23 @@ The time in the 1980s I went to the discount movie theater in Midwood to see *Tr
 #### [Eating Spaghetti for Dinner with Health Nuts](Eating Spaghetti for Dinner with Health Nuts)
 I ate a crappy spaghetti across the table from an aging celebrity gold digger in the 1980s.
 
-#### [Why Do You Listen to That Junk?](Why Do You Listen to That Junk?)
-How I learned about the *B-52s* when I was trying to score some *Rush* tickets in 1984.
-
-#### [Do Me a Favor and Buy Me Some Milk](Do Me a Favor and Buy Me Some Milk)
-The time in 1984 I went to a scalper to score some tickets for a *Rush* show at the Meadowlands.
-
-#### [Altar of Silence](Altar of Silence)
-About a 1980s high school classmate who was obsessed with Jim Morrison and *The Doors* and this runaway he and his friends met.
-
 #### [One Seat in One Row With Another Seat in Another Row](One Seat in One Row With Another Seat in Another Row)
 The first time I saw *The Empire Strikes Back* in 1980 with my brother and how well that went.
 
 #### [Keeping Warm in the Snow](Keeping Warm in the Snow)
 The time I went to see *The Empire Strikes Back* with my dad in the 1980s at the Kent theater in Midwood.
 
+#### [Altar of Silence](Altar of Silence)
+About a 1980s high school classmate who was obsessed with Jim Morrison and *The Doors* and this runaway he and his friends met.
+
+#### [Why Do You Listen to That Junk?](Why Do You Listen to That Junk?)
+How I learned about the *B-52s* when I was trying to score some *Rush* tickets in 1984.
+
+#### [Do Me a Favor and Buy Me Some Milk](Do Me a Favor and Buy Me Some Milk)
+The time in 1984 I went to a scalper to score some tickets for a *Rush* show at the Meadowlands.
+
 #### [Spoiled Kid Spoilered](Spoiled Kid Spoilered)
-The time in the 1980s when some rich classmate in junior high school “spoiled” *Return of the Jedi* with a comic book.
+The time in 1983 when some rich classmate in junior high school “spoiled” *Return of the Jedi* with a comic book.
 
 #### [Too Pompous, Too Regal and Too Formal](Too Pompous, Too Regal and Too Formal)
 About seeing *Return of the Jedi* for the first time in 1983.
