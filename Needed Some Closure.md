@@ -1,4 +1,5 @@
-# Needed Some Closure (The Second Time I Saw Return of the Jedi)
+# Needed Some Closure
+## The Second Time I Saw *Return of the Jedi*
 
 By Jack Szwergold, June 17, 2015
 
@@ -38,6 +39,6 @@ As the bus got near my stop I stood up, rang the bell, said goodbye and hopped o
 
 ***
 
-*Needed Some Closure (The Second Time I Saw Return of the Jedi) (c) by Jack Szwergold*
+*Needed Some Closure: The Second Time I Saw Return of the Jedi (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -1,4 +1,5 @@
-# One Seat in One Row With Another Seat in Another Row (Seeing Empire Strikes Back for the First Time)
+# One Seat in One Row With Another Seat in Another Row
+## Seeing *The Empire Strikes Back* for the First Time
 
 By Jack Szwergold, May 25, 2015
 
@@ -46,6 +47,6 @@ After the standard greetings and niceties, I went to my room and locked the door
 
 ***
 
-*One Seat in One Row With Another Seat in Another Row (Seeing Empire Strikes Back for the First Time) (c) by Jack Szwergold*
+*One Seat in One Row With Another Seat in Another Row: Seeing Empire Strikes Back for the First Time (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

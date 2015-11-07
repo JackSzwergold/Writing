@@ -1,4 +1,5 @@
-# Keeping Warm in the Snow (The Second Time I Saw Empire Strikes Back)
+# Keeping Warm in the Snow
+## The Second Time I Saw *The Empire Strikes Back*
 
 By Jack Szwergold, May 26, 2015
 
@@ -20,6 +21,6 @@ When the B68 arrived at the corner of Brighton Beach Avenue and Coney Island Ave
 
 ***
 
-*Keeping Warm in the Snow (The Second Time I Saw Empire Strikes Back) (c) by Jack Szwergold*
+*Keeping Warm in the Snow: The Second Time I Saw Empire Strikes Back (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -1,4 +1,5 @@
-# Scene Upon Stupid Scene (Not Seeing Star Wars for the Third Time)
+# Scene Upon Stupid Scene
+## Not Seeing *Star Wars* for the Third Time
 
 By Jack Szwergold, May 24, 2015
 
@@ -26,6 +27,6 @@ With that they said their goodbyes to my parents and left. I finished eating and
 
 ***
 
-*Scene Upon Stupid Scene (Not Seeing Star Wars for the Third Time) (c) by Jack Szwergold*
+*Scene Upon Stupid Scene: Not Seeing Star Wars for the Third Time (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

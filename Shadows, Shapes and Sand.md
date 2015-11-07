@@ -1,4 +1,5 @@
-# Shadows, Shapes & Sand (Jumping Off of the Boardwalk into the Sand)
+# Shadows, Shapes and Sand
+## Jumping Off of the Boardwalk into the Sand
 
 By Jack Szwergold, May 21, 2015
 
@@ -26,6 +27,6 @@ As we walked along the boardwalk I looked down between the wooden slats to try a
 
 ***
 
-*Shadows, Shapes & Sand (Jumping Off of the Boardwalk into the Sand) (c) by Jack Szwergold*
+*Shadows, Shapes and Sand: Jumping Off of the Boardwalk into the Sand (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

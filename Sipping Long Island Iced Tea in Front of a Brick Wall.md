@@ -1,4 +1,5 @@
-# Sipping Long Island Iced Tea (Awkward Comedy Cellar Date in 1989)
+# Sipping Long Island Iced Tea in Front of a Brick Wall
+## Awkward Comedy Cellar Date in 1989
 
 By Jack Szwergold, May 28, 2015
 
@@ -14,6 +15,6 @@ The place had a two drink minimum, so I ordered a Long Island Iced Tea and let h
 
 ***
 
-*Sipping Long Island Iced Tea (Awkward Comedy Cellar Date in 1989) (c) by Jack Szwergold*
+*Sipping Long Island Iced Tea in Front of a Brick Wall: Awkward Comedy Cellar Date in 1989 (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -1,4 +1,5 @@
-# Too Pompous, Too Regal and Too Formal (The First Time I Saw Return of the Jedi)
+# Too Pompous, Too Regal and Too Formal
+## The First Time I Saw *Return of the Jedi*
 
 By Jack Szwergold, June 15, 2015
 
@@ -34,6 +35,6 @@ We all left the theater and went our separate ways. It was a bright and sunny sp
 
 ***
 
-*Too Pompous, Too Regal and Too Formal (The First Time I Saw Return of the Jedi) (c) by Jack Szwergold*
+*Too Pompous, Too Regal and Too Formal: The First Time I Saw Return of the Jedi (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

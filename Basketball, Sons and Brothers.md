@@ -1,4 +1,5 @@
-# Basketball, Sons & Brothers (Junior Breaks the Basketball Hoops)
+# Basketball, Sons and Brothers
+## Junior Breaks the Basketball Hoops
 
 By Jack Szwergold, May 20, 2015
 
@@ -30,6 +31,6 @@ So the basketball joined the soccerball in the closet and that was the end of th
 
 ***
 
-*Basketball, Sons & Brothers (Junior Breaks the Basketball Hoops) (c) by Jack Szwergold*
+*Basketball, Sons and Brothers: Junior Breaks the Basketball Hoops (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
