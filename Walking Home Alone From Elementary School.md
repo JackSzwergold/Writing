@@ -26,6 +26,6 @@ She was worried a bit but then my father came home all frantic talking to her in
 
 ***
 
-*Walking Home Alone From Elementary School(c) by Jack Szwergold*
+*Walking Home Alone From Elementary School (c) by Jack Szwergold*
 
 *This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
