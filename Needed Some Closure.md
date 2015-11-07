@@ -35,7 +35,7 @@ Outside of the theater, we all decided to take the B68 bus back to Brighton Beac
 
 As the bus got near my stop I stood up, rang the bell, said goodbye and hopped out the back door. It wasn’t too late in the afternoon so I grabbed a slice of pizza from Rocco’s, walked around the corner and headed back home. My dad was sitting outside the building in a folding chair reading the newspaper with all of the other folks from the building who seemed to only sit in front of the building all day.
 
-“So how was it?” he asked? I shrugged and said, “Ehhh…” while taking another bite of my slice and leaning back to sit on the small brick wall in front of the building. My dad saw the *Return of the Jedi* program under my arm and asked to look at it. I passed it over to him and he flipped through it for a bit. Then I looked at my watch, noticed the time and said I was going upstairs. My dad held onto the program for the rest of the afternoon while he hung out in front of the building as I headed upstairs to put on some music, play some computer games and then take a nap.
+“So how was it?” he asked? I shrugged and said, “Ehhh…” while taking another bite of my slice and leaning back to sit on the small brick front yard fence in front of the building. My dad saw the *Return of the Jedi* program under my arm and asked to look at it. I passed it over to him and he flipped through it for a bit. Then I looked at my watch, noticed the time and said I was going upstairs. My dad held onto the program for the rest of the afternoon while he hung out in front of the building as I headed upstairs to put on some music, play some computer games and then take a nap.
 
 ***
 
