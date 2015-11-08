@@ -20,7 +20,7 @@ As the days went on, Bill’s role as an unexpected protector of children became
 
 When it started to get dark at night, Bill would walk away; presumably to go home. But he seemed to just walk across Brighton Beach Avenue and walk towards the boardwalk. Maybe he lived there? Seriously, the area underneath the boardwalk was not filled in during the 1970s and there were definitely people living there in some way back then. But he seemed too clean—and never seemed to have sand or dirt on him—to be someone living out on the beach like that. But wherever he went to, he would always come back in the afternoon the next day.
 
-Bill hung around the block for a few weeks and then—without any warning or reason—just disappeared. With him gone, this meant us kids had to fend for ourselves while the yentas sat around silently saying nothing. And my mom ended up buying slightly less muenster cheese as a result as well; with Bill gone who needs to spend money on extra cheese? But at least for a few weeks we all got to know Bill and realize even though he was damaged, a burnout, an acid casualty, or possibly a mental patient he was still a good guy.
+Bill hung around the block for a few weeks and then—without any warning or reason—just disappeared. With him gone, this meant us kids had to fend for ourselves while whatever bullying nonsense happened and the yentas sat around silently saying nothing. And my mom ended up buying slightly less muenster cheese as a result as well; with Bill gone who needs to spend money on extra cheese? But at least for a few weeks we all got to know Bill and realize even though he was damaged, a burnout, an acid casualty, or possibly a mental patient he was still a good guy.
 
 ***
 
