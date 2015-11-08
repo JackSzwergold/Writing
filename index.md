@@ -53,9 +53,6 @@ The first time I saw *The Empire Strikes Back* in 1980 with my brother and how w
 #### [Keeping Warm in the Snow](Keeping%20Warm%20in%20the%20Snow)
 The time I went to see *The Empire Strikes Back* with my dad in the 1980s at the Kent theater in Midwood.
 
-#### [Altar of Silence](Altar%20of%20Silence)
-About a 1980s high school classmate who was obsessed with Jim Morrison and *The Doors* and this runaway he and his friends met.
-
 #### [Spoiled Kid Spoilered](Spoiled%20Kid%20Spoilered)
 The time in 1983 when some rich classmate in junior high school “spoiled” *Return of the Jedi* with a comic book.
 
@@ -67,6 +64,9 @@ I saw *Return of the Jedi* one more time within a week of seeing it the first ti
 
 #### [Writing an Angry Letter to George Lucas](Writing%20an%20Angry%20Letter%20to%20George%20Lucas)
 The time in 1983 when my brother called me up to scream at me about writing a letter to George Lucas because his son was scared of something in *Return of the Jedi*.
+
+#### [Altar of Silence](Altar%20of%20Silence)
+About a 1980s high school classmate who was obsessed with Jim Morrison and *The Doors* and this runaway he and his friends met.
 
 #### [Why Do You Listen to That Junk?](Why%20Do%20You%20Listen%20to%20That%20Junk)
 How I learned about the *B-52s* when I was trying to score some *Rush* tickets in 1984.
