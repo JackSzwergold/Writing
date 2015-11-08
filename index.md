@@ -22,7 +22,7 @@ Remembering a catatonic hippie burnout—who was in a seemingly constant fugue s
 #### [Shadows, Shapes and Sand](Shadows,%20Shapes%20and%20Sand)
 The time in the 1970s I jumped off of the boardwalk and into the sand on a dare and noticed things I never noticed before.
 
-#### [What Do You Think of This One?](What%20Do%20You%20Think%20of%20This%20One?)
+#### [What Do You Think of This One?](What%20Do%20You%20Think%20of%20This%20One)
 The first time I saw *Star Wars* with my summer camp at the Loews Astor Plaza in 1977.
 
 #### [A Blurry, Indignant Headache](A%20Blurry,%20Indignant%20Headache)
@@ -56,7 +56,7 @@ The time I went to see *The Empire Strikes Back* with my dad in the 1980s at the
 #### [Altar of Silence](Altar%20of%20Silence)
 About a 1980s high school classmate who was obsessed with Jim Morrison and *The Doors* and this runaway he and his friends met.
 
-#### [Why Do You Listen to That Junk?](Why%20Do%20You%20Listen%20to%20That%20Junk?)
+#### [Why Do You Listen to That Junk?](Why%20Do%20You%20Listen%20to%20That%20Junk)
 How I learned about the *B-52s* when I was trying to score some *Rush* tickets in 1984.
 
 #### [Do Me a Favor and Buy Me Some Milk](Do%20Me%20a%20Favor%20and%20Buy%20Me%20Some%20Milk)
