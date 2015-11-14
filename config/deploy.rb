@@ -54,6 +54,9 @@ namespace :deploy do
         # Remove the Capisrano related files and directories.
         execute "cd #{current_path} && rm -rf config && rm -f Capfile"
 
+        # Remove the 'htaccess.txt' file.
+        execute "cd #{current_path} && rm -f htaccess.txt"
+
         # Remove the 'LICENSE.txt' file.
         execute "cd #{current_path} && rm -f LICENSE.txt"
 
