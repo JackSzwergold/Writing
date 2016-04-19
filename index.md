@@ -34,6 +34,9 @@ About the second time second time I saw *Star Wars* in 1977 with my brother.
 #### [Scene Upon Stupid Scene](Scene%20Upon%20Stupid%20Scene)
 I was promised I’d go see *Star Wars* again in 1977 and instead got to see *Smokey and the Bandit*.
 
+#### [Seeing *Fiddler on the Roof* on Kings Highway](Seeing%20Fiddler%20on%20the%20Roof%20on%20Kings%20Highway)
+About the time in 1979 when my parents and I went to see *Fiddler on the Roof* at a movie theater on King’s Highway.
+
 #### [Basketball, Sons and Brothers](Basketball,%20Sons%20and%20Brothers)
 The time in the 1970s that the son of my childhood building’s superintendent became successful and how he let the rest of us in the neighborhood know about it.
 
