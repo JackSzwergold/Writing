@@ -16,6 +16,9 @@ That time in second grade in the 1970s when a teacher flipped out on me and a fr
 #### [Treasure Chest of Gold Coins](Treasure%20Chest%20of%20Gold%20Coins)
 The time in second grade in the 1970s when me, the cross-eyed Puerto Rican boy with some palsy and the deaf girl with pigtails had to go to a “special” class.
 
+#### [Punched in the Stomach](Punched%20in%20the%20Stomach)
+The time in second grade I fought back against a bully, got punched in the stomach and was called a “troublemaker” by my class teacher.
+
 #### [Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector](Bill%20the%20Damaged,%20Burnout,%20Acid%20Casualty,%20Mental%20Patient,%20Protector)
 Remembering a catatonic hippie burnout—who was in a seemingly constant fugue state—who hung out around or block and protected children in the 1970s.
 
