@@ -11,7 +11,7 @@ Anyway we left our building and headed to the subway station at Ocean Parkway. T
 
 We got off at King’s Highway and started to walk westward, towards Ocean Avenue, which was weird too. Whenever we headed to King’s Highway we usually stayed around the area between Coney Island Avenue and the train station that was located between East 15th Street and East 16th Street. Not on this trip. We were headed to a movie theater. It wasn’t the Kingsway Theater on Coney Island Avenue but another one near East 18th Street that was called the Avalon Theater or something like that.
 
-Anyway when we got to the theater, there was a crowd outside. No kids that I could see but tons of older Jewish people around my parent’s age. My dad got us the tickets and we headed inside.
+Anyway when we got to the theater, there was a crowd outside. No kids around my age that I could see but tons—and I mean *tons*—of older Jewish people around my parent’s age. My dad got us the tickets and we headed inside.
 
 It was dark and crowded and I never even asked what movie we were seeing. It didn’t matter much because I was bored and just wanted to sit down. When I finally sat down and looked around, the theater was all kinds of stunning. This was at that time in the 1970s before they split up movie theaters into multiplexes to squeeze more money out of them. Lots of red velvet curtains and gold trimming. Suddenly the lights went down and the curtain opened.
 
