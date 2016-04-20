@@ -1,4 +1,4 @@
-# Seeing Fiddler on the Roof on King’s Highway
+# Seeing *Fiddler on the Roof* on King’s Highway
 ## The Time My Parents and I Went Out to See the Film
 
 By Jack Szwergold, April 19, 2016
@@ -15,7 +15,7 @@ Anyway when we got to the theater, there was a crowd outside. No kids that I cou
 
 It was dark and crowded and I never even asked what movie we were seeing. It didn’t matter much because I was bored and just wanted to sit down. When I finally sat down and looked around, the theater was all kinds of stunning. This was at that time in the 1970s before they split up movie theaters into multiplexes to squeeze more money out of them. Lots of red velvet curtains and gold trimming. Suddenly the lights went down and the curtain opened.
 
-The film “Fiddler on to Roof.” I knew some of the music from the soundtrack LP my parents had at home. But unlike the scratchy sound coming out of our clunky record player, the music and sound here was crystal clear.
+The film was *Fiddler on to Roof*. I knew some of the music from the soundtrack LP my parents had at home. But unlike the scratchy sound coming out of our clunky record player, the music and sound here was crystal clear.
 
 I should say something about how the film entranced me and swept me away or some shit like that. But the reality is I was a kid and I was bored. We sat in a row with an aisle in front of us so I stood up during most of the film and fidgeted around on the raising as if it were a monkey bar in a playground. Everyone was silently watching and when the scene was bright enough on the screen I liked to turn around and see the faces on to crowd. It was all old people. Old Jewish people. And me mixed in it; the seemingly only kid in the crowd.
 
