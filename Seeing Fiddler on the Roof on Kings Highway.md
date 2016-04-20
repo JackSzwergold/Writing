@@ -13,7 +13,7 @@ We got off at King’s Highway and started to walk westward, towards Ocean Avenu
 
 Anyway when we got to the theater, there was a crowd outside. No kids around my age that I could see but tons—and I mean *tons*—of older Jewish people around my parent’s age. My dad got us the tickets and we headed inside.
 
-It was dark and crowded and I never even asked what movie we were seeing or paid attention to the marquee or posters outside the theater. It didn’t matter much because I was bored, really didn’t want to see a movie and just wanted to sit down. When I finally sat down and looked around, the theater was all kinds of stunning. This was at that time in the 1970s before they split up movie theaters into multiplexes to squeeze more money out of them. Lots of red velvet curtains and gold trimming. Suddenly the lights went down and the curtain opened.
+It was dark and crowded and I never even asked what movie we were seeing or paid attention to the marquee or posters outside the theater. It didn’t matter much because I was bored, really didn’t want to see a movie and just wanted to sit down and fidget. When I finally sat down and looked around, the theater was stunning in all kinds of nice little ways. This was at that time in the 1970s before they split up movie theaters into crappy multiplexes to squeeze more money out of them. Lots of red velvet curtains, gold trimming and nice lighting details. Suddenly the lights went down and the curtain opened.
 
 The film was *Fiddler on to Roof*. I knew some of the music from the soundtrack LP my parents had at home. But unlike the scratchy sound coming out of our clunky record player, the music and sound here was crystal clear.
 
