@@ -9,7 +9,7 @@ We all got dressed up and headed to King’s Highway. I asked if we were going s
 
 Anyway we left our building and headed to the subway station at Ocean Parkway. The train ride wasn’t that long, about 5-6 stops, but this all felt slightly religious in a weird way. Like we were going to Church or something—which is weird for a Jewish kid to say—but it all felt more formal than the few times I remember going to Temple as a kid. I wasn’t exactly dressed in a suit and tie, but I was wearing a button down shirt that was tucked in and some black shoes I only wore during formal events; no sneakers, t-shirt and jeans this time out because this wasn’t some random shopping trip.
 
-We got off at King’s Highway and started to walk westward, towards Ocean Avenue, which was weird too. Whenever we headed to King’s Highway we usually stayed around the area between Coney Island Avenue and the train station on East 15th Street. Not this trip. We were headed to a movie theater. It wasn’t the Kingsway Theater on Coney Island Avenue but another one near East 18th Street.
+We got off at King’s Highway and started to walk westward, towards Ocean Avenue, which was weird too. Whenever we headed to King’s Highway we usually stayed around the area between Coney Island Avenue and the train station between East 15th Street and East 16th Street. Not this trip. We were headed to a movie theater. It wasn’t the Kingsway Theater on Coney Island Avenue but another one near East 18th Street.
 
 Anyway when we got to the theater, there was a crowd outside. No kids that I could see but tons of older Jewish people around my parent’s age. My dad got the tickets and we headed inside.
 
