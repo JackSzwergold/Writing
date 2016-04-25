@@ -23,6 +23,6 @@ P.S. 253 was supposedly the “bad” school where all the non-Trump Village kid
 
 ***
 
-*Smiling, Laughing, Screaming and Crying: Abusive Second Grade Teacher (c) by Jack Szwergold*
+<sup>*Smiling, Laughing, Screaming and Crying: Abusive Second Grade Teacher (c) by Jack Szwergold*</sup>
 
-*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+<sup>*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>

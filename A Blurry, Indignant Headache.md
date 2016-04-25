@@ -35,6 +35,6 @@ Although the sun was setting and it would be dark in a half hour or so, playing 
 
 ***
 
-*A Blurry, Indignant Headache: The Second Time I Saw Star Wars (c) by Jack Szwergold*
+<sup>*A Blurry, Indignant Headache: The Second Time I Saw Star Wars (c) by Jack Szwergold*</sup>
 
-*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+<sup>*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>

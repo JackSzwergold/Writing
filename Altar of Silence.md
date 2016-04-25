@@ -25,6 +25,6 @@ When September rolled around and high school started up again, I saw Jeff around
 
 ***
 
-*Altar of Silence: Jim Morrison, Jeff and the Runaway (c) by Jack Szwergold*
+<sup>*Altar of Silence: Jim Morrison, Jeff and the Runaway (c) by Jack Szwergold*</sup>
 
-*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+<sup>*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>

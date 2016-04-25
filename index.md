@@ -92,6 +92,6 @@ The time in the early 1990s when my sister threw out a cat.
 
 ***
 
-*Writing (c) by Jack Szwergold*
+<sup>*Writing (c) by Jack Szwergold*</sup>
 
-*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+<sup>*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>
