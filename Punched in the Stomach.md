@@ -23,6 +23,4 @@ Yeah, this time I technically started the fight. But this teacher, and others, t
 
 ***
 
-<sup>*Punched in the Stomach: Getting Back at a Second Grade Bully (c) by Jack Szwergold*</sup>
-
-<sup>*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>
+<sup>*Punched in the Stomach: Getting Back at a Second Grade Bully (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>

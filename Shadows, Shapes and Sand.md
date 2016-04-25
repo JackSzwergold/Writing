@@ -27,6 +27,4 @@ As we walked along the boardwalk I looked down between the wooden slats to try a
 
 ***
 
-<sup>*Shadows, Shapes and Sand: Jumping Off of the Boardwalk into the Sand (c) by Jack Szwergold*</sup>
-
-<sup>*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>
+<sup>*Shadows, Shapes and Sand: Jumping Off of the Boardwalk into the Sand (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>

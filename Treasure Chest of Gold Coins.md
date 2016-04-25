@@ -19,6 +19,4 @@ The teacher took notes on our pronunciation and then let us go back to our norma
 
 ***
 
-<sup>*Treasure Chest of Gold Coins: My Accent and the Speech Class (c) by Jack Szwergold*</sup>
-
-<sup>*This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>
+<sup>*Treasure Chest of Gold Coins: My Accent and the Speech Class (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>
