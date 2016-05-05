@@ -1,5 +1,4 @@
-# Kid Stuff to Kill Time
-## Trump Village Car Break-In
+## Kid Stuff to Kill Time: Trump Village Car Break-In
 
 By Jack Szwergold, May 19, 2015
 

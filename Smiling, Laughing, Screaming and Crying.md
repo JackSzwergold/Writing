@@ -1,5 +1,4 @@
-# Smiling, Laughing, Screaming and Crying
-## Abusive Second Grade Teacher
+## Smiling, Laughing, Screaming and Crying: Abusive Second Grade Teacher
 
 By Jack Szwergold, May 20, 2015
 

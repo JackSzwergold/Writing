@@ -1,5 +1,4 @@
-# Keeping Warm in the Snow
-## The Second Time I Saw *The Empire Strikes Back*
+## Keeping Warm in the Snow: The Second Time I Saw *The Empire Strikes Back*
 
 By Jack Szwergold, May 26, 2015
 

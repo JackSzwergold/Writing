@@ -1,4 +1,4 @@
-# Trying to Cash in Nazi Stamps for a Millennium Falcon
+## Trying to Cash in Nazi Stamps for a Millennium Falcon: The Time I Decided to Sell My Brother’s Nazi Stamp Collection to Get a Toy
 
 By Jack Szwergold, August 24, 2015
 

@@ -1,5 +1,4 @@
-# Why Do You Listen to That Junk?
-## Introduction to the B-52s
+## Why Do You Listen to That Junk?: My Introduction to the B-52s
 
 By Jack Szwergold, May 21, 2015
 

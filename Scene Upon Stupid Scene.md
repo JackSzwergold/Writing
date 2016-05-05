@@ -1,5 +1,4 @@
-# Scene Upon Stupid Scene
-## Not Seeing *Star Wars* for the Third Time
+## Scene Upon Stupid Scene: Not Seeing *Star Wars* for the Third Time
 
 By Jack Szwergold, May 24, 2015
 

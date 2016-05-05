@@ -1,5 +1,4 @@
-# Punched in the Stomach
-## Getting Back at a Second Grade Bully
+## Punched in the Stomach: Getting Back at a Second Grade Bully
 
 By Jack Szwergold, April 19, 2016
 

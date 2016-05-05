@@ -1,5 +1,4 @@
-# Altar of Silence
-## Jim Morrison, Jeff and the Runaway
+## Altar of Silence: Jim Morrison, Jeff and the Runaway
 
 By Jack Szwergold, May 27, 2015
 

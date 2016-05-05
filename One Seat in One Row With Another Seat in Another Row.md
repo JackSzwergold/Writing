@@ -1,5 +1,4 @@
-# One Seat in One Row With Another Seat in Another Row
-## Seeing *The Empire Strikes Back* for the First Time
+## One Seat in One Row With Another Seat in Another Row: Seeing *The Empire Strikes Back* for the First Time
 
 By Jack Szwergold, May 25, 2015
 

@@ -1,5 +1,4 @@
-# Shadows, Shapes and Sand
-## Jumping Off of the Boardwalk into the Sand
+## Shadows, Shapes and Sand: Jumping Off of the Boardwalk into the Sand
 
 By Jack Szwergold, May 21, 2015
 

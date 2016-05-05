@@ -1,5 +1,4 @@
-# One Day There, One Day Gone
-## My Sister Threw Out a Cat
+## One Day There, One Day Gone: The Time My Sister Threw Out a Cat
 
 By Jack Szwergold, May 21, 2015
 

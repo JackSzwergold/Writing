@@ -1,5 +1,4 @@
-# What Do You Think of This One?
-## Seeing *Star Wars* for the First Time
+## What Do You Think of This One?: Seeing *Star Wars* for the First Time
 
 By Jack Szwergold, May 22, 2015
 

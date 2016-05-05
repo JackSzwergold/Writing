@@ -1,5 +1,4 @@
-# Needed Some Closure
-## The Second Time I Saw *Return of the Jedi*
+## Needed Some Closure: The Second Time I Saw *Return of the Jedi*
 
 By Jack Szwergold, June 17, 2015
 

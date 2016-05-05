@@ -1,5 +1,4 @@
-# Seeing *Fiddler on the Roof* on King’s Highway
-## The Time My Parents and I Went Out to See the Film
+## Seeing *Fiddler on the Roof* on King’s Highway: The Time My Parents and I Went Out to See the Film
 
 By Jack Szwergold, April 19, 2016
 
