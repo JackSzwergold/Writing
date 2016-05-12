@@ -1,5 +1,7 @@
 # Writing
 
+Pretty much everything in there at this point relates to my experiences growing up in Brooklyn. But I’m not calling it a “memoir” just yet because that word is a tad pompous and pretentious.
+
 ***
 
 ## 1970s
