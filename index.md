@@ -82,8 +82,8 @@ How I learned about the *B-52s* when I was trying to score some *Rush* tickets i
 #### [Do Me a Favor and Buy Me Some Milk](Do%20Me%20a%20Favor%20and%20Buy%20Me%20Some%20Milk)
 The time in 1984 I went to a scalper to score some tickets for a *Rush* show at the Meadowlands.
 
-#### [Mr. Glass Likes Keith Moon and The Who](Mr.%20Glass%20Likes%20Keith%20Moon%20and%20The%20Who)
-That time in high school in 1985 when I went record shopping with a pal at *Titus Oaks Records* and ran into my high school computer class teacher.
+#### [My Teacher Likes Keith Moon and *The Who*](My%20Teacher%20Likes%20Keith%20Moon%20and%20The%20Who)
+That time in high school in 1985 when I went record shopping with a pal at *Titus Oaks Records* and ran into my high school computer teacher record shopping like the rest of us.
 
 #### [Sipping Long Island Iced Tea in Front of a Brick Wall](Sipping%20Long%20Island%20Iced%20Tea%20in%20Front%20of%20a%20Brick%20Wall)
 The time I went on an awkward date to a comedy club in 1989.
