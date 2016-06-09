@@ -14,4 +14,4 @@ I hung up the phone, made a mental note to pick up a *B-52s* album the next time
 
 ***
 
-<sup>*Why Do You Listen to That Junk?: Introduction to the B-52s (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>
+*Why Do You Listen to That Junk?: Introduction to the B-52s (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

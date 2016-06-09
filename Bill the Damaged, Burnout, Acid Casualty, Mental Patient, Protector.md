@@ -24,4 +24,4 @@ Bill hung around the block for a few weeks and then—without any warning or rea
 
 ***
 
-<sup>*Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>
+*Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

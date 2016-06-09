@@ -28,4 +28,4 @@ Of all of the weird things about that day, one thing has always struck me as bei
 
 ***
 
-<sup>*Seeing Fiddler on the Roof on King’s Highway: The Time My Parents and I Went Out to See the Film (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*</sup>
+*Seeing Fiddler on the Roof on King’s Highway: The Time My Parents and I Went Out to See the Film (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
