@@ -28,4 +28,4 @@ It was a nice, warm evening so I decided to walk along the boardwalk back to Oce
 
 ***
 
-*Eating Spaghetti for Dinner with Health Nuts: The Young Boyfriend of the Old Hollywood Actress (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Eating Spaghetti for Dinner with Health Nuts: The Young Boyfriend of the Old Hollywood Actress (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

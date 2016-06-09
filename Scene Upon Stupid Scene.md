@@ -26,4 +26,4 @@ With that they said their goodbyes to my parents and left. I finished eating and
 
 ***
 
-*Scene Upon Stupid Scene: Not Seeing Star Wars for the Third Time (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Scene Upon Stupid Scene: Not Seeing Star Wars for the Third Time (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

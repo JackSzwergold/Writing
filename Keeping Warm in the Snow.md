@@ -20,4 +20,4 @@ When the B68 arrived at the corner of Brighton Beach Avenue and Coney Island Ave
 
 ***
 
-*Keeping Warm in the Snow: The Second Time I Saw Empire Strikes Back (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Keeping Warm in the Snow: The Second Time I Saw Empire Strikes Back (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

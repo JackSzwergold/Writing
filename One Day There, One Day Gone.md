@@ -24,4 +24,4 @@ Pictures still existed. But the specifics of what happened to Amanda were never 
 
 ***
 
-*One Day There, One Day Gone: My Sister Threw Out a Cat (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*One Day There, One Day Gone: My Sister Threw Out a Cat (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
