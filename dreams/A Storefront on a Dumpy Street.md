@@ -18,7 +18,7 @@ She’s cute, but a bit bedraggled. Like she’s been on a few all night benders
 
 She keeps talking about how great it is until I feel a bit of warmth and—sudddenly—her leathery crotch feels a bit damp. Not a lot of moisture but just enough for me to push my thumb in a bit more. Her head leans back and she moans a bit the deeper the thumb goes. I really should be into this but honestly I’m not. I am thinking about going down on her, but the fact this is happening in a storefront is just offputting. But honestly, nobody is really watching use in except that Jewfroed red haired woman outside.
 
-I decide to get closer to her on the floor, and lift one of her legs onto my right shoulder. I feel the stubble rub against my arm, see her stomach move and twitch a bit and then I wake up.
+I decide to get closer to her on the floor, and lift one of her legs onto my right shoulder. I feel the stubble rub against my arm, see her stomach move and twitch a bit. Then I wake up.
 
 ***
 
