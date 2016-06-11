@@ -10,7 +10,7 @@ I keep on looking and I notice some items on the floor that should be elsewhere 
 
 I then run into Aimee Mann walking into the Home Depot and we both vaguely recognize each other from mutual friends or something. We start talking about someone else named “Amy” who we helped get out of a bad situation and how—despite it all—she’s now in worse shape than she was before. We both hem and haw for a while and then she takes off.
 
-After she leaves I realize that I didn’t know Aimee’s name at all, but rememembered ***’Til Tuesday*** and their song “Voices Carry” and I kept on thinking her name is “Amy” when it is actually “Aimee.” I even have some memories of her brief role in ***The Big Lebowski*** but it still doesn’t help.
+After she leaves I realize that I didn’t know Aimee’s name at all, but rememembered *’Til Tuesday* and their song “Voices Carry” and I kept on thinking her name is “Amy” when it is actually “Aimee.” I even have some memories of her brief role in *The Big Lebowski* but it still doesn’t help.
 
 I’m stuck on that until I wake up and realize… Oh! She’s not an “Amy” but she is one of those people whop spell their name “Aimee!”
 
