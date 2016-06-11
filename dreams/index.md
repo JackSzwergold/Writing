@@ -16,6 +16,9 @@ I met a downstairs neighbor outside the building we live in. Suddenly we are in 
 #### [May 25, 2015: The Scale of the Street Was Humungous](The%20Scale%20of%20the%20Street%20Was%20Humungous)
 I was somehow on a street that looked like Hudson Street near Charlton—near where I used to work—but something was off about it. The scale of the street was humungous.
 
+#### [May 26, 2015: Michael Jackson Buys the 2nd Floor of My Building](Michael%20Jackson%20Buys%20the%202nd%20Floor%20of%20My%20Building)
+Apparently the 2nd floor of the 3 story building I live in was purchased my Michael Jackson as a “pied-à-terre” or something like that. Never mind he’s dead; nobody was acknowledging that well known fact.
+
 #### [May 28, 2015: Pizza, a Huge Loft and a Cassette Tape](Pizza,%20a%20Huge%20Loft%20and%20a%20Cassette%20Tape)
 I’m walking through some weird arts district. There is this decent pizza place I heard about nearby, but to get to it you have to stoop down through somw weird entry way just below street level.
 
