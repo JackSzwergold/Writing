@@ -46,6 +46,9 @@ I get up and start walking down a fairly nice—yet dumpy—street. There is som
 #### [March 3, 2016: Some Party in an Apartment Somewhere](Some%20Party%20in%20an%20Apartment%20Somewhere)
 I’m at some party in an apartment somewhere. Sitting on a couch. It’s not that crowded a party but it’s not small either. I’m sitting next to this woman I recognize who is wearing a white dress.
 
+#### [June 6, 2016: An Odd Penny on a Subway Car](An%20Odd%20Penny%20on%20a%20Subway%20Car)
+I am sitting on a subway train and see what looks like a penny on the floor. I lift myself out of the seat, lean over and pick it up. But as I look closer at the coin, I notice that it’s not really a penny but rather a modified penny.
+
 ***
 
 *Dreams (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
