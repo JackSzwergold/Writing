@@ -4,9 +4,11 @@ This is where I share and post notes on dreams I’ve had. Most of the time my d
 
 ***
 
+#### [Some Place in Murray Hill or Kips Bay](Some%20Place%20in%20Murray%20Hill%20or%20Kips%20Bay)
+I’m somehow in some apartment. We’re in the present day, but the apartment looks like it was decorated in the 1970s or so.
+
 #### [Lucy Ansell is the Name of a Receptionist](Lucy%20Ansell%20is%20the%20Name%20of%20a%20Receptionist)
 Lucy Ansell is the name of the receptionist at some cool industrial office. I made out out with her in that cool industrial office after dealing with anti-Semitic restaurant owner dressed in Nazi SS garb.
-
 
 ***
 
