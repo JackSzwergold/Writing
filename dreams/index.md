@@ -4,6 +4,8 @@ This is where I share and post notes on dreams I’ve had. Most of the time my d
 
 ***
 
+## 2015
+
 #### [April 13, 2015: Lucy Ansell is the Name of a Receptionist](Lucy%20Ansell%20is%20the%20Name%20of%20a%20Receptionist)
 Lucy Ansell is the name of the receptionist at some cool industrial office. I made out out with her in that cool industrial office after dealing with anti-Semitic restaurant owner dressed in Nazi SS garb.
 
@@ -36,6 +38,10 @@ The dream was about me getting a new printer. I have no dreams about getting a n
 
 #### [November 18, 2015: A Storefront on a Dumpy Street](A%20Storefront%20on%20a%20Dumpy%20Street)
 I get up and start walking down a fairly nice—yet dumpy—street. There is some rack of women’s clothes in front of it and this big red-haired girl with a Jewfro out in front of the rack just acting silly.
+
+***
+
+## 2016
 
 #### [March 3, 2016: Some Party in an Apartment Somewhere](Some%20Party%20in%20an%20Apartment%20Somewhere)
 I’m at some party in an apartment somewhere. Sitting on a couch. It’s not that crowded a party but it’s not small either. I’m sitting next to this woman I recognize who is wearing a white dress.
