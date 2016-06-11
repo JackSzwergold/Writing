@@ -7,6 +7,9 @@ This is where I share and post notes on dreams I’ve had. Most of the time my d
 #### [April 13, 2015: Lucy Ansell is the Name of a Receptionist](Lucy%20Ansell%20is%20the%20Name%20of%20a%20Receptionist)
 Lucy Ansell is the name of the receptionist at some cool industrial office. I made out out with her in that cool industrial office after dealing with anti-Semitic restaurant owner dressed in Nazi SS garb.
 
+#### [May 21, 2015: Ordering a Nice Sandwich](Ordering%20a%20Nice%20Sandwich)
+I dreamt I was ordering a nice sandwich from a shop, looked around and there was no place to sit.
+
 #### [May 28, 2015: Pizza, a Huge Loft and a Cassette Tape](Pizza,%20a%20Huge%20Loft%20and%20a%20Cassette%20Tape)
 I’m walking through some weird arts district. There is this decent pizza place I heard about nearby, but to get to it you have to stoop down through somw weird entry way just below street level.
 
