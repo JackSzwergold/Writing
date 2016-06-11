@@ -13,6 +13,9 @@ I dreamt I was ordering a nice sandwich from a shop, looked around and there was
 #### [May 24, 2015: Society for the Blind and Indigent](Society%20for%20the%20Blind%20and%20Indigent)
 I met a downstairs neighbor outside the building we live in. Suddenly we are in the middle of a place that looks like Sunset Park and outside a huge place that looks like a mega discount store.
 
+#### [May 25, 2015: The Scale of the Street Was Humungous](The%20Scale%20of%20the%20Street%20Was%20Humungous)
+I was somehow on a street that looked like Hudson Street near Charlton—near where I used to work—but something was off about it. The scale of the street was humungous.
+
 #### [May 28, 2015: Pizza, a Huge Loft and a Cassette Tape](Pizza,%20a%20Huge%20Loft%20and%20a%20Cassette%20Tape)
 I’m walking through some weird arts district. There is this decent pizza place I heard about nearby, but to get to it you have to stoop down through somw weird entry way just below street level.
 
