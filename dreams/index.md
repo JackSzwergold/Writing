@@ -1,6 +1,6 @@
 # Dreams
 
-This space reserved for the dream related stuff that will be posted here once I get to it.
+This is where I share and post notes on dreams I’ve had. Most of the time my dreams are… Meh. And sometimes my dreams stick with me. Here are notes on those dreams.
 
 ***
 

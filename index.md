@@ -9,7 +9,7 @@ Here are **[some personal memories of mine][1]**; written down for all to read. 
 
 ## [Dreams][2]
 
-This space reserved for the dream related stuff that will be posted here once I get to it.
+This is where I share and **[post notes on dreams I’ve had][2]**. Most of the time my dreams are… Meh. And sometimes my dreams stick with me. Here are **[notes on those dreams][2]**.
 
   [1]: memories/ "Memories"
   [2]: dreams/ "Dreams"
