@@ -7,6 +7,9 @@ This is where I share and post notes on dreams I’ve had. Most of the time my d
 #### [April 13, 2015: Lucy Ansell is the Name of a Receptionist](Lucy%20Ansell%20is%20the%20Name%20of%20a%20Receptionist)
 Lucy Ansell is the name of the receptionist at some cool industrial office. I made out out with her in that cool industrial office after dealing with anti-Semitic restaurant owner dressed in Nazi SS garb.
 
+#### [June 15, 2015: The Asian Guy, the Hispanic Guy and a Toothpaste Tube](The%20Asian%20Guy,%20the%20Hispanic%20Guy%20and%20a%20Toothpaste%20Tube)
+I don’t rememeber much of it but near the end—before I woke up—there are two guys sitting on what looks like a couch in a crammed area. One is Asian, the other is Hispanic. They keep on passing this toothpaste tube between them.
+
 #### [September 26, 2015: Someplace in Murray Hill or Kips Bay](Someplace%20in%20Murray%20Hill%20or%20Kips%20Bay)
 I’m somehow in some apartment. We’re in the present day, but the apartment looks like it was decorated in the 1970s or so.
 
