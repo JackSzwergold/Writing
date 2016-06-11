@@ -10,6 +10,9 @@ Lucy Ansell is the name of the receptionist at some cool industrial office. I ma
 #### [May 21, 2015: Ordering a Nice Sandwich](Ordering%20a%20Nice%20Sandwich)
 I dreamt I was ordering a nice sandwich from a shop, looked around and there was no place to sit.
 
+#### [May 24, 2015: Society for the Blind and Indigent](Society%20for%20the%20Blind%20and%20Indigent)
+I met a downstairs neighbor outside the building we live in. Suddenly we are in the middle of a place that looks like Sunset Park and outside a huge place that looks like a mega discount store.
+
 #### [May 28, 2015: Pizza, a Huge Loft and a Cassette Tape](Pizza,%20a%20Huge%20Loft%20and%20a%20Cassette%20Tape)
 I’m walking through some weird arts district. There is this decent pizza place I heard about nearby, but to get to it you have to stoop down through somw weird entry way just below street level.
 
