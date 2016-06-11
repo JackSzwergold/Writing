@@ -10,6 +10,9 @@ Lucy Ansell is the name of the receptionist at some cool industrial office. I ma
 #### [June 15, 2015: The Asian Guy, the Hispanic Guy and a Toothpaste Tube](The%20Asian%20Guy,%20the%20Hispanic%20Guy%20and%20a%20Toothpaste%20Tube)
 I don’t rememeber much of it but near the end—before I woke up—there are two guys sitting on what looks like a couch in a crammed area. One is Asian, the other is Hispanic. They keep on passing this toothpaste tube between them.
 
+#### [August 8, 2015: Running into Amy at the Home Depot](Running%20into%20Amy%20at%20the%20Home%20Depot)
+I’m at some Home Depot but not a good one. One of those “lightweight” city dweller Home Depots. Some guy who works there asks me a question about what I am looking for, I am describing it and then he instantly writes me up for something.
+
 #### [September 26, 2015: Someplace in Murray Hill or Kips Bay](Someplace%20in%20Murray%20Hill%20or%20Kips%20Bay)
 I’m somehow in some apartment. We’re in the present day, but the apartment looks like it was decorated in the 1970s or so.
 
