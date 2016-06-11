@@ -14,8 +14,7 @@ As I was stooped over, I saw a cute gray and white kitten pop out near the wall.
 
 After a while I left my neighbor behind and walked away with the woman. Suddenly we were both on the stone steps of some huge staircase-like facade like in front of a courthouse but the steps are just high enough to be really awkward to climb down. We eventually climb down all the way and walk down the street to what looks like an odd industrial area like Sunset Park.
 
-We realize we are going the wrong way and then turn around. We end up on a street in Sunset Park that has some weird social club/bar on it; a blue painted facade with neon signage. There is a sign in the top part of the door that rolls down as we look at it that says in embossed blue letters, “Society for the Blind and Indigent.” We both shrug and keep on walking past it since we are clearly not wanted there.
-
+We realize we are going the wrong way and then turn around. We end up on a street in Sunset Park that has some weird social club/bar on it; a blue painted facade with neon signage. There is a sign in the top part of the door—that rolls down as we look at it—that says in big, embossed blue letters, “Society for the Blind and Indigent.” We both shrug and keep on walking past it since we are clearly not wanted there.
 
 ***
 
