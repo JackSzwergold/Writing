@@ -16,4 +16,4 @@ I find another room and in it I sit down and suddenly some red headed woman I us
 
 ***
 
-*Some Party in an Apartment Somewhere (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Some Party in an Apartment Somewhere (c) Copyright 2016 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

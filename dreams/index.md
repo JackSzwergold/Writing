@@ -49,6 +49,9 @@ I’m at some party in an apartment somewhere. Sitting on a couch. It’s not th
 #### [June 6, 2016: An Odd Penny on a Subway Car](An%20Odd%20Penny%20on%20a%20Subway%20Car)
 I am sitting on a subway train and see what looks like a penny on the floor. I lift myself out of the seat, lean over and pick it up. But as I look closer at the coin, I notice that it’s not really a penny but rather a modified penny.
 
+#### [June 7, 2016: A Silver Dollar and a Half Dollar Coin](A%20Silver%20Dollar%20and%20a%20Half%20Dollar%20Coin)
+I dream I have a silver dollar and a half dollar coin. But not any ordinary silver dollar and half dollar coins since these coins are heavy, thick and huge; like as huge as two small dinner plates.
+
 ***
 
 *Dreams (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

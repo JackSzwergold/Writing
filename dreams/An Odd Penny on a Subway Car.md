@@ -4,7 +4,7 @@ By Jack Szwergold, June 6, 2016
 
 #### Notes on a dream I had on June 6, 2016
 
-I don’t remember the complete flow—or overall narrative—of this dreams but it contained imagery surrounding coins.
+I don’t remember the complete flow—or overall narrative—of this dream but it contained imagery surrounding coins.
 
 At one point in this specific dream I am sitting on a subway train and see what looks like a penny on the floor. I lift myself out of the seat, lean over and pick it up. But as I look closer at the coin, I notice that it’s not really a penny but rather a modified penny.
 
@@ -18,4 +18,4 @@ Surrounding that awkward square on the back is a small cluster of clipped out wo
 
 ***
 
-*An Odd Penny on a Subway Car (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*An Odd Penny on a Subway Car (c) Copyright 2016 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
