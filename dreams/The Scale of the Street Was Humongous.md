@@ -1,10 +1,10 @@
-## The Scale of the Street Was Humungous
+## The Scale of the Street Was Humongous
 
 By Jack Szwergold, May 25, 2015
 
 #### Notes on a dream I had on May 25, 2015
 
-I was somehow on a street that looked like Hudson Street near Charlton—near where I used to work—but something was off about it. The scale of the street was humungous. The Pret-A-Manger that used to be on the corner was gutted out, raw and empty. But huge empty space; like an airplane hangar.
+I was somehow on a street that looked like Hudson Street near Charlton—near where I used to work—but something was off about it. The scale of the street was humongous. The Pret-A-Manger that used to be on the corner was gutted out, raw and empty. But huge empty space; like an airplane hangar.
 
 Someone suddenly appeared and stood next to me looking into the place and I said to them, “Pret-A-Manger was a pretty big deal when it first opened.” The person looked at me, shrugged and walked off. I tried to find another place to score a sandwich and I found a place nearby.
 
