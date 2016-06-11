@@ -11,5 +11,9 @@ Here are **[some personal memories of mine][1]**; written down for all to read. 
 
 This is where I share and **[post notes on dreams I’ve had][2]**. Most of the time my dreams are… Meh. And sometimes my dreams stick with me. Here are **[notes on those dreams][2]**.
 
+## [Poems][3]
+I occasionally write **[poetry][3]** of some kind. So **[here is where I will post it][3]**.
+
   [1]: memories/ "Memories"
   [2]: dreams/ "Dreams"
+  [3]: poems/ "Poems"
