@@ -19,7 +19,7 @@ No that one.<br />
 Okay, now cut it in half laterally and put the top half on top of the sandwich.<br />
 The bottom half should be ripped to shreds and given to the pigeons as an offering because they are God’s creatures and better than all of us.<br />
 <br />
-Now warm up a large cup of diet Peach Snapple and pour it into the to go mug I just gave you.<br />
+Now warm up a large cup of diet Peach Snapple and pour it into the “to go” mug I just gave you.<br />
 Have it all delivered to my office in 2 hours on a nice, fancy pillow and we’re all good.
 
 ***
