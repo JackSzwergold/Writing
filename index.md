@@ -2,6 +2,7 @@
 
 This is where I post and share writing related stuff. Basically non-technical, creative fiction and non-fiction stuff. A breakdown of what’s what is below.
 
+***
 
 ## [Memories][1]
 
