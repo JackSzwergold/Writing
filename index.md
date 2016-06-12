@@ -15,6 +15,8 @@ This is where I share and **[post notes on dreams I’ve had][2]**. Most of the 
 ## [Poems][3]
 I occasionally write **[poetry][3]** of some kind. So **[here is where I will post it][3]**.
 
+***
+
 ## [Arcade Game Diary][4]
 This section is a placeholder for memories connected to **[arcade games I liked—and still like—dating from 1977 to 1985][4]**. At this point, it’s here mainly to motivate me to actually sit down and write about them already.
 
