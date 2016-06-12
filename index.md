@@ -17,8 +17,11 @@ I occasionally write **[poetry][3]** of some kind. So **[here is where I will po
 ## [Arcade Game Diary][4]
 This section is a placeholder for memories connected to **[arcade games I liked—and still like—dating from 1977 to 1985][4]**. At this point, it’s here mainly to motivate me to actually sit down and write about them already.
 
+## [Star Wars Toy Diary][5]
+This section is a placeholder for memories connected to **[collecting *Star Wars* action figures][5]** back in the 1970s. At this point, it’s here mainly to motivate me to actually sit down and write about them already.
 
   [1]: memories/ "Memories"
   [2]: dreams/ "Dreams"
   [3]: poems/ "Poems"
   [4]: arcade_game_diary/ "Arcade Game Diary"
+  [5]: star_wars_toy_diary/ "Star Wars Toy Diary"
