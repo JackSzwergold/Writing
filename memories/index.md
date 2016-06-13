@@ -30,6 +30,9 @@ The time in the 1970s I jumped off of the boardwalk and into the sand on a dare 
 #### [What Do You Think of This One?](What%20Do%20You%20Think%20of%20This%20One)
 The first time I saw *Star Wars* with my summer camp at the Loews Astor Plaza in 1977.
 
+#### [Collecting Dud Fireworks to Make M-80s](Collecting%20Dud%20Fireworks%20to%20Make%20M-80s)
+About how neighborhood kids worked together to collect dud fireworks so we could make an M-80.
+
 #### [A Blurry, Indignant Headache](A%20Blurry,%20Indignant%20Headache)
 About the second time second time I saw *Star Wars* in 1977 with my brother.
 
