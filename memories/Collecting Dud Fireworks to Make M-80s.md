@@ -1,4 +1,4 @@
-## Collecting Dud Fireworks and Scraping the Gunpowder out to Make M-80s
+## Collecting Dud Fireworks to Make M-80s
 
 By Jack Szwergold, June 13, 2016
 
