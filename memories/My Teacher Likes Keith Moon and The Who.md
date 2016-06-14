@@ -1,6 +1,6 @@
 ## My Teacher Likes Keith Moon and *The Who*
 
-By Jack Szwergold, May 25, 2015
+By Jack Szwergold, May 25, 2016
 
 Mr. Glass was cool. He was a physics teacher in high school but he also taught classes on computer programming. I had him as a teacher for computer programming and while he himself was cool, the class itself was awkward.
 
@@ -26,4 +26,4 @@ I headed back to my place and looked over the tracks on “Hooligans” or “Th
 
 ***
 
-*My Teacher Likes Keith Moon and The Who (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*My Teacher Likes Keith Moon and The Who (c) Copyright 2016 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
