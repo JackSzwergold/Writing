@@ -1,6 +1,6 @@
 ## Punched in the Stomach: Getting Back at a Second Grade Bully
 
-By Jack Szwergold, April 19, 2016
+By Jack Szwergold
 
 When I was in second grade in the 1970s there was this one big bully that terrorized all of the kids at school. He was bigger than anyone else in second grade and I saw him trying on roller-skates in an enclosed handball court area in the schoolyard near West Brighton Beach Avenue. He was having trouble balancing and his lackeys were around him trying to help him keep his balance. He was clearly struggling and I decided this was my chance to fight back.
 
@@ -22,4 +22,4 @@ Yeah, this time I technically started the fight. But this teacher, and others, t
 
 ***
 
-*Punched in the Stomach: Getting Back at a Second Grade Bully (c) Copyright 2016 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Punched in the Stomach: Getting Back at a Second Grade Bully (c) Copyright 2016 by Jack Szwergold; written April 19, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

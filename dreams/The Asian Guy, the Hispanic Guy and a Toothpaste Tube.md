@@ -1,6 +1,6 @@
 ## The Asian Guy, the Hispanic Guy and a Toothpaste Tube
 
-By Jack Szwergold, June 15, 2015
+By Jack Szwergold
 
 #### Notes on a dream I had on June 15, 2015
 
@@ -16,4 +16,4 @@ I drop the tube between them on the couch and he lets go of my arm while they bo
 
 ***
 
-*The Asian Guy, the Hispanic Guy and a Toothpaste Tube (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*The Asian Guy, the Hispanic Guy and a Toothpaste Tube (c) Copyright 2015 by Jack Szwergold; written June 15, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

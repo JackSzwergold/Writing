@@ -1,6 +1,6 @@
 ## Altar of Silence: Jim Morrison, Jeff and the Runaway
 
-By Jack Szwergold, May 27, 2015
+By Jack Szwergold
 
 Jeff was a classmate of mine in high school in 1982 or 1983. We had an art class and a gym class together. He was pretty cool and lived somewhere in a deeper Brooklyn than me; maybe Bensonhurst? We both wore denim jackets and band buttons. And like all teenagers, we bonded over music.
 
@@ -24,4 +24,4 @@ When September rolled around and high school started up again, I saw Jeff around
 
 ***
 
-*Altar of Silence: Jim Morrison, Jeff and the Runaway (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Altar of Silence: Jim Morrison, Jeff and the Runaway (c) Copyright 2015 by Jack Szwergold; written May 27, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

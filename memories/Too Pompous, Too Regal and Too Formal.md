@@ -1,6 +1,6 @@
 ## Too Pompous, Too Regal and Too Formal: The First Time I Saw *Return of the Jedi*
 
-By Jack Szwergold, June 15, 2015
+By Jack Szwergold
 
 I was in 9th grade in junior high school when *Return of the Jedi* rolled into everyone’s world and nobody was surprised by anything related the *Star Wars* franchise anymore. Some rich kid classmate had already shared his copy of the Marvel comics adaptation of *Return of the Jedi* with everyone a few weeks before. He scored it from his media connected brother—who worked in “the city”—before it officially hit the newsstands. So we all knew a pretty good chunk of the plot already.
 
@@ -34,4 +34,4 @@ We all left the theater and went our separate ways. It was a bright and sunny sp
 
 ***
 
-*Too Pompous, Too Regal and Too Formal: The First Time I Saw Return of the Jedi (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Too Pompous, Too Regal and Too Formal: The First Time I Saw Return of the Jedi (c) Copyright 2015 by Jack Szwergold; written June 15, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

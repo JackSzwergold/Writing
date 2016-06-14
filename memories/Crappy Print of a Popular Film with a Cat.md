@@ -1,6 +1,6 @@
 ## Crappy Print of a Popular Film with a Cat: Seeing *Tron* at the Discount Theater in Midwood
 
-By Jack Szwergold, May 20, 2015
+By Jack Szwergold
 
 I went to see *Tron* at the Midwood Theatre on Avenue J. Forgot who clued me into it showing there; might have been one of the kids from Manhattan Beach who went to my junior high school with. But basically in the 1980s the Midwood Theatre had turned into into a one dollar theater. A discount theater where scratched up, crappy prints of popular films had their last bits of economic viability blood drained out of them before being sent back home to Hollywood. And for $1 I could officially say I saw *Tron*!
 
@@ -20,4 +20,4 @@ When the film ended, we all went home. Seriously it was just a bad experience fo
 
 ***
 
-*Crappy Print of a Popular Film with a Cat: Tron at the Discount Theater in Midwood (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Crappy Print of a Popular Film with a Cat: Tron at the Discount Theater in Midwood (c) Copyright 2015 by Jack Szwergold; written May 20, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

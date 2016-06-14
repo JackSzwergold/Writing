@@ -1,6 +1,6 @@
 ## A Storefront on a Dumpy Street
 
-By Jack Szwergold, November 18, 2015
+By Jack Szwergold
 
 #### Notes on a dream I had on November 18, 2015
 
@@ -22,4 +22,4 @@ I decide to get closer to her on the floor, and lift one of her legs onto my rig
 
 ***
 
-*A Storefront on a Dumpy Street (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*A Storefront on a Dumpy Street (c) Copyright 2015 by Jack Szwergold; written November 18, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -1,6 +1,6 @@
 ## Why Do You Listen to That Junk?: My Introduction to the B-52s
 
-By Jack Szwergold, May 21, 2015
+By Jack Szwergold
 
 The first time I heard about the *B-52s* was when I called up one of the neighborhood tough guys who was friendly to me. By “friendly” I mean he was at least not a bully to me and gave me the time of day. He was cool.
 
@@ -14,4 +14,4 @@ I hung up the phone, made a mental note to pick up a *B-52s* album the next time
 
 ***
 
-*Why Do You Listen to That Junk?: Introduction to the B-52s (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Why Do You Listen to That Junk?: Introduction to the B-52s (c) Copyright 2015 by Jack Szwergold; written May 21, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

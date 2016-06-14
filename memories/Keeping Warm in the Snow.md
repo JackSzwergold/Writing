@@ -1,6 +1,6 @@
 ## Keeping Warm in the Snow: The Second Time I Saw *The Empire Strikes Back*
 
-By Jack Szwergold, May 26, 2015
+By Jack Szwergold
 
 The second time I saw *The Empire Strikes Back* was with my dad when they re-released the film in theaters back in 1981. This was a big deal in those days before cable TV and video rental stores since some people owned VCRs but they were far from commonplace. And even if they were commonplace, our family was pretty poor so we couldn’t afford one. You simply weren’t able to just watch films on demand at all like you can nowadays.
 
@@ -20,4 +20,4 @@ When the B68 arrived at the corner of Brighton Beach Avenue and Coney Island Ave
 
 ***
 
-*Keeping Warm in the Snow: The Second Time I Saw Empire Strikes Back (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Keeping Warm in the Snow: The Second Time I Saw Empire Strikes Back (c) Copyright 2015 by Jack Szwergold; written May 26, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -1,6 +1,6 @@
 ## A Silver Dollar and a Half Dollar Coin
 
-By Jack Szwergold, June 7, 2016
+By Jack Szwergold
 
 #### Notes on a dream I had on June 7, 2016
 
@@ -16,4 +16,4 @@ She passes the coins back to me and they seem heavier and larger than they were 
 
 ***
 
-*A Silver Dollar and a Half Dollar Coin (c) Copyright 2016 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*A Silver Dollar and a Half Dollar Coin (c) Copyright 2016 by Jack Szwergold; June 7, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

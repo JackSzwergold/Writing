@@ -1,6 +1,6 @@
 ## Seeing *Fiddler on the Roof* on King’s Highway: The Time My Parents and I Went Out to See the Film
 
-By Jack Szwergold, April 19, 2016
+By Jack Szwergold
 
 My parents never really went out. The biggest family trips we made were shopping in the neighborhood, shopping outside of the neighborhood, going to the beach to sit around, going to the park to sit around or walking on the boardwalk to—eventually—sit around. That’s about it. But one weekend in the winter of 1979, things were different.
 
@@ -28,4 +28,4 @@ Of all of the weird things about that day, one thing has always struck me as bei
 
 ***
 
-*Seeing Fiddler on the Roof on King’s Highway: The Time My Parents and I Went Out to See the Film (c) Copyright 2016 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Seeing Fiddler on the Roof on King’s Highway: The Time My Parents and I Went Out to See the Film (c) Copyright 2016 by Jack Szwergold; written April 19, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

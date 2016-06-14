@@ -1,6 +1,6 @@
 ## Orange Marmalade Haiku
 
-By Jack Szwergold, Circa Early 1990s
+By Jack Szwergold
 
 ***
 
@@ -10,4 +10,4 @@ over burnt, shitty toast
 
 ***
 
-*Orange Marmalade Haiku (c) by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Orange Marmalade Haiku (c) by Jack Szwergold; written sometime in the early 1990s. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

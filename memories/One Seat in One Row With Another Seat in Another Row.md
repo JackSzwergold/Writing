@@ -1,6 +1,6 @@
 ## One Seat in One Row With Another Seat in Another Row: Seeing *The Empire Strikes Back* for the First Time
 
-By Jack Szwergold, May 25, 2015
+By Jack Szwergold
 
 My brother wanted to take me to see *The Empire Strikes Back* when it came out in 1980. I was excited for the film. So much so I even recorded reviews and commercials on an audio cassette tape from the TV. I also made sure to save money from my allowance to buy stuff at the theater. When I saw *Star Wars* in summer camp in 1977 I didn’t have enough money for a souvenir program or other tchotchkes some folks were selling on a table outside of the theater. Not this time. So the day arrived and we headed out to a movie theater on 86th Street in Manhattan to see *The Empire Strikes Back*.
 
@@ -46,4 +46,4 @@ After the standard greetings and niceties, I went to my room and locked the door
 
 ***
 
-*One Seat in One Row With Another Seat in Another Row: Seeing Empire Strikes Back for the First Time (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*One Seat in One Row With Another Seat in Another Row: Seeing Empire Strikes Back for the First Time (c) Copyright 2015 by Jack Szwergold; written May 25, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

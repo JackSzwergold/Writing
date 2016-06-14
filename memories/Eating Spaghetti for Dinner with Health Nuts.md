@@ -1,6 +1,6 @@
 ## Eating Spaghetti for Dinner with Health Nuts: The Young Boyfriend of the Old Hollywood Actress
 
-By Jack Szwergold, May 29, 2015
+By Jack Szwergold
 
 One day in the mid-1980s after high school let out, I headed to the deeper side of Brighton Beach; away from my family’s home on Ocean Parkway. I was very into playing, copying and trading Atari home computer games back then so I was going over to a friend’s house to hang out and copy some video games before the weekend hit.
 
@@ -28,4 +28,4 @@ It was a nice, warm evening so I decided to walk along the boardwalk back to Oce
 
 ***
 
-*Eating Spaghetti for Dinner with Health Nuts: The Young Boyfriend of the Old Hollywood Actress (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Eating Spaghetti for Dinner with Health Nuts: The Young Boyfriend of the Old Hollywood Actress (c) Copyright 2015 by Jack Szwergold; May 29, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

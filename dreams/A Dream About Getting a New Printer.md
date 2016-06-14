@@ -1,6 +1,6 @@
 ## A Dream About Getting a New Printer
 
-By Jack Szwergold, October 5, 2015
+By Jack Szwergold
 
 #### Notes on a dream I had on October 5, 2015
 
@@ -22,4 +22,4 @@ I look outside and the rain just keeps on coming.
 
 ***
 
-*A Dream About Getting a New Printer (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*A Dream About Getting a New Printer (c) Copyright 2015 by Jack Szwergold; written October 5, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

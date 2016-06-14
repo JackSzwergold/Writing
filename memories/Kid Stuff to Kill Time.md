@@ -1,6 +1,6 @@
 ## Kid Stuff to Kill Time: Trump Village Car Break-In
 
-By Jack Szwergold, May 19, 2015
+By Jack Szwergold
 
 I remember crossing Ocean Parkway and walking down Brighton Beach Avenue towards the West Brighton side—near Trump Village—in the mid-to-late 1970s. It was a bright sunny day. Maybe a Saturday? I was going to the shopping center to check out toys, comics and stuff. Kill time. Kid stuff. Maybe a Saturday around 10:00 AM or 11:00 AM.
 
@@ -16,4 +16,4 @@ A few moments later I would hit West 5th Street, hook a right towards the shoppi
 
 ***
 
-*Kid Stuff to Kill Time: Trump Village Car Break-In (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Kid Stuff to Kill Time: Trump Village Car Break-In (c) Copyright 2015 by Jack Szwergold; written May 19, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -1,6 +1,6 @@
 ## Running into Amy at the Home Depot
 
-By Jack Szwergold, August 8, 2015
+By Jack Szwergold
 
 #### Notes on a dream I had on August 8, 2015
 
@@ -16,4 +16,4 @@ I’m stuck on that until I wake up and realize… Oh! She’s not an “Amy” 
 
 ***
 
-*Running into Amy at the Home Depot (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Running into Amy at the Home Depot (c) Copyright 2015 by Jack Szwergold; written August 8, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

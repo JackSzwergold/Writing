@@ -1,6 +1,6 @@
 ## Shadows, Shapes and Sand: Jumping Off of the Boardwalk into the Sand
 
-By Jack Szwergold, May 21, 2015
+By Jack Szwergold
 
 I was hanging out with some friends on the boardwalk near Ocean Parkway one day in the late 1970s. I remember it being a bit overcast so it could have been the end of summer or fall. It was definitely near the end of the day.
 
@@ -26,4 +26,4 @@ As we walked along the boardwalk I looked down between the wooden slats to try a
 
 ***
 
-*Shadows, Shapes and Sand: Jumping Off of the Boardwalk into the Sand (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Shadows, Shapes and Sand: Jumping Off of the Boardwalk into the Sand (c) Copyright 2015 by Jack Szwergold; written May 21, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

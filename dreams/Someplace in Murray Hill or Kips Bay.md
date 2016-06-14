@@ -1,6 +1,6 @@
 ## Some Place in Murray Hill or Kips Bay
 
-By Jack Szwergold, September 26, 2015
+By Jack Szwergold
 
 #### Notes on a dream I had on September 26, 2015
 
@@ -18,4 +18,4 @@ Then I hear some guys walking towards the elevator from one of the sides of the 
 
 ***
 
-*Some Place in Murray Hill or Kips Bay (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Some Place in Murray Hill or Kips Bay (c) Copyright 2015 by Jack Szwergold; written September 26, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

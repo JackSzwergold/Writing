@@ -1,6 +1,6 @@
 ## Sipping Long Island Iced Tea in Front of a Brick Wall: Awkward Comedy Cellar Date in 1989
 
-By Jack Szwergold, May 28, 2015
+By Jack Szwergold
 
 Back when I was in college in 1989 I took a date out to a show at *The Comedy Cellar* on Macdougal Street.
 
@@ -14,4 +14,4 @@ The place had a two drink minimum, so I ordered a Long Island Iced Tea and let h
 
 ***
 
-*Sipping Long Island Iced Tea in Front of a Brick Wall: Awkward Comedy Cellar Date in 1989 (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Sipping Long Island Iced Tea in Front of a Brick Wall: Awkward Comedy Cellar Date in 1989 (c) Copyright 2015 by Jack Szwergold; May 28, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

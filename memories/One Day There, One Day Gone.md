@@ -1,6 +1,6 @@
 ## One Day There, One Day Gone: The Time My Sister Threw Out a Cat
 
-By Jack Szwergold, May 21, 2015
+By Jack Szwergold
 
 My sister was divorced, had two kids and had a cat named Amanda. Amanda was a fairly feral tabby; always thin, wiry, prickly to deal with and never liked to sit in anyones lap. She had another cat named Bonnie who was more domesticated, friendly and better housebroken. But Amanda peed on everything and scratched everything since being a kitten and she was 5-6 years old by this point.
 
@@ -24,4 +24,4 @@ Pictures still existed. But the specifics of what happened to Amanda were never 
 
 ***
 
-*One Day There, One Day Gone: My Sister Threw Out a Cat (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*One Day There, One Day Gone: My Sister Threw Out a Cat (c) Copyright 2015 by Jack Szwergold; written May 21, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

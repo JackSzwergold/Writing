@@ -1,6 +1,6 @@
 ## Spoiled Kid Spoilered: Rich Kid Shares the Marvel Comics Adaptation of *Return of the Jedi*
 
-By Jack Szwergold, May 30, 2015
+By Jack Szwergold
 
 David was this rich kid who lived in Manhattan Beach. I knew him in junior high school. Maybe “rich” isn’t the best word to describe the kid. Maybe “entitled” is a better description of who he was and possibly still is. But compared to the kids from Brighton Beach, kids in Manhattan Beach were fairly rich and entitled across the board.
 
@@ -34,4 +34,4 @@ And if I could walk to a crappy corner newsstand and learn what the plot of an u
 
 ***
 
-*Spoiled Kid Spoilered: Rich Kid Shares the Marvel Comics Adaptation of Return of the Jedi (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Spoiled Kid Spoilered: Rich Kid Shares the Marvel Comics Adaptation of Return of the Jedi (c) Copyright 2015 by Jack Szwergold; written May 30, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -1,6 +1,6 @@
 ## A Blurry, Indignant Headache: The Second Time I Saw *Star Wars*
 
-By Jack Szwergold, May 23, 2015
+By Jack Szwergold
 
 I had already seen *Star Wars* in summer camp a few weeks before when my brother—who is 20 years older than me—impulsively came by our home in Brighton Beach one weekend to take me and “a friend” to see *Star Wars*.
 
@@ -34,4 +34,4 @@ Although the sun was setting and it would be dark in a half hour or so, playing 
 
 ***
 
-*A Blurry, Indignant Headache: The Second Time I Saw Star Wars (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*A Blurry, Indignant Headache: The Second Time I Saw Star Wars (c) Copyright 2015 by Jack Szwergold; written May 23, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

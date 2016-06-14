@@ -1,6 +1,6 @@
 ## Walking Home Alone From Elementary School: The Time I Decided to Walk Home By Myself from School
 
-By Jack Szwergold, August 27, 2015
+By Jack Szwergold
 
 I went to P.S. 100 up until 2nd grade. P.S. 100 was an elementary school located in the middle of Trump Village near Brighton Beach Avenue on the other side of Ocean Parkway. I technically wasn’t zoned for P.S. 100, but it was supposedly a better school than the one I was officially zoned for: P.S. 253. So my parents managed to somehow get me onto the P.S. 100 roster. Which was good… I guess?
 
@@ -26,4 +26,4 @@ She was worried a bit but then my father came home all frantic talking to her in
 
 ***
 
-*Walking Home Alone From Elementary School (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Walking Home Alone From Elementary School (c) Copyright 2015 by Jack Szwergold; written August 27, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

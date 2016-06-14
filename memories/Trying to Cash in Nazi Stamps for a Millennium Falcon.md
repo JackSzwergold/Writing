@@ -1,6 +1,6 @@
 ## Trying to Cash in Nazi Stamps for a Millennium Falcon: The Time I Decided to Sell My Brother’s Nazi Stamp Collection to Get a Toy
 
-By Jack Szwergold, August 24, 2015
+By Jack Szwergold
 
 It was the fall of 1980, *The Empire Strikes Back* had already came out and while I was getting tired of my *Star Wars* action figures, I really, really, really wanted a Millennium Falcon spaceship playset. It was huge, cool and could fit the 3.75” action figures without issue. But at $29.99 it was relatively expensive for an 12 year old kid with a meager $2 a week allowance.
 
@@ -26,4 +26,4 @@ When me and my dad got back home, I went to my room and the books of Nazi stamps
 
 ***
 
-*Trying to Cash in Nazi Stamps for a Millennium Falcon (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Trying to Cash in Nazi Stamps for a Millennium Falcon (c) Copyright 2015 by Jack Szwergold; written August 24, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

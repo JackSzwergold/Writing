@@ -1,6 +1,6 @@
 ## Do Me a Favor and Buy Me Some Milk: Visiting the Scalper
 
-By Jack Szwergold, May 22, 2015
+By Jack Szwergold
 
 I got the scalper’s number from a neighborhood friend who worked for him. I wanted some tickets for *Rush*’s 1984 “Grace Under Pressure” tour and this scalper was the guy who could help.
 
@@ -52,4 +52,4 @@ Neither one of them looked anything like any of the other women in the pictures 
 
 ***
 
-*Do Me a Favor and Buy Me Some Milk: Visiting the Scalper (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Do Me a Favor and Buy Me Some Milk: Visiting the Scalper (c) Copyright 2015 by Jack Szwergold; written May 22, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

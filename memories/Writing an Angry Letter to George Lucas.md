@@ -1,6 +1,6 @@
 ## Writing an Angry Letter to George Lucas:  Not Seeing *Return of the Jedi* for a Third Time
 
-By Jack Szwergold, June 18, 2015
+By Jack Szwergold
 
 I had a chance to see *Return of the Jedi* with my brother but didn’t take it. Why? Easy. I was tired of of my brother’s psychological abuse and bullshit.
 
@@ -36,4 +36,4 @@ As they talked on the phone, I went back to my room and noticed the sunset. So I
 
 ***
 
-*Writing an Angry Letter to George Lucas: Not Seeing Return of the Jedi for a Third Time (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Writing an Angry Letter to George Lucas: Not Seeing Return of the Jedi for a Third Time (c) Copyright 2015 by Jack Szwergold; written June 18, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

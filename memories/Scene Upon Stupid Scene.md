@@ -1,6 +1,6 @@
 ## Scene Upon Stupid Scene: Not Seeing *Star Wars* for the Third Time
 
-By Jack Szwergold, May 24, 2015
+By Jack Szwergold
 
 The third time I was apparently going to see *Star Wars* was with my sister her husband. It was the summer of 1977 and they came by my parents place in Brighton Beach and her husband just impulsively said, “You want to go see *Star Wars*?” I said immediately, “Yeah, but I saw it already in camp and with Ben.” This time I made sure they at least knew I saw the film so I didn’t end up in the same mess as the last time with my brother. He said, “So what? We’ll go see it again.” Which seemed friendly and honest enough of a response, so why not? So we headed to the subway at Ocean Parkway, hopped on a train and about an hour later we got off at Bryant Park on 42nd Street near Times Square.
 
@@ -26,4 +26,4 @@ With that they said their goodbyes to my parents and left. I finished eating and
 
 ***
 
-*Scene Upon Stupid Scene: Not Seeing Star Wars for the Third Time (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Scene Upon Stupid Scene: Not Seeing Star Wars for the Third Time (c) Copyright 2015 by Jack Szwergold; written May 24, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

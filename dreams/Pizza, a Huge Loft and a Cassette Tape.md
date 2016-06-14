@@ -1,6 +1,6 @@
 ## Pizza, a Huge Artist’s Loft and a Cassette Tape
 
-By Jack Szwergold, May 28, 2015
+By Jack Szwergold
 
 #### Notes on a dream I had on May 28, 2015
 
@@ -18,4 +18,4 @@ As I gaze in wonder at the tape, someone who looks vaguely familiar appears. She
 
 ***
 
-*Pizza, a Huge Artist’s Loft and a Cassette Tape (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Pizza, a Huge Artist’s Loft and a Cassette Tape (c) Copyright 2015 by Jack Szwergold; written May 28, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

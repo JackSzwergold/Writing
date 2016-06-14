@@ -1,6 +1,6 @@
 ## Needed Some Closure: The Second Time I Saw *Return of the Jedi*
 
-By Jack Szwergold, June 17, 2015
+By Jack Szwergold
 
 Back in the day you had to drag your ass to an actual theater to see a movie again. In those days before VCRs and cable TV were commonplace there simply wasn’t any other choice for most people if you enjoyed a film and wanted to take in the experience again.
 
@@ -38,4 +38,4 @@ As the bus got near my stop I stood up, rang the bell, said goodbye and hopped o
 
 ***
 
-*Needed Some Closure: The Second Time I Saw Return of the Jedi (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Needed Some Closure: The Second Time I Saw Return of the Jedi (c) Copyright 2015 by Jack Szwergold; written June 17, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -1,6 +1,6 @@
 ## Treasure Chest of Gold Coins: My Accent and the Speech Class
 
-By Jack Szwergold, May 20, 2015
+By Jack Szwergold
 
 Kids in P.S. 100 thought I was from Texas because of my accent even though I was born in Brooklyn.
 
@@ -18,4 +18,4 @@ The teacher took notes on our pronunciation and then let us go back to our norma
 
 ***
 
-*Treasure Chest of Gold Coins: My Accent and the Speech Class (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Treasure Chest of Gold Coins: My Accent and the Speech Class (c) Copyright 2015 by Jack Szwergold; written May 20, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

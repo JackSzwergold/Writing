@@ -1,6 +1,6 @@
 ## Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector: About a Neighborhood Burnout Who Protected Children
 
-By Jack Szwergold, November 4, 2015
+By Jack Szwergold
 
 I have no idea where Bill came from, but one spring in the 1970s he just showed up and hung out on our Ocean Parkway block seemingly every day. He was this white guy who wore a denim jacket with a red haired, frizzy Jewfro and he would just stand out there with a thousand yard stare and a frozen smile on his face. What was he smiling at or about? Who knew! He just stood, smiled and started vacantly just like a real life caricature of hippie burnout you would see in an underground comic book at a head shop or hippie store.
 
@@ -24,4 +24,4 @@ Bill hung around the block for a few weeks and then—without any warning or rea
 
 ***
 
-*Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector (c) Copyright 2015 by Jack Szwergold. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector (c) Copyright 2015 by Jack Szwergold; written November 4, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
