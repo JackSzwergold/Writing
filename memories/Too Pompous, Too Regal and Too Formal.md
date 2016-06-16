@@ -1,4 +1,5 @@
-## Too Pompous, Too Regal and Too Formal: The First Time I Saw *Return of the Jedi*
+## Too Pompous, Too Regal and Too Formal
+### The First Time I Saw *Return of the Jedi*
 
 By Jack Szwergold
 

@@ -1,4 +1,5 @@
-## Treasure Chest of Gold Coins: My Accent and the Speech Class
+## Treasure Chest of Gold Coins
+### My Accent and the Speech Class
 
 By Jack Szwergold
 

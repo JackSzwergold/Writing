@@ -1,4 +1,5 @@
-## Walking Home Alone From Elementary School: The Time I Decided to Walk Home By Myself from School
+## Walking Home Alone From Elementary School
+### The Time I Decided to Walk Home By Myself from School
 
 By Jack Szwergold
 

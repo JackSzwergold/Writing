@@ -1,4 +1,5 @@
-## Do Me a Favor and Buy Me Some Milk: Visiting the Scalper
+## Do Me a Favor and Buy Me Some Milk
+### Visiting the Scalper
 
 By Jack Szwergold
 

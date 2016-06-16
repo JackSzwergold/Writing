@@ -1,4 +1,5 @@
-## Writing an Angry Letter to George Lucas:  Not Seeing *Return of the Jedi* for a Third Time
+## Writing an Angry Letter to George Lucas
+### Not Seeing *Return of the Jedi* for a Third Time
 
 By Jack Szwergold
 

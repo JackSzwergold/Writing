@@ -1,4 +1,5 @@
-## Spoiled Kid Spoilered: Rich Kid Shares the Marvel Comics Adaptation of *Return of the Jedi*
+## Spoiled Kid Spoilered
+### Rich Kid Shares the Marvel Comics Adaptation of *Return of the Jedi*
 
 By Jack Szwergold
 

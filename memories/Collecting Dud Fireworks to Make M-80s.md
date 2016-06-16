@@ -1,4 +1,5 @@
 ## Collecting Dud Fireworks to Make M-80s
+### Neighborhood Kids worked Together to Make an M-80
 
 By Jack Szwergold
 

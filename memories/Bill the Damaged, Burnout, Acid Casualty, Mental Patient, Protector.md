@@ -1,4 +1,5 @@
-## Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector: About a Neighborhood Burnout Who Protected Children
+## Bill the Damaged, Burnout, Acid Casualty, Mental Patient, Protector
+### About a Neighborhood Burnout Who Protected Children
 
 By Jack Szwergold
 

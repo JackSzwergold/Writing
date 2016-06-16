@@ -1,4 +1,5 @@
-## Eating Spaghetti for Dinner with Health Nuts: The Young Boyfriend of the Old Hollywood Actress
+## Eating Spaghetti for Dinner with Health Nuts
+### The Young Boyfriend of the Old Hollywood Actress
 
 By Jack Szwergold
 

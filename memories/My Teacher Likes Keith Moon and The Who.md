@@ -1,4 +1,6 @@
 ## My Teacher Likes Keith Moon and *The Who*
+### That Time in High School When I Went Record Shopping and Ran Into My High School Computer Teacher 
+
 
 By Jack Szwergold
 

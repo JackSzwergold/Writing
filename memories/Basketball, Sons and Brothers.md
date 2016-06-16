@@ -1,4 +1,5 @@
-## Basketball, Sons and Brothers: Junior Breaks the Basketball Hoops
+## Basketball, Sons and Brothers
+### Junior Breaks the Basketball Hoops
 
 By Jack Szwergold
 

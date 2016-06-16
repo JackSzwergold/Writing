@@ -1,4 +1,5 @@
-## Sipping Long Island Iced Tea in Front of a Brick Wall: Awkward Comedy Cellar Date in 1989
+## Sipping Long Island Iced Tea in Front of a Brick Wall
+### Awkward Comedy Cellar Date in 1989
 
 By Jack Szwergold
 
