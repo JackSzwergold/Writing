@@ -17,7 +17,7 @@ So I called up my dad from a nearby payphone and asked him to take the stamp col
 
 “What?” My dad said. “Why would you do that?” And I asked again if he could bring them. And he said, “Okay, okay… I will be there…” and he hung up the phone.
 
-As we all waited for my dad to show up, I decided to kill some time by going into the stamp and coin store and  asking the guy behind the counter how much would he pay for Nazi stamps. Immediately, the guy’s face turned red and he shouted, “Go away! Get out of here before I call the cops!!!” So after being chewed out by the guy in the store, we left the store and waited for my dad out on the street.
+As we all waited for my dad to show up, I decided to kill some time by going into the stamp and coin store and  asking the guy behind the counter how much would he pay for Nazi stamps. Immediately, the guy’s face turned red and he shouted, “Go away! Get out of here before I call the cops!!!” So after being chewed out by the guy, we left the store and waited for my dad out on the street.
 
 A few minutes later my dad showed up, “So do you have the stamps?” I asked him. And he said, “No… No… Don’t be silly. All these years, nobody came up with the idea to sell them. Why? Come home. Come.” He wasn’t angry about the situation; in fact he was smiling a bit about it. But it was clear my idea to sell the stamps wasn’t happening.
 
