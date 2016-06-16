@@ -18,4 +18,4 @@ Surrounding that awkward square on the back is a small cluster of clipped out wo
 
 ***
 
-*An Odd Penny on a Subway Car (c) Copyright 2016 by Jack Szwergold; written June 6, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*An Odd Penny on a Subway Car (c) Copyright by Jack Szwergold; written June 6, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

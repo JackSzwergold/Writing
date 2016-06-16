@@ -52,4 +52,4 @@ Neither one of them looked anything like any of the other women in the pictures 
 
 ***
 
-*Do Me a Favor and Buy Me Some Milk: Visiting the Scalper (c) Copyright 2015 by Jack Szwergold; written May 22, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Do Me a Favor and Buy Me Some Milk: Visiting the Scalper (c) Copyright by Jack Szwergold; written May 22, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

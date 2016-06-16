@@ -46,4 +46,4 @@ The gum was horrible, but the pictures and stickers brought back memories.
 
 ***
 
-*What Do You Think of This One?: Seeing Star Wars for the First Time (c) Copyright 2015 by Jack Szwergold; written May 22, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*What Do You Think of This One?: Seeing Star Wars for the First Time (c) Copyright by Jack Szwergold; written May 22, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

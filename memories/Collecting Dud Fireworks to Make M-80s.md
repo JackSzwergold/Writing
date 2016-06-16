@@ -50,4 +50,4 @@ Of all the fireworks I saw up until then that M-80 block buster Howie made was t
 
 ***
 
-*Collecting Dud Fireworks and Scraping the Gunpowder out to Make M-80s (c) Copyright 2016 by Jack Szwergold; written June 13, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Collecting Dud Fireworks and Scraping the Gunpowder out to Make M-80s (c) Copyright by Jack Szwergold; written June 13, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

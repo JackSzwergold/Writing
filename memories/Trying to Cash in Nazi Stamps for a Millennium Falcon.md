@@ -26,4 +26,4 @@ When me and my dad got back home, I went to my room and the books of Nazi stamps
 
 ***
 
-*Trying to Cash in Nazi Stamps for a Millennium Falcon (c) Copyright 2015 by Jack Szwergold; written August 24, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Trying to Cash in Nazi Stamps for a Millennium Falcon (c) Copyright by Jack Szwergold; written August 24, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

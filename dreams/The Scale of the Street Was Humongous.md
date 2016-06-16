@@ -16,4 +16,4 @@ The door was made up of jet airplane wings hung vertically. It stopped at lots o
 
 ***
 
-*The Scale of the Street Was Humungous (c) Copyright 2015 by Jack Szwergold; written May 25, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*The Scale of the Street Was Humungous (c) Copyright by Jack Szwergold; written May 25, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

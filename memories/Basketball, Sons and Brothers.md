@@ -30,4 +30,4 @@ So the basketball joined the soccer ball in the closet and that was the end of t
 
 ***
 
-*Basketball, Sons and Brothers: Junior Breaks the Basketball Hoops (c) Copyright 2015 by Jack Szwergold; written May 20, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Basketball, Sons and Brothers: Junior Breaks the Basketball Hoops (c) Copyright by Jack Szwergold; written May 20, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

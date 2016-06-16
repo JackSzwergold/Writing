@@ -18,4 +18,4 @@ We realize we are going the wrong way and then turn around. We end up on a stree
 
 ***
 
-*Society for the Blind and Indigent (c) Copyright 2015 by Jack Szwergold; written May 24, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Society for the Blind and Indigent (c) Copyright by Jack Szwergold; written May 24, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
