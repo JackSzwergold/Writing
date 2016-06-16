@@ -27,4 +27,4 @@ She was worried a bit but then my father came home all frantic talking to her in
 
 ***
 
-*Walking Home Alone From Elementary School (c) Copyright by Jack Szwergold; written August 27, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Walking Home Alone From Elementary School (c) Copyright by Jack Szwergold; written on August 27, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

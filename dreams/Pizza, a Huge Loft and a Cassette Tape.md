@@ -18,4 +18,4 @@ As I gaze in wonder at the tape, someone who looks vaguely familiar appears. She
 
 ***
 
-*Pizza, a Huge Artist’s Loft and a Cassette Tape (c) Copyright by Jack Szwergold; written May 28, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Pizza, a Huge Artist’s Loft and a Cassette Tape (c) Copyright by Jack Szwergold; written on May 28, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

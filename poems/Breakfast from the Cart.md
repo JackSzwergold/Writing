@@ -24,4 +24,4 @@ Have it all delivered to my office in 2 hours on a nice, fancy pillow and we’r
 
 ***
 
-*Breakfast from the Cart (c) by Jack Szwergold; written March 30, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Breakfast from the Cart (c) by Jack Szwergold; written on March 30, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

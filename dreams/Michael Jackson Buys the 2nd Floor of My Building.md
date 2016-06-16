@@ -14,4 +14,4 @@ I’m attempting to take pictures but there are issues with focusing that might 
 
 ***
 
-*Michael Jackson Buys the 2nd Floor of My Building (c) Copyright by Jack Szwergold; written May 26, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Michael Jackson Buys the 2nd Floor of My Building (c) Copyright by Jack Szwergold; written on May 26, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

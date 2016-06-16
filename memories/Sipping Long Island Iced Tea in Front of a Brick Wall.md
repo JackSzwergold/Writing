@@ -15,4 +15,4 @@ The place had a two drink minimum, so I ordered a Long Island Iced Tea and let h
 
 ***
 
-*Sipping Long Island Iced Tea in Front of a Brick Wall: Awkward Comedy Cellar Date in 1989 (c) Copyright by Jack Szwergold; May 28, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Sipping Long Island Iced Tea in Front of a Brick Wall: Awkward Comedy Cellar Date in 1989 (c) Copyright by Jack Szwergold; written on May 28, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

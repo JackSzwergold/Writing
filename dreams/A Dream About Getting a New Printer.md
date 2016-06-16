@@ -22,4 +22,4 @@ I look outside and the rain just keeps on coming.
 
 ***
 
-*A Dream About Getting a New Printer (c) Copyright by Jack Szwergold; written October 5, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*A Dream About Getting a New Printer (c) Copyright by Jack Szwergold; written on October 5, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

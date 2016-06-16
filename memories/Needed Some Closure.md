@@ -39,4 +39,4 @@ As the bus got near my stop I stood up, rang the bell, said goodbye and hopped o
 
 ***
 
-*Needed Some Closure: The Second Time I Saw Return of the Jedi (c) Copyright by Jack Szwergold; written June 17, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Needed Some Closure: The Second Time I Saw Return of the Jedi (c) Copyright by Jack Szwergold; written on June 17, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

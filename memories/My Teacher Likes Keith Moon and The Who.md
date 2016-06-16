@@ -28,4 +28,4 @@ I headed back to my place and looked over the tracks on “Hooligans” or “Th
 
 ***
 
-*My Teacher Likes Keith Moon and The Who (c) Copyright by Jack Szwergold; written May 25, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*My Teacher Likes Keith Moon and The Who (c) Copyright by Jack Szwergold; written on May 25, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

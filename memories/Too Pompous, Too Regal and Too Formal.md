@@ -35,4 +35,4 @@ We all left the theater and went our separate ways. It was a bright and sunny sp
 
 ***
 
-*Too Pompous, Too Regal and Too Formal: The First Time I Saw Return of the Jedi (c) Copyright by Jack Szwergold; written June 15, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Too Pompous, Too Regal and Too Formal: The First Time I Saw Return of the Jedi (c) Copyright by Jack Szwergold; written on June 15, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

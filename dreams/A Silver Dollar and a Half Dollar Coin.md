@@ -16,4 +16,4 @@ She passes the coins back to me and they seem heavier and larger than they were 
 
 ***
 
-*A Silver Dollar and a Half Dollar Coin (c) Copyright by Jack Szwergold; June 7, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*A Silver Dollar and a Half Dollar Coin (c) Copyright by Jack Szwergold; written on June 7, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -22,4 +22,4 @@ I decide to get closer to her on the floor, and lift one of her legs onto my rig
 
 ***
 
-*A Storefront on a Dumpy Street (c) Copyright by Jack Szwergold; written November 18, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*A Storefront on a Dumpy Street (c) Copyright by Jack Szwergold; written on November 18, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -12,4 +12,4 @@ Forgot to pay for a book on Han Solo and Chewbacca’s therapy sessions. It’s 
 
 ***
 
-*Lucy Ansell is the Name of a Receptionist (c) Copyright by Jack Szwergold; written April 13, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Lucy Ansell is the Name of a Receptionist (c) Copyright by Jack Szwergold; written on April 13, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
