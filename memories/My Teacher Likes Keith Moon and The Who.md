@@ -1,7 +1,6 @@
 ## My Teacher Likes Keith Moon and *The Who*
 ### That Time in High School When I Went Record Shopping and Ran Into My High School Computer Teacher 
 
-
 By Jack Szwergold
 
 Mr. Glass was cool. He was a physics teacher in high school but he also taught classes on computer programming. I had him as a teacher for computer programming and while he himself was cool, the class itself was awkward.
