@@ -52,6 +52,9 @@ The time in the 1970s that the son of my childhood building’s superintendent b
 #### [Trying to Cash in Nazi Stamps for a Millennium Falcon](Trying%20to%20Cash%20in%20Nazi%20Stamps%20for%20a%20Millennium%20Falcon)
 The time in the 1980s I decided I was going to sell my brother’s collection of Nazi stamps to buy a Millennium Falcon.
 
+#### [Caring for a Sparrow](Caring%20for%20a%20Sparrow)
+About the time my parents found a sparrow in front of our building and cared for it.
+
 #### [Crappy Print of a Popular Film with a Cat](Crappy%20Print%20of%20a%20Popular%20Film%20with%20a%20Cat)
 The time in the 1980s I went to the discount movie theater in Midwood to see *Tron*.
 
