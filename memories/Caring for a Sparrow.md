@@ -31,6 +31,8 @@ She came into the kitchen and looked out the window with my dad and shrugged and
 
 There was nothing negative about these shrugs and nothing dismissive. It was all very pragmatic; my parents spotted a small sparrow in trouble, helped it get it’s act back in gear and now it flew away with the other sparrows it presumably knew.
 
+And with that, my dad finished making whatever food he was making, put it on a plate and headed back to the living room to watch some more TV. I grabbed something myself and headed back to my room and called it a night.
+
 ***
 
 *Caring for a Sparrow (c) Copyright by Jack Szwergold; written on June 23, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
