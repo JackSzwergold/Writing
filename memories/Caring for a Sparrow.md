@@ -21,7 +21,15 @@ When I woke up from my nap, I walked over to the living room. My mom and dad wer
 
 The window was closed except for one of those metal mesh screens but I could look out and see the bird sitting there somewhat as befuddled as before. I looked at it for a while as a subway train pulled out of the nearby, elevated subway station and screeched into the distance as it made it’s way to Coney Island. As the sound of the train faded I could hear the sound of some birds chirping from the nearby roof.
 
-I had no idea if they were sparrows or not, but I could see the little straggler my parents found was tilting it’s head as if to listen to the chirps and screeches. At one point, the sparrow chirped along which made me realize that had never chirped at all before while in our apartment or on that ledge.
+I had no idea if they were sparrows or not, but I could see the little straggler my parents found was tilting it’s head as if to listen to the chirps and screeches. At one point, the sparrow chirped along which made me realize that had never chirped at all before while in our apartment or on that ledge. As it chirped more and more, other chirps became louder until a few small sparrows landed on the ledge and looked around. It seems like they all knew each other and might at least know who this fledgling straggler we rescued was.
+
+After a while, the sparrow we rescued started to move around a bit and flap it’s wings. It clearly was not an expert at doing bird things like that just yet, but with a few hops—and a few flaps—that tiny straggler managed to fly off of our roof and fly to the roof of the drugstore that abutted our building and was—literally—a short hop from our kitchen window. The other sparrows followed it and chirped some more on the nearby roof. I couldn’t see what was happening as the sparrow cacophony carried on, but after a while I saw a small group of sparrows fly away from the drugstore roof and off to Ocean Parkway.
+
+My dad was busy making some food on the stove while this whole thing transpired, so I turned around to tell him. He came to the window, looked at the ledge with the now empty plate, looked towards the nearby roof and basically shrugged and said, “Okay… What else?” as he walked to the living room to talk to my mom in Yiddish.
+
+She came into the kitchen and looked out the window with my dad and shrugged and walked away.
+
+There was nothing negative about these shrugs and nothing dismissive. It was all very pragmatic; my parents spotted a small sparrow in trouble, helped it get it’s act back in gear and now it flew away with the other sparrows it presumably knew.
 
 ***
 
