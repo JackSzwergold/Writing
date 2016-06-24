@@ -15,6 +15,14 @@ I looked at the sparrow on the plate. The tissues fell away and all that was lef
 
 Made sense. But this was weird. What would we do with this thing? As I was thinking about that, my mom came back into the kitchen and started talking to my dad in Yiddish. Instantly they both swapped between protecting the sparrow, getting water for the sparrow and looking around the kitchen for food to feed the sparrow. After a while, they settled on turning over a small jar lid and filling it with water and then placing some ripped up bread next to the sparrow. The sparrow seemed to accept the water but was a bit finicky about the bread.
 
+“So do you need me to help?” I asked my dad and he said, “No… No… We’re fine.” And with that I headed back to my room to putz around and—eventually—take a nap.
+
+When I woke up from my nap, I walked over to the living room. My mom and dad were watching TV and I asked them about the sparrow. “Okay, let me show you!” My dad said as he got out of his chair and walked to the kitchen. I followed and it was dark since it was already dusk. So he turned on the light and the plate with the sparrow was no longer on the kitchen table. “Where is it?” I asked and with that he walked to the kitchen window, pulled back the small curtain and showed me: He placed the small sparrow and the plate with water and food out on the small window ledge our kitchen had.
+
+The window was closed except for one of those metal mesh screens but I could look out and see the bird sitting there somewhat as befuddled as before. I looked at it for a while as a subway train pulled out of the nearby, elevated subway station and screeched into the distance as it made it’s way to Coney Island. As the sound of the train faded I could hear the sound of some birds chirping from the nearby roof.
+
+I had no idea if they were sparrows or not, but I could see the little straggler my parents found was tilting it’s head as if to listen to the chirps and screeches. At one point, the sparrow chirped along which made me realize that had never chirped at all before while in our apartment or on that ledge.
+
 ***
 
 *Caring for a Sparrow (c) Copyright by Jack Szwergold; written on June 23, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
