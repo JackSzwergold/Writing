@@ -13,6 +13,8 @@ My dad closed the door and I followed my mom to the kitchen. She grabbed a small
 
 I looked at the sparrow on the plate. The tissues fell away and all that was left was this small, gawky little sparrow with an oddball baby-bird look on its beack. It seemed stunned but didn’t seem freaked out or looking to fly away very soon. My dad said, “We were sitting in front of the building and the bird fell out of a tree.” He continued, “We picked it up so nobody would step on it.”
 
+Made sense. But this was weird. What would we do with this bird? As I was thinking about that, my mom came back into the kicthen and started talking to my dad in Yiddish. Instantly they both swapped between protecting the bird, getting water for the bird and looking around the kitchen for food to feed the bird. After a while, they settled on turning over a small jar lid and filling it with water and then placing some ripped up bread next to the bird.
+
 ***
 
 *Caring for a Sparrow (c) Copyright by Jack Szwergold; written on June 23, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
