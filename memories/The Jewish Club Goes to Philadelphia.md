@@ -15,7 +15,9 @@ When we arrived it Philadelphia it was dusk and it didn’t look like anything a
 
 The rooms themselves were dumpy, but adequate. While walking through the hallways I got to see some of the other kids who showed up for this trip. Some of them looked like us—normal American teens—but others seemed like young Orthodox kids in training with men in white shirts and black pants and women in long, uncomfortable looking dresses and skirts. Heck, they weren’t men or women! They were just teenagers. But they all seemed like teenagers on their way to either squeezing out an Orthodox family in Borough Park or working behind the counter at some sketchy camera store in midtown.
 
-Anyway, after getting settled in my room with whoever my roommate was, some guy came around to let us all know we needed to come down to the dining. Seemed to make sense since it was around dinner time anyway. So off we went!
+Anyway, after getting settled in my room with whoever my roommate was, some guy came around to let us all know we needed to come down to the dining. Seemed to make sense since it was around dinner time anyway. So off I went!
+
+Ran into some classmates in the hallway and we all compared our minial notes: Rooms kind of sucked, there were more Orthodox kids 
 
 ***
 
