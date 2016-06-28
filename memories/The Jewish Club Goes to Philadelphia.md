@@ -43,6 +43,8 @@ I’ve seen joints before—mainly the ones my sister’s abusive, pot smoking h
 
 So we started to flirt. And Valerie was really cute. She was into 1980s fashion so she dabbled in making her own fashionish things: Cool hair wraps, shirts and even skirts. As I sat there on the edge of the bed, she was dressed pretty basically: White shirt and jeans and some cool earings. We smoked the joint and at one point I grabbed her her right hand with my left hand, put my right hand on her right knee and we started to kiss and make out.
 
+It wasn’t getting too hot and heavy, but my my hand started to move across her back and I could feel her bra strap—and feel her chest heave—just as our classmates burst into the room. “Get rid of that!” one of them said as they grabbed the joint out of my hand and ran to the bathroom. “What happened?”
+
 ***
 
 *The Jewish Club Goes to Philadelphia (c) Copyright by Jack Szwergold; written on June 27, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
