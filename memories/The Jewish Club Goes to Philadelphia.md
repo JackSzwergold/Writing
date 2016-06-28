@@ -25,7 +25,11 @@ Just about the time that the doors closed, someone showed up on stage and told u
 
 We all sat down and listened to whatever this guy was going to say. And it basically boiled down to this: We were all going to be going to special, Jewish “classes” and lectures during this weekend and after that was all done there would be a short trip to Philadelphia to do touristy things. We all turned to look to each other and try to understand what was happening, but then at one point the guy used the word “Sheraton” and a few of us understood what was happening.
 
-Basically, a shabbaton is a religious retreat held on the weekend designed to reinforce and educate Jews about their Jewish heritage. Superficially, that sounds cool if you were religious and believe a weekend of Bible (aka: Torah) studying was a fun thing to do. But pretty much none of the kids from my high school—except for a few exceptions—were religious in any way. We were all secular Jews who respected our heritage but didn’t do much else past that. So this whole shabbaton nonsense was utter bullshit: We were duped into going some crazy religious retreat.
+Basically, a shabbaton is a religious retreat held on the weekend designed to reinforce and educate Jews about their Jewish heritage. Superficially, that sounds cool if you were religious and believe a weekend of Bible (aka: Torah) studying was a fun thing to do. But pretty much none of the kids from my high school—except for a few exceptions—were religious in any way. We were all secular Jews who respected our heritage but didn’t do much else past that. So this whole shabbaton nonsense was utter bullshit: We were duped into going some crazy religious retreat when all we wanted to do is see Independence Hall, the Liberty Bell and eat a Philly Cheesesteak or two.
+
+At some point they let us stand up to get some snacks but wouldn’t let us leave the dining room. I ran into Valerie—who was cute, new girl in the school—and I started to flirt with her the only way I knew how at the time: I asked her to pretend to kick me in the leg in hopes that somehow me being injured would convince one of those muscle-bound Orthodox lunks to let us go back to our rooms.
+
+“What?” She said. “You want me to kick you?” She said befuddledly.
 
 ***
 
