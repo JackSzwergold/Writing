@@ -29,7 +29,9 @@ Basically, a shabbaton is a religious retreat held on the weekend designed to re
 
 At some point they let us stand up to get some snacks but wouldn’t let us leave the dining room. I ran into Valerie—who was cute, new girl in the school—and I started to flirt with her the only way I knew how at the time: I asked her to pretend to kick me in the leg in hopes that somehow me being injured would convince one of those muscle-bound Orthodox lunks to let us go back to our rooms.
 
-“What?” She said. “You want me to kick you?” She said befuddledly.
+“What?You want me to kick you in the leg?” she said questioningly. “Yes!” I said and then looked to two of her friends standing near her who both started to understand what I was driving. “Yeah,” said one guy, “He wants you to pretend to kick him so we can get out of here.” She shrugged and then kicked me hard in the right leg. This wasn’t a fake kick, but it was a real kick.
+
+“Ow!” I said, “Why did you do that?” I asked as I hopped a few steps back. “Well you said I should kick you?” She responded. “Yeah, I said you should fake a kick.” 
 
 ***
 
