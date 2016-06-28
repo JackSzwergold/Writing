@@ -91,6 +91,9 @@ How I learned about the *B-52s* when I was trying to score some *Rush* tickets i
 #### [Do Me a Favor and Buy Me Some Milk](Do%20Me%20a%20Favor%20and%20Buy%20Me%20Some%20Milk)
 The time in 1984 I went to a scalper to score some tickets for a *Rush* show at the Meadowlands.
 
+#### [The Jewish Club Goes to Philadelphia](The%20Jewish%20Club%20Goes%20to%20Philadelphia)
+About the time in high school the Jewish Club went to Philadelphia and got kicked out for smoking pot.
+
 #### [My Teacher Likes Keith Moon and *The Who*](My%20Teacher%20Likes%20Keith%20Moon%20and%20The%20Who)
 That time in high school in 1985 when I went record shopping with a pal at *Titus Oaks Records* and ran into my high school computer teacher record shopping like the rest of us.
 
