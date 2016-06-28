@@ -53,7 +53,9 @@ I was the last one to make the call and I pleaded with these overbearing asshole
 
 The next morning we all packed up our stuff and got ready to leave. While we were now shunned by these Orthodox shabbaton assholes, they did allow us to have breakfast in the hotel dining room. It was there where we learned the extent the gossip surrounding our expulsion from this weirdo religious trip. Some of the Orthodox Jewish girls who were eating breakfast next to our table passive-aggressively started to talk about us right in front. “I heard they found a pile beer cans outside their window and when they got in the room they also found cocaine,” she said eating her eggs and side glancing a glower or too towards us. Other people would just walk back and point and whisper but not say much.
 
-“What is this bullshit?” I said, “We smoked one joint and now we had beer and cocaine too?” “I don’t know Jack,” said one classmate, “I don’t know.”
+“What is this bullshit?” I said, “We smoked one joint and now we had beer and cocaine too?” “I don’t know Jack,” said one classmate, “I don’t know.” And with that we finished up our breakfast and started to make our way out.
+
+“Hey! Where is Valerie?” I asked as we walked down the hallway. “I guess they let her stay,” one classmate said to me shrugging. Before we left the hotel 
 
 ***
 
