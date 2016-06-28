@@ -21,6 +21,10 @@ Ran into some classmates in the hallway and we all compared our minimal notes: R
 
 When we showed up the room was filled with folding chairs and no signs of food past some small, light snacks from what we could see. We all meandered around and found other familiar faces. There was a slight buzz around things and then—suddenly—all of the doors to the dining room were locked closed. Not only were the doors closed, but they were all guarded by some fairly strong looking Orthodox guys with their arms folded. What the fuck was happening?
 
+Just about the time that the doors closed, someone showed up on stage and told us all to sit down. He had a few more muscle-bound Orthodox lunks hanging out near him.
+
+We all sat down and listened to whatever this guy was going to say.
+
 ***
 
 *The Jewish Club Goes to Philadelphia (c) Copyright by Jack Szwergold; written on June 27, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
