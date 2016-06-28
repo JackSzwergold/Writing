@@ -13,9 +13,9 @@ So lots of folks signed up for the trip and a few weeks later we were off to Phi
 
 When we arrived it Philadelphia it was dusk and it didn’t look like anything amazing because we weren’t anywhere amazing: We were in the parking lot of a hotel that could have been pretty much anywhere. We got our room assignments and we all headed to our mutuals rooms.
 
-The rooms themselves were dumpy, but adequette. While walking through the hallways I got to see some of the other kids who showed up for this trip. Some of them looked like us—normal American teens—but others seemed like young Orthodox kids in training with men in white shirts and black pants and women in long, uncomfortable looking dresses and skirts. Heck, they weren’t men or women! They were just teenagers. But they all seemed like teenagers on their way to either squeezing out an Orthodox family in Borough Park or wokring behind the counter at some sketchy camera store in midtown.
+The rooms themselves were dumpy, but adequate. While walking through the hallways I got to see some of the other kids who showed up for this trip. Some of them looked like us—normal American teens—but others seemed like young Orthodox kids in training with men in white shirts and black pants and women in long, uncomfortable looking dresses and skirts. Heck, they weren’t men or women! They were just teenagers. But they all seemed like teenagers on their way to either squeezing out an Orthodox family in Borough Park or working behind the counter at some sketchy camera store in midtown.
 
-Anway, after getting settled in my room with whoever my rooommate was, some guy came around to let us all know we needed to come down to the dining. Seemed to make sense since it was around dinner time anyway. So off we went!
+Anyway, after getting settled in my room with whoever my roommate was, some guy came around to let us all know we needed to come down to the dining. Seemed to make sense since it was around dinner time anyway. So off we went!
 
 ***
 
