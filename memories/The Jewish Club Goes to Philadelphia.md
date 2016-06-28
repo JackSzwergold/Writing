@@ -39,7 +39,7 @@ We all gathered at a classmate’s room and talked it over. As we listened to so
 
 “It’s fucked up,” said one of my classmates. “But it doesn’t seem like we can get out of this anytime soon so might as well make the best of it,” he said has he reached into his bag and pulled out a joint.
 
-I’ve seen joints before—mainly the ones my sister’s abusive, pot smoking husband smoked—but never have been offered one myself.
+I’ve seen joints before—mainly the ones my sister’s abusive, pot smoking husband smoked—but never have been offered one myself. I was little apprehensive, but when it got passed to me I inhaled and was feeling fine. I passed the joint over to Valerie who looked at it, winced and then took a puff. “Nice hole,” I said to her looking at the distressed knee hole on her jeans. “Thanks.” She said.
 
 ***
 
