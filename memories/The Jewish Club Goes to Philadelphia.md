@@ -53,9 +53,17 @@ I was the last one to make the call and I pleaded with these overbearing asshole
 
 The next morning we all packed up our stuff and got ready to leave. While we were now shunned by these Orthodox shabbaton assholes, they did allow us to have breakfast in the hotel dining room. It was there where we learned the extent the gossip surrounding our expulsion from this weirdo religious trip. Some of the Orthodox Jewish girls who were eating breakfast next to our table passive-aggressively started to talk about us right in front. “I heard they found a pile beer cans outside their window and when they got in the room they also found cocaine,” she said eating her eggs and side glancing a glower or too towards us. Other people would just walk back and point and whisper but not say much.
 
-“What is this bullshit?” I said, “We smoked one joint and now we had beer and cocaine too?” “I don’t know Jack,” said one classmate, “I don’t know.” And with that we finished up our breakfast and started to make our way out.
+“What is this bullshit?” I said, “We smoked one joint and now we had beer and cocaine too?” “I don’t know Jack,” said one classmate, “I don’t know.” “But the cool thing is we get to leave this bullshit, right?” Someone said and we all agreed. And with that we finished up our breakfast and started to make our way out.
 
-“Hey! Where is Valerie?” I asked as we walked down the hallway. “I guess they let her stay,” one classmate said to me shrugging. Before we left the hotel 
+“Hey! Where is Valerie?” I asked as we walked down the hallway. “I guess they let her stay,” one classmate said to me shrugging.
+
+I looked around before we left the hotel and saw one of the muscle-bound Orthodox lunks that busted us the night before and I asked her about Valerie. “I think she’s upstairs,” he said. “Well, can I say goodbye to her before I leave?” I asked. He looked to another guy he was talking too and they shrugged and said, “Sure you can. Just come back downstairs.”
+
+So with that I ran upstairs and looked around. There were only about 3-4 conference rooms filled with people so I poked around each of them. And heck, she liked to wear a cool looking hair wrap most of the time so she wasn’t going to be too hard to find.
+
+Soon I found her sitting near the back of one of the rooms, got the attention of whoever was running the class/lecture or whatever you want to call it, and they let her stand up to say goodbye to me. She stood up, walked over to me and hugged. As I looked over her shoulder I noticed one big word in huge, white chalk letters on the only blackboard in the room: “INTERMARRIAGE.”
+
+We finished hugging, I looked at the blackboard, I looked at the lecturer, closed the door, ran down the stairs and hopped into the van with the rest of my classmates and headed home to Brooklyn.
 
 ***
 
