@@ -47,7 +47,13 @@ It wasn’t getting too hot and heavy, but my my hand started to move across her
 
 “What were you doing here?!?” He said to nobody in particular. Valerie and I looked at each other and then the guy spoke in Hebrew to one of the muscle-bound Orthodox lunks who took Valerie away and left the rest of us guys to deal with him. “You’re all gone tomorrow!” He said, “But you need to call your parents right now to tell them why you are coming home.” And with that we were all dragged to some office in the building.
 
-As we all sat down each one of us were forced to give the guy the telephone number to our parents and tell them bluntly we were kicked off of the trip because we were caught smoking marijuana. It was fairly brutal because it was about 10:30pm at night, and there was no subtlety or tact to the way the guy was dealing with it. Everyone else called their parents first and left the room after they made the call. I was the last one to make the call and I pleaded with these overbearing assholes explaining that my parents were elderly Holocaust survivors
+As we all sat down each one of us were forced to give the guy the telephone number to our parents and tell them bluntly we were kicked off of the trip because we were caught smoking marijuana. It was fairly brutal because it was about 10:30pm at night, and there was no subtlety or tact to the way the guy was dealing with it. Everyone else called their parents first and left the room after they made the call.
+
+I was the last one to make the call and I pleaded with these overbearing assholes explaining that my parents were elderly Holocaust survivors so was there anyway I could call anyone else. The guy refused and I had no choice but to call and wake my dad up and say, “Hi dad. I’m coming home from the trip because I was smoking marijuana.” After I said that the guy in charge got on the phone shouting something to my father about how I was a bad kid and he was teaching me a lesson. He hung up the phone and I headed back to my room.
+
+The next morning we all packed up our stuff and got ready to leave. While we were now shunned by these Orthodox shabbaton assholes, they did allow us to have breakfast in the hotel dining room. It was there where we learned the extent the gossip surrounding our expulsion from this weirdo religious trip. Some of the Orthodox Jewish girls who were eating breakfast next to our table passive-aggressively started to talk about us right in front. “I heard they found a pile beer cans outside their window and when they got in the room they also found cocaine,” she said eating her eggs and side glancing a glower or too towards us. Other people would just walk back and point and whisper but not say much.
+
+“What is this bullshit?” I said, “We smoked one joint and now we had beer and cocaine too?” “I don’t know Jack,” said one classmate, “I don’t know.”
 
 ***
 
