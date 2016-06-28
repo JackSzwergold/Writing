@@ -31,7 +31,11 @@ At some point they let us stand up to get some snacks but wouldn’t let us leav
 
 “What?You want me to kick you in the leg?” she said questioningly. “Yes!” I said and then looked to two of her friends standing near her who both started to understand what I was driving. “Yeah,” said one guy, “He wants you to pretend to kick him so we can get out of here.” She shrugged and then kicked me hard in the right leg. This wasn’t a fake kick, but it was a real kick.
 
-“Ow!” I said, “Why did you do that?” I asked as I hopped a few steps back. “Well you said I should kick you?” She responded. “Yeah, I said you should fake a kick.” 
+“Ow!” I said, “Why did you do that?” I asked as I hopped a few steps back. “Well you said I should kick you?” She responded. “Yeah, I said you should *fake* a kick,” I responded while rubbing my right leg, “Not actually kick me!”
+
+I looked up towards the doors, and those muscle-bound Orthodox lunks started to open them up while someone on a loudspeaker said we could head back to our rooms. So we all headed back to our rooms with more questions than answers.
+
+
 
 ***
 
