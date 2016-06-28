@@ -17,7 +17,9 @@ The rooms themselves were dumpy, but adequate. While walking through the hallway
 
 Anyway, after getting settled in my room with whoever my roommate was, some guy came around to let us all know we needed to come down to the dining. Seemed to make sense since it was around dinner time anyway. So off I went!
 
-Ran into some classmates in the hallway and we all compared our minial notes: Rooms kind of sucked, there were more Orthodox kids 
+Ran into some classmates in the hallway and we all compared our minial notes: Rooms kind of sucked, there were more Orthodox kids than we expected but hey… Food! So we all walked down to the dining room area.
+
+When we showed up the room was filled with folding chairs and no signs of food past some small, light snacks from what we could see. We all meandered around and found other familiar faces. There was a slight buzz around things and then—suddely—all of the doors to the dining room were locked closed. Not only were the doors closed, but they were all guarded by some fairly strong looking Orthodox guys with their arms folded. What the fuck was happening?
 
 ***
 
