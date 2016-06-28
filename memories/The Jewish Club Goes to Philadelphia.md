@@ -23,7 +23,9 @@ When we showed up the room was filled with folding chairs and no signs of food p
 
 Just about the time that the doors closed, someone showed up on stage and told us all to sit down. He had a few more muscle-bound Orthodox lunks hanging out near him.
 
-We all sat down and listened to whatever this guy was going to say.
+We all sat down and listened to whatever this guy was going to say. And it basically boiled down to this: We were all going to be going to special, Jewish “classes” and lectures during this weekend and after that was all done there would be a short trip to Philadelphia to do touristy things. We all turned to look to each other and try to understand what was happening, but then at one point the guy used the word “Sheraton” and a few of us understood what was happening.
+
+Basically, a shabbaton is a religious retreat held on the weekend designed to reinforce and educate Jews about their Jewish heritage. Superficially, that sounds cool if you were religious. But pretty much none of the kids from my high school—except for a few exceptions—were religious in any way; we were all secular Jews who respected our heritage but didn’t do much else past that.
 
 ***
 
