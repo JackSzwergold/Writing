@@ -39,7 +39,9 @@ We all gathered at a classmate’s room and talked it over. As we listened to so
 
 “It’s fucked up,” said one of my classmates. “But it doesn’t seem like we can get out of this anytime soon so might as well make the best of it,” he said has he reached into his bag and pulled out a joint.
 
-I’ve seen joints before—mainly the ones my sister’s abusive, pot smoking husband smoked—but never have been offered one myself. I was little apprehensive, but when it got passed to me I inhaled and was feeling fine. I passed the joint over to Valerie who looked at it, winced and then took a puff. “Nice hole,” I said to her looking at the distressed knee hole on her jeans. “Thanks,” she said. And when I looked up my other classmates said they were going across the hall to someone else’s room to hang out.
+I’ve seen joints before—mainly the ones my sister’s abusive, pot smoking husband smoked—but never have been offered one myself. I was little apprehensive, but when it got passed to me I inhaled and was feeling fine. I passed the joint over to Valerie who looked at it, winced and then took a puff. “Nice hole,” I said to her looking at the distressed knee hole on her jeans. “Thanks,” she said. And when I looked up my other classmates said they were going across the hall to someone else’s room to hang out. Me and Valerie were alone.
+
+So we started to flirt. And Valerie was really cute. She was into 1980s fashion so she dabbled in making her own fashionish things: Cool hair wraps, shirts and even skirts. As I sat there on the edge of the bed, she was dressed pretty basically: White shirt and jeans and some cool earings. We smoked the joint and at one point I grabbed her her right hand with my left hand, put my right hand on her right knee and we started to kiss and make out.
 
 ***
 
