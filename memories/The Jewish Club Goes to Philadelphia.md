@@ -7,6 +7,8 @@ The “Jewish Club” was a social club at school that seemingly popped out of n
 
 Basically, once every few weeks Jewish kids in the school would spend the equivalent of one period a week just doing stuff together. It wasn’t necessarily strictly connected to religious stuff—it was more of a social club and such—but when holidays came around Akiva would organize activities or put together little lessons or projects that somehow were connected with the holiday.
 
+Then one day in the spring she told us that they were organizing a trip to Philadelphia and we were all welcome to join. She was fairly vague on the details of the trip, but she basically made it sound like we were all going to Philadelphia for a basic weekend trip with shared hotel rooms and such. It didn’t sound like an amazing trip, but it sounded pretty cool.
+
 ***
 
 *The Jewish Club Goes to Philadelphia (c) Copyright by Jack Szwergold; written on June 27, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
