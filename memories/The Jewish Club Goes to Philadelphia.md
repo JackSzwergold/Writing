@@ -37,7 +37,9 @@ I looked up towards the doors, and those muscle-bound Orthodox lunks started to 
 
 We all gathered at a classmate’s room and talked it over. As we listened to someone’s mix tape we all agreed that this was all too weird: We were told we were going to go on some fun trip to Philadelphia but now it seemed like we were sequestered into some oddball hotel outside of Philadelphia where some muscle-bound Orthodox lunks were going to lecture the finer points of Judaism to us whether we liked it or not.
 
-“It’s fucked up,” said one of my classmates. “But it doesn’t seem like we can get out of this anytime soon so might as well make the best of it,” he said has he reached into his bag and pulled out a joint. 
+“It’s fucked up,” said one of my classmates. “But it doesn’t seem like we can get out of this anytime soon so might as well make the best of it,” he said has he reached into his bag and pulled out a joint.
+
+I’ve seen joints before—mainly the ones my sister’s abusive, pot smoking husband smoked—but never have been offered one myself.
 
 ***
 
