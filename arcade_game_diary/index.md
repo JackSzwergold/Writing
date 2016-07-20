@@ -104,7 +104,10 @@ The first time I played *Phoenix* was in this discount store on Brighton Beach A
 
 I barely remember the first place I played *Pole Position*. Maybe it was  *Rainbow Lanes*, a bowling alley in Sheepshead Bay? Don’t know but leaving this here until the memory pops back into my head.
 
-* **Robotron 2084 (1982)**
+#### Robotron 2084 (1982)
+
+The first time I played *Robotron 2084* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. The game was fun because coordinating between the left joystick that controlled your movement and the right joystick that controlled your firing direction was difficult to get a hang of but still a fun skill to learn. The onscreen graphics were also fluid and cool. And while the gameplay could get insane on higher levels, it was still a fun ride to be on.
+
 * **Star Castle (1980)**
 * **Space Invaders (1978)**
 * **Star Wars (1983)**
