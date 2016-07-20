@@ -108,7 +108,10 @@ I barely remember the first place I played *Pole Position*. Maybe it was  *Rainb
 
 The first time I played *Robotron 2084* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. The game was fun because coordinating between the left joystick that controlled your movement and the right joystick that controlled your firing direction was difficult to get a hang of but still a fun skill to learn. The onscreen graphics were also fluid and cool. And while the gameplay could get insane on higher levels, it was still a fun ride to be on.
 
-* **Star Castle (1980)**
+#### Star Castle (1980)
+
+The first time I played *Star Castle* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. This game got me hooked from the beginning. The vector graphics with just a small hint of color—thanks to color overlays—looked cool and the gameplay was very smooth. And since I liked bumper cars it was fun to bump the starship you controlled into the titular Star Castle’s shields. It was like *Asteroids* but just more fun.
+
 * **Space Invaders (1978)**
 * **Star Wars (1983)**
 * **Starhawk (1977)**
