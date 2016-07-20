@@ -56,7 +56,10 @@ The first time I played *The Empire Strikes Back* was at *Faber’s Fascination*
 
 The first time I played *Firefox* was at the Astroland arcade which was on West 10th Street near Neptune Avenue in Coney Island; right across the way from the *Dante’s Inferno* dark ride. It was an outdoor arcade that had some kind of overhead shade, but otherwise was wide open and you could just walk through it without hassle. The game looked cool since it used actual footage from the motion picture it was based on, but the gameplay kind of sucked. I remember playing the game and Victor—this guy who was older than me who was the son of my mom’s friend in the building—spotted me and said, “These games are fun, right?” I nodded in agreement and he walked off to hang out with a friend of his (William?) who would hang out on the boardwalk and oggle the girls on the beach via a telephoto lens camera one of them had. Family friends but kind of creepy, right?
 
-* **Gauntlet (1985)**
+#### Gauntlet (1985)
+
+The first time I ever played *Gauntlet* was at a drug store in Midwood on the corner of Coney Island Aveneue and Avenue J. The drugstore was right outside of the B68 bus stop so this game was the perfect way to waste some time. And it was pretty cool since it was the first arcade game I knew of where multiple people (up to 4) can play at the same time and work cooperatively to reach a goal. It was a bit of an “evil” game since your character didn’t die, but would lose “health” by being attacked and you could boost your health by sticking another quarter in. Fun game, but it seemed endless and tossing quarters into it endlessly got to be annoying after a while.
+
 * **Gorf (1981)**
 * **Gyruss (1983)**
 * **Joust (1982)**
