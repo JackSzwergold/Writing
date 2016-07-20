@@ -18,7 +18,7 @@ The first time I played *Berzerk* was in this discount store on Brighton Beach A
 
 #### Bite Monster (Pac-Man clone) (1980)
 
-*Bite Monster* was this weird *Pac-Man* clone they had at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. Gameplay was the same as *Pac-Man* but the game cabinet itself was a but junky. Like the joystick was really wobbly compared to even a real *Pac-Man* machine and the metal control panel where the joystick was placed was loose. So kids who put their quarters up on the console often had them slip behind that metal part which meant we had to complain to the store owner who would give a kid a new quarter but still complain about it.
+*Bite Monster* was this weird—and aparently German made—*Pac-Man* clone they had at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. Gameplay was the same as *Pac-Man* but the game cabinet itself was a but junky. Like the joystick was really wobbly compared to even a real *Pac-Man* machine and the metal control panel where the joystick was placed was loose. So kids who put their quarters up on the console often had them slip behind that metal part which meant we had to complain to the store owner who would give a kid a new quarter but still complain about it. Until I saw a real *Pac-Man* machine, I always thought this game was called *Bite Monster*.
 
 * **Boot Hill (1977)**
 * **Bosconian (1981)**
