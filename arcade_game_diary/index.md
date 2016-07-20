@@ -92,7 +92,10 @@ The first time I played *Moon Patrol* was at the *Forty Thieves* candy store on 
 
 Of all of the games I ever played as a kid, *Mr. Do* was the one I was truly most obsessed with. I first played it at some candy store on Neptune Avenue near Brighton 6th or 5th street or something like that. This was literally the only arcade game they had in this small, well stocked, completely legit shop and they took good care of it. The owners would gladly provide kids with change for the machines and the kids would gladly buy some of the affordable snacks the shop had. I was obessed with *Mr. Do* because the gameplay was fast, the graphics were cute and while it was technically a *Dig Dug* clone, it was just much more fun to play. And there were all kinds of bonuses. I don’t remember the exact high scores I made, but was pretty high for a kid on an arcade machine in a dumpy neighborhood and othet kids were impressed so I was happy: Finally I could earn some level of basic respect from other neighborhood kids by playing a simple video game!
 
-* **Ms. Pac Man (1981)**
+#### Ms. Pac Man (1981)
+
+The first time I played *Ms. Pac-Man* was in Harrison, NJ. My sister and her family had moved to Harrison from Texas—where they used to live—and me and my dad were visiting Harrison at some point when I spotted a *Ms. Pac-Man* machine inside of a shop in a strip mall on our way to my sisters house. I don’t believe it was in an arcade, but I seem to recall it being setup right near the front of a laundromat or a pizza parlor or something like that. I begged my dad to go inside and play, and he relented. I only got to play one game, but my mind was blown: This game was better than I expected it to be based on video game magazine reviews/previews I read. Faster paced, more options more overall fun. Despite the fact I only played the game once it was the main topic of discussion I had with pretty much any adult I encoutered during the rest of the visit.
+
 * **Phoenix (1980)**
 * **Pole Position (1982)**
 * **Robotron 2084 (1982)**
