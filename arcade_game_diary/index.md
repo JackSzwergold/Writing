@@ -14,7 +14,7 @@ I believe the first time I played *Battlezone* might have been in 1979 or 1980 a
 
 #### Berzerk (1980)
 
-The first time I played *Berzerk* was in this discount store on Brighton Beach Avenue that was eventually called *Bertas* but had some generic sounding discount store name. It was weird since they spread out a few arcade games to wherever they could plug one in. And *Berzerk* was facing the far wall away from the windows—where other arcade games were setup—and away from the main entrance.
+The first time I played *Berzerk* was in this discount store on Brighton Beach Avenue—near Coney Island Avenue—that was eventually called *Bertas* but had some generic sounding discount store name when I played this game there. It was weird since they spread out a few arcade games to wherever they could plug one in. And *Berzerk* was facing the far wall away from the windows—where other arcade games were setup—and away from the main entrance.
 
 #### Bite Monster (Pac-Man clone) (1980)
 
@@ -80,7 +80,10 @@ I was a little bit obsessed with *Lunar Lander* as a kid since I kept on reading
 
 The first time I played *Missile Command* was at this arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*. In fact it might have been the first game I ever played at *Forty Thieves*. The great appeal of the game was using the huge trackball to move your target acrosss the screen to intercept enemy missiles. The surreal part of the game is how you could never win and anytime you played it would just end with a hueg series of nuclear explosions appearing with the words, “The End” forming in the middle of it. Not a “feel good” for a kid growing up in the middle of the Cold War in the 1970s/1980s.
 
-* **Moon Cresta (1980)**
+#### Moon Cresta (1980)
+
+The first
+
 * **Moon Patrol (1982)**
 * **Mr. Do (1982)**
 * **Ms. Pac Man (1981)**
