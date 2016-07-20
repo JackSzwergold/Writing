@@ -36,7 +36,10 @@ Played *Carnival* when I went on a trip to Vermont with some school friends and 
 
 Played *Centipede* for the first time at an arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*. It was a fun game mainly because of the trackball; slamming it to roll rom side to side was a cool experience.
 
-* **Defender (1980)**
+#### Defender (1980)
+
+Played *Defender* for the first time at this sketchy storefront on Neptune Avenue around Brighton 3rd Street. It was sketchy because it was a small, dark storefront with utterly nothing else in the place but a soda machine, some random chairs and this arcade machine. It’s like some anti-social loser was friends with the owner of the building and they just let them open a crazy storefront just with one video game in it: *Defender*. The game was fun to play, but intense. What was also intense is most of the time me and friends would go inside to play it, there was seemingly nobody inside the store. One time we were playing it and this guy with blonde hair who looked a bit handsome—but a bit “junkie”-ish—came out from the back area of the store to stand behind us and say, “That’s a fun game, right?” And then would head back into the back of the store. The place never creeped me out enough for me to stop going there. What did get me to stop going there was just the fact that *Defender* was just too intense for me to deal with.
+
 * **Donkey Kong (1981)**
 * **Donkey Kong Jr. (1982)**
 * **Empire Strikes Back (1985)**
