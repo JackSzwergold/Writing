@@ -10,9 +10,12 @@ The first time I played *Asteroids* was in 1979 or 1980 at this arcade called *C
 
 #### Battlezone (1980)
 
-I believe the first time I played * Battlezone* might have been in 1979 or 1980 at this arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*. But another part of me seems to recall first playing this game in Coney Island at the *Faber’s Fascination* arcade on Surf Avenue near Neptune Avenue across the street from the subway station.
+I believe the first time I played *Battlezone* might have been in 1979 or 1980 at this arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*. But another part of me seems to recall first playing this game in Coney Island at the *Faber’s Fascination* arcade on Surf Avenue near Neptune Avenue across the street from the subway station.
 
-* **Berzerk (1980)**
+#### Berzerk (1980)
+
+The first time I played *Berzerk* was in this discount store on Brighton Beach Avenue that was eventually called *Bertas* but had some generic sounding discount store name. It was weird since they spread out a few arcade games to wherever they could plug one in. And *Berzerk* was facing the far wall away from the windows and away from the main entrance.
+
 * **Bite Monster (Pac-Man clone) (1980)**
 * **Boot Hill (1977)**
 * **Bosconian (1981)**
