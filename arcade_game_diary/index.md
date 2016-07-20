@@ -60,7 +60,10 @@ The first time I played *Firefox* was at the Astroland arcade which was on West 
 
 The first time I ever played *Gauntlet* was at a drug store in Midwood on the corner of Coney Island Aveneue and Avenue J. The drugstore was right outside of the B68 bus stop so this game was the perfect way to waste some time. And it was pretty cool since it was the first arcade game I knew of where multiple people (up to 4) can play at the same time and work cooperatively to reach a goal. It was a bit of an “evil” game since your character didn’t die, but would lose “health” by being attacked and you could boost your health by sticking another quarter in. Fun game, but it seemed endless and tossing quarters into it endlessly got to be annoying after a while.
 
-* **Gorf (1981)**
+#### Gorf (1981)
+
+*Gorf* was a great value of a junior high school kid with limited funds who wanted to play a variety of games for a single quarter. The first time I played it was at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. It was one of three games they had at the time: *Space Invaders*, *Bite Monster (Pac-Man Clone)* and *Gorf*. *Gorf* was fun to play since it had five levels, started off like *Space Invaders* and had a level later on that was just like *Galaxian*. It’s weird this candy store would have *Gorf* and *Space Invaders* since why would anyone play *Space Invaders* when they could play *Gorf* instead. The game also talked to you to taunt you and the controller was a joystick with a trigger on it that looked/felt like a fighter pilot’s control stick. The one thing that did stink about *Gorf* is how unsmooth the gameplay was; it was like it was programmed in some clunky language like Forth or something and never optimized for speed.
+
 * **Gyruss (1983)**
 * **Joust (1982)**
 * **Lunar Lander (1979)**
