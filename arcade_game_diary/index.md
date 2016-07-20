@@ -96,7 +96,10 @@ Of all of the games I ever played as a kid, *Mr. Do* was the one I was truly mos
 
 The first time I played *Ms. Pac-Man* was in Harrison, NJ. My sister and her family had moved to Harrison from Texas—where they used to live—and me and my dad were visiting Harrison at some point when I spotted a *Ms. Pac-Man* machine inside of a shop in a strip mall on our way to my sisters house. I don’t believe it was in an arcade, but I seem to recall it being setup right near the front of a laundromat or a pizza parlor or something like that. I begged my dad to go inside and play, and he relented. I only got to play one game, but my mind was blown: This game was better than I expected it to be based on video game magazine reviews/previews I read. Faster paced, more options more overall fun. Despite the fact I only played the game once it was the main topic of discussion I had with pretty much any adult I encoutered during the rest of the visit.
 
-* **Phoenix (1980)**
+#### Phoenix (1980)
+
+The first time I played *Phoenix* was in this discount store on Brighton Beach Avenue—near Coney Island Avenue—that was eventually called *Bertas* but had some generic sounding discount store name when I played this game there. The game setup for this game was weird since it was placed right next to the front windows of the store so you could see all of the old men and ladies walking back and forth—and waiting for the B68 or B1 bus—as you played. The game itself was fun since there were multiple levels and a “boss”-like level at the end where you had to destroy some floating space station that looked like the Comet Empire from *Star Blazers*. One odd memory I had of playing *Phoenix* was going up to the teenage cashier in front of the place when I needed change and she said bluntly, “No…” I was dejected enough that even when her co-worker explained I needed change to play the arcade games, I didn’t go back… I just walked out and walked home down Brighton Beach Avenue; blew some of that money on some comics at Nostrand Books before heading home.
+
 * **Pole Position (1982)**
 * **Robotron 2084 (1982)**
 * **Star Castle (1980)**
