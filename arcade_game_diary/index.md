@@ -28,7 +28,11 @@ The first actual video game I ever played. I spotted it at Nathan’s in Time Sq
 
 The first time I played this game was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. The game was cool because you could explore and scroll through the small space scene the gameplay took place in. Destroying space stations was not cool. And sadly I was mugged by two other kids around my age on Henderson Walk just outside of the arcade as I was trying to go home. They basically just pushed me against the wall and threatened me, and I gave them the two measley dollars I had left. Walked back to the boardwalk and cried all the way home to Ocean Parkway.
 
-* **Carnival (1980)**
+#### Carnival (1980)
+
+Played *Carnival* when I went on a trip to Vermont with some school friends and we stopped at a local arcade. The graphics of the game looked cool in the magazines I read, but the gameplay was stiff and a bit boring. Just like a shooting gallery, but in a video game form but with no prizes.
+
+
 * **Centipede (1981)**
 * **Defender (1980)**
 * **Donkey Kong (1981)**
