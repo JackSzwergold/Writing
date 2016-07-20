@@ -90,7 +90,7 @@ The first time I played *Moon Patrol* was at the *Forty Thieves* candy store on 
 
 #### Mr. Do (1982)
 
-Of all of the games I ever played as a kid, *Mr. Do* was the one I was truly most obsessed with.
+Of all of the games I ever played as a kid, *Mr. Do* was the one I was truly most obsessed with. I first played it at some candy store on Neptune Avenue near Brighton 6th or 5th street or something like that. This was literally the only arcade game they had in this small, well stocked, completely legit shop and they took good care of it.
 
 * **Ms. Pac Man (1981)**
 * **Phoenix (1980)**
