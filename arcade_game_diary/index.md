@@ -52,8 +52,10 @@ The first time I played *Donkey Kong Jr.* was at the Kings Plaza Mall which was 
 
 The first time I played *The Empire Strikes Back* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. Pretty certain it was the stand up model of the game. It had simialr vector graphics to what the original *Star Wars* game had, but this game was way more fun. Being able to fly through the legs of AT-AT’s was really great and one of the most fun 3D game experiences I ever had.
 
+#### Firefox (1982)
 
-* **Firefox (1982)**
+The first time I played *Firefox* was at the Astroland arcade which was on West 10th Street near Neptune Avenue in Coney Island; right across the way from the *Dante’s Inferno* dark ride. It was an outdoor arcade that had some kind of overhead shade, but otherwise was wide open and you could just walk through it without hassle. The game looked cool since it used actual footage from the motion picture it was based on, but the gameplay kind of sucked. I remember playing the game and Victor—this guy who was older than me who was the son of my mom’s friend in the building—spotted me and said, “These games are fun, right?” I nodded in agreement and he walked off to hang out with a friend of his (William?) who would hang out on the boardwalk and oggle the girls on the beach via a telephoto lens camera one of them had. Family friends but kind of creepy, right?
+
 * **Gauntlet (1985)**
 * **Gorf (1981)**
 * **Gyruss (1983)**
