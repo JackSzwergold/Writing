@@ -20,7 +20,10 @@ The first time I played *Berzerk* was in this discount store on Brighton Beach A
 
 *Bite Monster* was this weird—and aparently German made—*Pac-Man* clone they had at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. Gameplay was the same as *Pac-Man* but the game cabinet itself was a but junky. Like the joystick was really wobbly compared to even a real *Pac-Man* machine and the metal control panel where the joystick was placed was loose. So kids who put their quarters up on the console often had them slip behind that metal part which meant we had to complain to the store owner who would give a kid a new quarter but still complain about it. Until I saw a real *Pac-Man* machine, I always thought this game was called *Bite Monster*.
 
-* **Boot Hill (1977)**
+#### Boot Hill (1977)
+
+The first actual video game I ever played. I spotted it at Nathan’s in Time Square on Broadway and 45th Street; the building now is the home to NASDAQ headquarters. Me and my dad were going to Nathan’s one day to check out the puppet show they had in the basement for kids. It was a pretty decent puppet show and every so often we would go; admission was free and I might score a hot dog. As we walked into to the building, I spotted *Boot Hill* near the front of the place and was basically hypnotized by it. Simple cowboy shootout setup with one gunner on one side of the screen and a gunner on the other. But it looked cool since it had some reflected background that was painted to look like some desolate old west town. The gameplay kinda sucked, but the whole experience felt cool and fun.
+
 * **Bosconian (1981)**
 * **Carnival (1980)**
 * **Centipede (1981)**
