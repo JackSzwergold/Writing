@@ -32,8 +32,10 @@ The first time I played this game was at *Faber’s Fascination* in Coney Island
 
 Played *Carnival* when I went on a trip to Vermont with some school friends and we stopped at a local arcade. The graphics of the game looked cool in the magazines I read, but the gameplay was stiff and a bit boring. Just like a shooting gallery, but in a video game form but with no prizes.
 
+#### Centipede (1981)
 
-* **Centipede (1981)**
+Played *Centipede* for the first time at an arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*. It was a fun game mainly because of the trackball; slamming it to roll rom side to side was a cool experience.
+
 * **Defender (1980)**
 * **Donkey Kong (1981)**
 * **Donkey Kong Jr. (1982)**
