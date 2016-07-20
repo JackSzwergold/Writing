@@ -88,7 +88,10 @@ The first time I played *Moon Cresta* was in this discount store on Brighton Bea
 
 The first time I played *Moon Patrol* was at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. They had the machine outside of their store and facing Brighton Beach Avenue itself which made gameplay awkward—if not impossible—on bright and sunny days. The game itself was fun since it introduced the idea of jumping an driving as well as shooting aliens to the mix. Graphics and music were cool too.
 
-* **Mr. Do (1982)**
+#### Mr. Do (1982)
+
+Of all of the games I ever played as a kid, *Mr. Do* was the one I was truly most obsessed with.
+
 * **Ms. Pac Man (1981)**
 * **Phoenix (1980)**
 * **Pole Position (1982)**
