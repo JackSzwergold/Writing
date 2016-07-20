@@ -50,7 +50,7 @@ The first time I played *Donkey Kong Jr.* was at the Kings Plaza Mall which was 
 
 #### The Empire Strikes Back (1985)
 
-
+The first time I played *The Empire Strikes Back* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. Pretty certain it was the stand up model of the game. It had simialr vector graphics to what the original *Star Wars* game had, but this game was way more fun. Being able to fly through the legs of AT-AT’s was really great and one of the most fun 3D game experiences I ever had.
 
 
 * **Firefox (1982)**
