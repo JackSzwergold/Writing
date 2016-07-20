@@ -76,7 +76,10 @@ I barely remember the first time I played *Joust* but I was really into it. It m
 
 I was a little bit obsessed with *Lunar Lander* as a kid since I kept on reading about it in video game magazines and I first played it at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. It was a vector graphics game where the whole object of the game was to land a lunar lander on some rocky surface; you scored points based on how difficult it was to reach a landing playform. The gameplay was frustrating since you could only spin the lunar lander left or right and fire a booster rocket to control descent. This all mimics what a real lander might have to do in the real world, but it always frustrated me and gave me a headache.
 
-* **Missile Command (1980)**
+#### Missile Command (1980)
+
+The first time I played *Missile Command* was at this arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*. In fact it might have been the first game I ever played at *Forty Thieves*. The great appeal of the game was using the huge trackball to move your target acrosss the screen to intercept enemy missiles. The surreal part of the game is how you could never win and anytime you played it would just end with a hueg series of nuclear explosions appearing with the words, “The End” forming in the middle of it. Not a “feel good” for a kid growing up in the middle of the Cold War in the 1970s/1980s.
+
 * **Moon Cresta (1980)**
 * **Moon Patrol (1982)**
 * **Mr. Do (1982)**
