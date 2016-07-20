@@ -112,7 +112,10 @@ The first time I played *Robotron 2084* was at *Faber’s Fascination* in Coney 
 
 The first time I played *Star Castle* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. This game got me hooked from the beginning. The vector graphics with just a small hint of color—thanks to color overlays—looked cool and the gameplay was very smooth. And since I liked bumper cars it was fun to bump the starship you controlled into the titular Star Castle’s shields. It was like *Asteroids* but just more fun.
 
-* **Space Invaders (1978)**
+#### Space Invaders (1978)
+
+The first time I played *Space Invaders* was at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. It was one of three aracade games *Forty Thieves* had—*Gorf*, *Bite Monster (Pac-Man clone)* and *Space Invaders*—and utterly nobody played *Space Invaders* since it seemed old and out of date: *Gorf* was basicaly *Space Invaders* with more options/levels and *Bite Monster* was the star of the trio of games since everyone had *Pac-Man* fever or something like that. I did like one thing about *Space Invaders*: The sound design. The deep bass of the aliens thumping down across the screen and the sheer shimmering sound of lasers being fired was something unique that I never heard in any other video games of the time.
+
 * **Star Wars (1983)**
 * **Starhawk (1977)**
 * **Tutankham (1982)**
