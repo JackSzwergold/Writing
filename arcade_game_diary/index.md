@@ -70,9 +70,12 @@ The first time I ever played *Gauntlet* was at a drug store in Midwood on the co
 
 #### Joust (1982)
 
-I barely remember the first time I played *Joust* but I was really into it. It might have been at at *Faber’s Fascination* in Coney Island… but not too sure.
+I barely remember the first time I played *Joust* but I was really into it. It might have been at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue… but not too sure.
 
-* **Lunar Lander (1979)**
+#### Lunar Lander (1979)
+
+I was a little bit obsessed with *Lunar Lander* as a kid since I kept on reading about it in video game magazines and I first played it at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. It was a vector graphics game where the whole object of the game was to land a lunar lander on some rocky surface; you scored points based on how difficult it was to reach a landing playform. The gameplay was frustrating since you could only spin the lunar lander left or right and fire a booster rocket to control descent. This all mimics what a real lander might have to do in the real world, but it always frustrated me and gave me a headache.
+
 * **Missile Command (1980)**
 * **Moon Cresta (1980)**
 * **Moon Patrol (1982)**
