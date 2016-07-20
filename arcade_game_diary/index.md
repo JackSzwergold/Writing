@@ -116,7 +116,10 @@ The first time I played *Star Castle* was at *Faber’s Fascination* in Coney Is
 
 The first time I played *Space Invaders* was at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. It was one of three aracade games *Forty Thieves* had—*Gorf*, *Bite Monster (Pac-Man clone)* and *Space Invaders*—and utterly nobody played *Space Invaders* since it seemed old and out of date: *Gorf* was basicaly *Space Invaders* with more options/levels and *Bite Monster* was the star of the trio of games since everyone had *Pac-Man* fever or something like that. I did like one thing about *Space Invaders*: The sound design. The deep bass of the aliens thumping down across the screen and the sheer shimmering sound of lasers being fired was something unique that I never heard in any other video games of the time.
 
-* **Star Wars (1983)**
+#### Star Wars (1983)
+
+The first time I played *Star Wars* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. The machine was the sit-down model of the game so it cost 50 cents to play—instead of the 25 cents for the stand-up model—but it was well worth it to feel like you were in the cockpit of an X-Wing fighter. Destroying the Death Star was fun, but as each level progressed the game got boring. Maneuvering around towers on the Death Star’s surface on higher levels was fun, but past that it just played faster and faster of the same theme. How many times can you destroy the Death Star before you feel you can just go home already?
+
 * **Starhawk (1977)**
 * **Tutankham (1982)**
 * **Vanguard (1981)**
