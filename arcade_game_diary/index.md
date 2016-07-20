@@ -16,7 +16,10 @@ I believe the first time I played *Battlezone* might have been in 1979 or 1980 a
 
 The first time I played *Berzerk* was in this discount store on Brighton Beach Avenue that was eventually called *Bertas* but had some generic sounding discount store name. It was weird since they spread out a few arcade games to wherever they could plug one in. And *Berzerk* was facing the far wall away from the windows—where other arcade games were setup—and away from the main entrance.
 
-* **Bite Monster (Pac-Man clone) (1980)**
+#### Bite Monster (Pac-Man clone) (1980)
+
+*Bite Monster* was this weird *Pac-Man* clone they had at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. Gameplay was the same
+
 * **Boot Hill (1977)**
 * **Bosconian (1981)**
 * **Carnival (1980)**
