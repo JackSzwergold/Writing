@@ -64,7 +64,11 @@ The first time I ever played *Gauntlet* was at a drug store in Midwood on the co
 
 *Gorf* was a great value of a junior high school kid with limited funds who wanted to play a variety of games for a single quarter. The first time I played it was at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. It was one of three games they had at the time: *Space Invaders*, *Bite Monster (Pac-Man Clone)* and *Gorf*. *Gorf* was fun to play since it had five levels, started off like *Space Invaders* and had a level later on that was just like *Galaxian*. It’s weird this candy store would have *Gorf* and *Space Invaders* since why would anyone play *Space Invaders* when they could play *Gorf* instead. The game also talked to you to taunt you and the controller was a joystick with a trigger on it that looked/felt like a fighter pilot’s control stick. The one thing that did stink about *Gorf* is how unsmooth the gameplay was; it was like it was programmed in some clunky language like Forth or something and never optimized for speed.
 
-* **Gyruss (1983)**
+#### Gyruss (1983)
+
+*Gyruss* was a cool clone of *Tempest* that used raster graphics instead of vector graphics. It was fun since the gameplay also felt like a 3D version of *Galga*. I am not 100% on where I first played *Gyruss* but I am pretty sure it was at *Faber’s Fascination* in Coney Island… But part of me thinks I first played the game in the student union building at Brooklyn College; the basement of the place had a full-on arcade with all kinds of cool games like *The Empire Strikes Back*, *Gyruss*, *Mappy* 
+
+
 * **Joust (1982)**
 * **Lunar Lander (1979)**
 * **Missile Command (1980)**
