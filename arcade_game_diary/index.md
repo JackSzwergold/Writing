@@ -40,7 +40,10 @@ Played *Centipede* for the first time at an arcade called *Captain’s Quarters*
 
 Played *Defender* for the first time at this sketchy storefront on Neptune Avenue around Brighton 3rd Street. It was sketchy because it was a small, dark storefront with utterly nothing else in the place but a soda machine, some random chairs and this arcade machine. It’s like some anti-social loser was friends with the owner of the building and they just let them open a crazy storefront just with one video game in it: *Defender*. The game was fun to play, but intense. What was also intense is most of the time me and friends would go inside to play it, there was seemingly nobody inside the store. One time we were playing it and this guy with blonde hair who looked a bit handsome—but a bit “junkie”-ish—came out from the back area of the store to stand behind us and say, “That’s a fun game, right?” And then would head back into the back of the store. The place never creeped me out enough for me to stop going there. What did get me to stop going there was just the fact that *Defender* was just too intense for me to deal with.
 
-* **Donkey Kong (1981)**
+#### Donkey Kong (1981)
+
+The first time I ever played *Donkey Kong* was at Met Food; the supermarket across the street from me on Brighton Beach Avenue and Ocean Parkway. I was walking down the block to head to either the library, toy store or bookstore and noticed the cabinent near the main entrance. I walked in and saw one a kid I knew in school, Aaron, playing the game. I looked over his shoulders and it looked cool. The characters seemed cool and it looked a little bit like Popeye. Aaron asked me as he was playing, “You ever play this before, Jack?” I shook my head to say “No…” and he kept on playing.  After he was done, he pulled out some pre-printed sports gambling pad he had in is pocket. “Do you like football, Jack?” I turned to him and said “No…” and with that he put the pad back in his pocket, said goodbye to me and headed outside. After he left, I took a quarter out of my pocket and tossed it in the machine to play *Donkey Kong* myself. The game was fun, but it seemed repetetive.
+
 * **Donkey Kong Jr. (1982)**
 * **Empire Strikes Back (1985)**
 * **Firefox (1982)**
