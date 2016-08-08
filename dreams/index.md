@@ -53,7 +53,7 @@ I am sitting on a subway train and see what looks like a penny on the floor. I l
 I dream I have a silver dollar and a half dollar coin. But not any ordinary silver dollar and half dollar coins since these coins are heavy, thick and huge; like as huge as two small dinner plates.
 
 #### [August 6, 2016: A Cache of Cool Junk](A%20Cache%20of%20Cool%20Junk)
-I dream I have a silver dollar and a half dollar coin. But not any ordinary silver dollar and half dollar coins since these coins are heavy, thick and huge; like as huge as two small dinner plates.
+I had a dream about finding a cache of cool junk.
 
 ***
 
