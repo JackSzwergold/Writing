@@ -64,7 +64,7 @@ Really excited to get an R5-D4 figure since that droid looked cool despite havin
 
 #### Luke Skywalker X-Wing Pilot (Youth World)
 
-While I was hesitant to accept this new “expansion” line of figures, but Luke Skywalker in an X-Wing pilot outfit looked better in an X-Wing cockpit. But it was still a stupid figure because now I had two Lukes.
+While I was hesitant to accept this new “expansion” line of figures, but Luke Skywalker in an X-Wing pilot outfit looked better in an X-Wing cockpit. But it was still a stupid figure because now I had two Luke figures.
 
 #### Walrus Man (Youth World)
 
@@ -76,11 +76,11 @@ Much like Walrus Man, I got Hammerhead for cheap and because I had an addiction.
 
 #### Greedo (Youth World)
 
-I had more mixed feelings about Greedo. Remember buying the figure at some point in the school year when we all had time off. Maybe before spring break or summer break. Ran into some kids from school on the street who said I should go to some afterschool gym class or something, but I didn’t trust the gym teachers there so I made some excuse to go home and open up Greedo.
+I had more mixed feelings about Greedo. Remember buying the figure at some point in the school year when we all had time off. Maybe before spring break or summer break. Ran into some kids from school on the street who said I should go to some after school gym class or something, but I didn’t trust the gym teachers there so I made some excuse to go home and open up Greedo.
 
 #### Boba Fett (Mail Away Offer)
 
-Awesome figure! First mail away figure that had a “mysterious” role in the nex movie, *The Empire Strikes Back*. Had to save proof of purchase points from other figures I collected and send them in with a small shipping and handling fee to Kenner HQ and wait 6 weeks to get this figure in the mail in a small, white box. Such a cool thing! Except for the fact the missile firing backpack wasn’t going to fire a missle since Kenner—and other toy companies—neutered missile firing toys after some kid choked on one from a *Battlestar Galactica* toy.
+Awesome figure! First mail away figure that had a “mysterious” role in the next movie, *The Empire Strikes Back*. Had to save proof of purchase points from other figures I collected and send them in with a small shipping and handling fee to Kenner HQ and wait 6 weeks to get this figure in the mail in a small, white box. Such a cool thing! Except for the fact the missile firing backpack wasn’t going to fire a missile since Kenner—and other toy companies—neutered missile firing toys after some kid choked on one from a *Battlestar Galactica* toy.
 
 #### Power Droid (Youth World)
 
