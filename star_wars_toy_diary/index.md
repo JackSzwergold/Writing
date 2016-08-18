@@ -80,10 +80,11 @@ I had more mixed feelings about Greedo. Remember buying the figure at some point
 
 #### Boba Fett (Mail Away Offer)
 
-First mail away figure that had a “mysterious” role in the nex movie, *The Empire Strikes Back*.
+Awesome figure! First mail away figure that had a “mysterious” role in the nex movie, *The Empire Strikes Back*. Had to save proof of purchase points from other figures I collected and send them in with a small shipping and handling fee to Kenner HQ and wait 6 weeks to get this figure in the mail in a small, white box. Such a cool thing! Except for the fact the missile firing backpack wasn’t going to fire a missle since Kenner—and other toy companies—neutered missile firing toys after some kid choked on one from a *Battlestar Galactica* toy.
 
+#### Power Droid (Youth World)
 
-* **Power Droid (Youth World)**
+One of the last figures I bought from the first *Star Wars* line. The Power Droid was cool, but goofy. I think I paid like $1.59 for that figure. The cardback was beat to hell, but hey… A bargain is a bargain.
 
 ***
 
