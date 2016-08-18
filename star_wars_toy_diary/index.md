@@ -70,10 +70,19 @@ While I was hesitant to accept this new “expansion” line of figures, but Luk
 
 I bought Walrus Man because the figure was going for like $1.79 or something and I had to fill my need to buy more *Star Wars* figures.
 
+#### Hammerhead (Youth World)
 
-* **Hammerhead (Youth World)**
-* **Greedo (Youth World)**
-* **Boba Fett (Mail Away Offer)**
+Much like Walrus Man, I got Hammerhead for cheap and because I had an addiction. And it was Hammerhead.
+
+#### Greedo (Youth World)
+
+I had more mixed feelings about Greedo. Remember buying the figure at some point in the school year when we all had time off. Maybe before spring break or summer break. Ran into some kids from school on the street who said I should go to some afterschool gym class or something, but I didn’t trust the gym teachers there so I made some excuse to go home and open up Greedo.
+
+#### Boba Fett (Mail Away Offer)
+
+First mail away figure that had a “mysterious” role in the nex movie, *The Empire Strikes Back*.
+
+
 * **Power Droid (Youth World)**
 
 ***
