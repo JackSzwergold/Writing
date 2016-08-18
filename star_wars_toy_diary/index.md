@@ -62,8 +62,15 @@ These were some of the hardest figures to get. When my brother heard I wanted th
 
 Really excited to get an R5-D4 figure since that droid looked cool despite having a bad motivator. But the back of the card revealed all kinds of oddball characters nobody really cared about on it back of it. It was clear to me they were milking the line for what it was worth.
 
-* **Luke Skywalker X-Wing Pilot (Youth World)**
-* **Walrus Man (Youth World)**
+#### Luke Skywalker X-Wing Pilot (Youth World)
+
+While I was hesitant to accept this new “expansion” line of figures, but Luke Skywalker in an X-Wing pilot outfit looked better in an X-Wing cockpit. But it was still a stupid figure because now I had two Lukes.
+
+#### Walrus Man (Youth World)
+
+I bought Walrus Man because the figure was going for like $1.79 or something and I had to fill my need to buy more *Star Wars* figures.
+
+
 * **Hammerhead (Youth World)**
 * **Greedo (Youth World)**
 * **Boba Fett (Mail Away Offer)**
