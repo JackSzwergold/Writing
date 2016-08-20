@@ -108,7 +108,9 @@ I started to scope out new and different stores outside of Brighton Beach in my 
 
 Lando was pretty cool. First major black character in a *Star Wars* film. The figure came with a plastic cape but I took it off since he looked better without it.
 
-* **Yoda (Youth World)**
+#### Yoda (Youth World)
+
+The coolest of all of the figures I had. Yoda had a cloth jacket, small belt, walking cane and an orange snake. When I felt I outgrew the *Star Wars* toys, I still kept Yoda on my desk.
 
 * **Imperial Stormtrooper (Hoth Battle Gear)**
 * **Leia Organa (Bespin Gown)**
