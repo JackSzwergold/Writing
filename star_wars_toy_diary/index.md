@@ -6,7 +6,7 @@ This section is a placeholder for memories connected to collection *Star Wars* a
 
 ## 1977/1978
 
-The original 12 *Star Wars* figures were a big deal to me—and other kids—and collecting them was an acheivable goal.
+The original 12 *Star Wars* figures were a big deal to me—and other kids—and collecting them was an achievable goal.
 
 #### Luke Skywalker (Youth World)
 
@@ -84,7 +84,7 @@ I had more mixed feelings about Greedo. Remember buying the figure at some point
 
 #### Power Droid (Youth World)
 
-One of the last figures I bought from the first *Star Wars* line. The Power Droid was cool, but goofy. I think I paid like $1.59 for that figure. The cardback was beat to hell, but hey… A bargain is a bargain.
+One of the last figures I bought from the first *Star Wars* line. The Power Droid was cool, but goofy. I think I paid like $1.59 for that figure. The card-back was beat to hell, but hey… A bargain is a bargain.
 
 #### Boba Fett (Mail Away Offer)
 
@@ -114,7 +114,7 @@ The coolest of all of the figures I had. Yoda had a cloth jacket, small belt, wa
 
 #### Imperial Stormtrooper (Hoth Battle Gear)
 
-Like the orginal Stormtroopers from the first film, I got two of these guys. I hated the small plastic skirt they put on these figures, but their long blaster guns were pretty cool.
+Like the original Stormtroopers from the first film, I got two of these guys. I hated the small plastic skirt they put on these figures, but their long blaster guns were pretty cool.
 
 #### Bossk (Bounty Hunter)
 
@@ -132,10 +132,17 @@ Ditto as above, I bought this new Leia figure when I started to get bored with t
 
 One of the worst figures ever. It’s supposedly Han Solo, but the guy is so bundled up in winter gear it could be anyone. Bought it out of addictive boredom.
 
-#### Rebel Commander (Lee’s Toys/Variety on Avenue U)**
-* **Rebel Soldier (Hoth Battle Gear) (Lee’s Toys/Variety on Avenue U)**
-* **AT-AT Driver** (Variety Store on King’s Highway Near the Train Station)
+#### Rebel Commander (Lee’s Toys/Variety on Avenue U)
 
+Another score from a new store: *Lee’s Toys/Variety* on Avenue U near Coney Island Avenue. Another cool store to help me stretch my wings and explore other neighborhoods as a kid. A short ride on the B-68 and I was there. And honestly, they had a crappy selection of figures, but I spotted this one and decided to add it to my mix. If I had a Han Solo figure bundled up for winter combat, might as well have had a commander figure as well.
+
+#### Rebel Soldier (Hoth Battle Gear) (Lee’s Toys/Variety on Avenue U)
+
+There were no Rebel soldier figures in the original *Star Wars* line so I guess I had to buy this one.
+
+#### AT-AT Driver (Variety Store on King’s Highway Near the Train Station)
+
+I didn’t own a full sized AT-AT play-set, but wanted to get this figure mainly for the design quality. Honestly the paint job on this, slightly better quality plastic cool rifle hooked me. But I remember buying this figure and then—literally—not caring about buying *Star Wars* figures anymore. I was done.
 
 ***
 
