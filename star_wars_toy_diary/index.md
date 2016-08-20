@@ -6,6 +6,8 @@ This section is a placeholder for memories connected to collection *Star Wars* a
 
 ## 1977/1978
 
+The original 12 *Star Wars* figures were a big deal to me—and other kids—and collecting them was an acheivable goal.
+
 #### Luke Skywalker (Youth World)
 
 Very first figure I bought with a begged for advance from my allowance.
@@ -58,6 +60,8 @@ These were some of the hardest figures to get. When my brother heard I wanted th
 
 ## 1978
 
+With the exception of the mail-away offer Boba Fett, the rest of these figures seem to have been spit out by Kenner to cash in on the *Star Wars* craze that was sweeping the world at that time. And of course I had to buy these figures as well to complete my collection.
+
 #### R5-D4 (Cameo Stationery)
 
 Really excited to get an R5-D4 figure since that droid looked cool despite having a bad motivator. But the back of the card revealed all kinds of oddball characters nobody really cared about on it back of it. It was clear to me they were milking the line for what it was worth.
@@ -78,27 +82,39 @@ Much like Walrus Man, I got Hammerhead for cheap and because I had an addiction.
 
 I had more mixed feelings about Greedo. Remember buying the figure at some point in the school year when we all had time off. Maybe before spring break or summer break. Ran into some kids from school on the street who said I should go to some after school gym class or something, but I didn’t trust the gym teachers there so I made some excuse to go home and open up Greedo.
 
-#### Boba Fett (Mail Away Offer)
-
-Awesome figure! First mail away figure that had a “mysterious” role in the next movie, *The Empire Strikes Back*. Had to save proof of purchase points from other figures I collected and send them in with a small shipping and handling fee to Kenner HQ and wait 6 weeks to get this figure in the mail in a small, white box. Such a cool thing! Except for the fact the missile firing backpack wasn’t going to fire a missile since Kenner—and other toy companies—neutered missile firing toys after some kid choked on one from a *Battlestar Galactica* toy.
-
 #### Power Droid (Youth World)
 
 One of the last figures I bought from the first *Star Wars* line. The Power Droid was cool, but goofy. I think I paid like $1.59 for that figure. The cardback was beat to hell, but hey… A bargain is a bargain.
+
+#### Boba Fett (Mail Away Offer)
+
+Awesome figure! First mail away figure that had a “mysterious” role in the next movie, *The Empire Strikes Back*. Had to save proof of purchase points from other figures I collected and send them in with a small shipping and handling fee to Kenner HQ and wait 6 weeks to get this figure in the mail in a small, white box. Such a cool thing! Except for the fact the missile firing backpack wasn’t going to fire a missile since Kenner—and other toy companies—neutered missile firing toys after some kid choked on one from a *Battlestar Galactica* toy.
 
 ***
 
 ## 1980
 
+When *The Empire Strikes Back* came out, of course a whole new line of figures came out. And while I bought a few of them, I was outgrowing them and just didn’t have the strength or energy to buy them all. But I did buy some of them.
+
+#### Luke Skywalker (Bespin Fatigues)
+
+Of course I had to score another Luke Skywalker figure. This one was actually cooler than the other two Luke figures that were released since his lightsaber was not shoved up his arm and he came with a blaster gun as well.
+
+#### Han Solo (Bespin Outfit) (Variety Store on King’s Highway Near the Train Station)
+
+I started to scope out new and different stores outside of Brighton Beach in my quest to find cool new toys. The *Variety Store* on King’s Highway was one of them. One block away from the King’s Highway stop on the D line and they had tons of stuff. Han Solo in Bespin gear was basically like Han Solo from the first line of toys; but this figure had brown pants.
+
+#### Lando Calrissian (Youth World)
+
+Lando was pretty cool. First major black character in a *Star Wars* film. The figure came with a plastic cape but I took it off since he looked better without it.
+
 * **Yoda (Youth World)**
-* **Lando Calrissian (Youth World)**
-* **Luke Skywalker (Bespin Fatigues)**
+
 * **Imperial Stormtrooper (Hoth Battle Gear)**
 * **Leia Organa (Bespin Gown)**
 * **Han Solo (Hoth Outfit)**
 * **Bossk (Bounty Hunter)**
 * **Rebel Commander (Lee’s Toys/Variety on Avenue U)**
-* **Han Solo (Bespin Outfit) (Variety Store on King's Highway Near the Train Station)**
 
 ***
 
