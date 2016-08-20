@@ -92,7 +92,7 @@ Awesome figure! First mail away figure that had a “mysterious” role in the n
 
 ***
 
-## 1980
+## 1980/1981
 
 When *The Empire Strikes Back* came out, of course a whole new line of figures came out. And while I bought a few of them, I was outgrowing them and just didn’t have the strength or energy to buy them all. But I did buy some of them.
 
@@ -112,11 +112,30 @@ Lando was pretty cool. First major black character in a *Star Wars* film. The fi
 
 The coolest of all of the figures I had. Yoda had a cloth jacket, small belt, walking cane and an orange snake. When I felt I outgrew the *Star Wars* toys, I still kept Yoda on my desk.
 
-* **Imperial Stormtrooper (Hoth Battle Gear)**
-* **Leia Organa (Bespin Gown)**
-* **Han Solo (Hoth Outfit)**
-* **Bossk (Bounty Hunter)**
-* **Rebel Commander (Lee’s Toys/Variety on Avenue U)**
+#### Imperial Stormtrooper (Hoth Battle Gear)
+
+Like the orginal Stormtroopers from the first film, I got two of these guys. I hated the small plastic skirt they put on these figures, but their long blaster guns were pretty cool.
+
+#### Bossk (Bounty Hunter)
+
+Right next to Yoda, I really liked this Bossk figure. The character looked cool and he carried a weird gun.
+
+#### Princess Leia Organa (Hoth Outfit)
+
+I bought this new Leia figure when I started to get bored with the toy line. I bought her just to have some kind of complete set of the new “hero” figures.
+
+#### Princess Leia Organa (Bespin Gown)
+
+Ditto as above, I bought this new Leia figure when I started to get bored with the toy line. I bought her just to have some kind of complete set of the new “hero” figures.
+
+#### Han Solo (Hoth Outfit)
+
+One of the worst figures ever. It’s supposedly Han Solo, but the guy is so bundled up in winter gear it could be anyone. Bought it out of addictive boredom.
+
+#### Rebel Commander (Lee’s Toys/Variety on Avenue U)**
+* **Rebel Soldier (Hoth Battle Gear) (Lee’s Toys/Variety on Avenue U)**
+* **AT-AT Driver** (Variety Store on King’s Highway Near the Train Station)
+
 
 ***
 
