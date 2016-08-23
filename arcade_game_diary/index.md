@@ -6,51 +6,51 @@ This section is a placeholder for memories connected to arcade games I liked—a
 
 ## 1977
 
-#### Boot Hill (1977)
+#### [Boot Hill (1977)](Boot%20Hill)
 
-The first actual video game I ever played. I spotted it at Nathan’s in Time Square on Broadway and 45th Street; the building now is the home to NASDAQ headquarters. Me and my dad were going to Nathan’s one day to check out the puppet show they had in the basement for kids. It was a pretty decent puppet show and every so often we would go; admission was free and I might score a hot dog. As we walked into to the building, I spotted *Boot Hill* near the front of the place and was basically hypnotized by it. Simple cowboy shootout setup with one gunner on one side of the screen and a gunner on the other. But it looked cool since it had some reflected background that was painted to look like some desolate old west town. The gameplay kinda sucked, but the whole experience felt cool and fun.
+Some memories of the first vide game I ever played.
 
-#### Starhawk (1977)
+#### [Starhawk (1977)](Starhawk)
 
-The first time I played *Star Hawk* was at some pizzeria on the Upper East Side or near Murray Hill or Kips Bay near the United Nations. My older brother was dragging me to some performance or some shit like that at the 92nd Street Y or something so we made a pit stop to get some food. Before we even entered the pizzeria, I spotted some store selling cool Japanese toys near where we parked and begged my brother to let me go in and check them out. He refused saying we were running late and we}d go there “Some other time…” or some bullshit like that so we just went to the pizzeria. When I walked inside the place, the pizzeria was like any other… But on one side there was this *Star Hawk* arcade game all the kids where hovering around. Nobody was playing it; they were just watching the “attract mode” screens. Me and my brother ordered some pizza and I made sure to finish my one measly slice before he did and asked, “Can I play the game over there?” He agreed but stated clearly, “We’re running late so make it quick.” I went over to the machine and started playing the game. It was basically trying to cash in on *Star Wars* with some endless trench run happening with random space ships popping up out of nowhere you had to shoot. The game kind of sucked, but it was fun to look at and even more fun with a group kids hovering around you. Soon, my brother was done and he came over and said gently, “We have to go…” but I was still playing… And doing pretty good at it as well. I kept on playing until he became belligerent about us having to leave to see whatever performance we were supposed to see and I basically left the machine in mid-game and let some other kids hovering around me play. It was good to see other kids smile and thank me, but that feeling disappeared as my brother rushed me angrily out of the shop so we could go to whatever this performance was. To this day I barely remember what it was; may it was *Mummenschanz*? Don’t know and don’t care since my brother’s behavior and anger wiped away most any joy I could have gotten from the performance that day.
+Starhawk was a crappy *Star Wars* rip off of a video game, but I still liked it.
 
 ## 1978
 
-#### Space Invaders (1978)
+#### [Space Invaders (1978)](Space%20Invaders)
 
-The first time I played *Space Invaders* was at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. It was one of three arcade games *Forty Thieves* had—*Gorf*, *Bite Monster (Pac-Man clone)* and *Space Invaders*—and utterly nobody played *Space Invaders* since it seemed old and out of date: *Gorf* was basically *Space Invaders* with more options/levels and *Bite Monster* was the star of the trio of games since everyone had *Pac-Man* fever or something like that. I did like one thing about *Space Invaders*: The sound design. The deep bass of the aliens thumping down across the screen and the sheer shimmering sound of lasers being fired was something unique that I never heard in any other video games of the time.
+The first time I played *Space Invaders* I was bored with it because there were already better options out there.
 
 ## 1979
 
-#### Asteroids (1979)
+#### [Asteroids (1979)](Asteroids)
 
 The first time I played *Asteroids* was in 1979 or 1980 at this arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*.
 
-#### Lunar Lander (1979)
+#### [Lunar Lander (1979)](Lunar%20Lander)
 
-I was a little bit obsessed with *Lunar Lander* as a kid since I kept on reading about it in video game magazines and I first played it at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. It was a vector graphics game where the whole object of the game was to land a lunar lander on some rocky surface; you scored points based on how difficult it was to reach a landing platform. The gameplay was frustrating since you could only spin the lunar lander left or right and fire a booster rocket to control descent. This all mimics what a real lander might have to do in the real world, but it always frustrated me and gave me a headache.
+All of the video game magazines out there talked about *Lunar Lander* so I was obsessed with playing it.
 
 ## 1980
 
-#### Battlezone (1980)
+#### [Battlezone (1980)](Battlezone)
 
-I believe the first time I played *Battlezone* might have been in 1979 or 1980 at this arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*. But another part of me seems to recall first playing this game in Coney Island at the *Faber’s Fascination* arcade on Surf Avenue near Neptune Avenue across the street from the subway station.
+Playing *Battlezone* was pretty cool.
 
-#### Berzerk (1980)
+#### [Berzerk (1980)](Battlezone)
 
-The first time I played *Berzerk* was in this discount store on Brighton Beach Avenue—near Coney Island Avenue—that was eventually called *Bertas* but had some generic sounding discount store name when I played this game there. It was weird since they spread out a few arcade games to wherever they could plug one in. And *Berzerk* was facing the far wall away from the windows—where other arcade games were setup—and away from the main entrance.
+*Berzerk* was the first “running and shooting people in a maze” game I ever played.
 
-#### Bite Monster (Pac-Man clone) (1980)
+#### [Bite Monster (Pac-Man clone) (1980)](Bite%20Monster)
 
-*Bite Monster* was this weird—and apparently German made—*Pac-Man* clone they had at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. Gameplay was the same as *Pac-Man* but the game cabinet itself was a but junky. Like the joystick was really wobbly compared to even a real *Pac-Man* machine and the metal control panel where the joystick was placed was loose. So kids who put their quarters up on the console often had them slip behind that metal part which meant we had to complain to the store owner who would give a kid a new quarter but still complain about it. Until I saw a real *Pac-Man* machine, I always thought this game was called *Bite Monster*.
+*Bite Monster* was a *Pac-Man* clone that I played before I knew what *Pac-Man* was.
 
-#### Bosconian (1981)
+#### [Bosconian (1981)](Bosconian)
 
-The first time I played this game was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. The game was cool because you could explore and scroll through the small space scene the gameplay took place in. Destroying space stations was not cool. And sadly I was mugged by two other kids around my age on Henderson Walk just outside of the arcade as I was trying to go home. They basically just pushed me against the wall and threatened me, and I gave them the two measly dollars I had left. Walked back to the boardwalk and cried all the way home to Ocean Parkway.
+I played *Bosconian* in Coney Island and got mugged.
 
-#### Carnival (1980)
+#### [Carnival (1980)](Carnival)
 
-Played *Carnival* when I went on a trip to Vermont with some school friends and we stopped at a local arcade. The graphics of the game looked cool in the magazines I read, but the gameplay was stiff and a bit boring. Just like a shooting gallery, but in a video game form but with no prizes.
+*Carnival* was a boring shooting gallery game, but I read up on it and had to play it.
 
 #### Defender (1980)
 
