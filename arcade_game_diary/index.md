@@ -48,13 +48,13 @@ Playing *Battlezone* was pretty cool.
 
 *Carnival* was a boring shooting gallery game, but I read up on it and had to play it.
 
-#### Defender (1980)
+#### [Defender (1980)](Defender)
 
-Played *Defender* for the first time at this sketchy storefront on Neptune Avenue around Brighton 3rd Street. It was sketchy because it was a small, dark storefront with utterly nothing else in the place but a soda machine, some random chairs and this arcade machine. It’s like some anti-social loser was friends with the owner of the building and they just let them open a crazy storefront just with one video game in it: *Defender*. The game was fun to play, but intense. What was also intense is most of the time me and friends would go inside to play it, there was seemingly nobody inside the store. One time we were playing it and this guy with blonde hair who looked a bit handsome—but a bit “junkie”-ish—came out from the back area of the store to stand behind us and say, “That’s a fun game, right?” And then would head back into the back of the store. The place never creeped me out enough for me to stop going there. What did get me to stop going there was just the fact that *Defender* was just too intense for me to deal with.
+The first time I played *Defender* was at this sketchy storefront on Neptune Avenue around Brighton 3rd Street.
 
-#### Missile Command (1980)
+#### [Missile Command (1980)](Missile%20Command)
 
-The first time I played *Missile Command* was at this arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*. In fact it might have been the first game I ever played at *Forty Thieves*. The great appeal of the game was using the huge trackball to move your target across the screen to intercept enemy missiles. The surreal part of the game is how you could never win and anytime you played it would just end with a huge series of nuclear explosions appearing with the words, “The End” forming in the middle of it. Not a “feel good” for a kid growing up in the middle of the Cold War in the 1970s/1980s.
+The first time I played *Missile Command* was at this arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*.
 
 #### Moon Cresta (1980)
 
