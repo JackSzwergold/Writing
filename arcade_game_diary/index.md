@@ -44,10 +44,6 @@ Playing *Battlezone* was pretty cool.
 
 *Bite Monster* was a *Pac-Man* clone that I played before I knew what *Pac-Man* was.
 
-#### [Bosconian (1981)](Bosconian)
-
-I played *Bosconian* in Coney Island and got mugged.
-
 #### [Carnival (1980)](Carnival)
 
 *Carnival* was a boring shooting gallery game, but I read up on it and had to play it.
@@ -77,6 +73,10 @@ The first time I played *Star Castle* was at *Faber’s Fascination* in Coney Is
 The first time I played *Wizard of Wor* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. The game was fun but that’s about it.
 
 ## 1981
+
+#### [Bosconian (1981)](Bosconian)
+
+I played *Bosconian* in Coney Island and got mugged.
 
 #### Centipede (1981)
 
