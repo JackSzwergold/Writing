@@ -78,9 +78,9 @@ The first time I played *Wizard of Wor* was at *Faber’s Fascination* in Coney 
 
 I played *Bosconian* in Coney Island and got mugged.
 
-#### Centipede (1981)
+#### [Centipede (1981)](Centipede)
 
-Played *Centipede* for the first time at an arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*. It was a fun game mainly because of the trackball; slamming it to roll rom side to side was a cool experience.
+Played *Centipede* for the first time at an arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue.
 
 #### Donkey Kong (1981)
 
