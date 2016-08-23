@@ -100,41 +100,41 @@ The first time I played *Vanguard* was at some corner grocery store on Neptune A
 
 ## 1982
 
-#### Donkey Kong Jr. (1982)
+#### [Donkey Kong Jr. (1982)](Donkey%20Kong%20Jr)
 
-The first time I played *Donkey Kong Jr.* was at the Kings Plaza Mall which was located deep in Brooklyn near Canarsie in this neighborhood called Mill Basin. The game was one of many new games at the mall’s smallish, unenclosed arcade which was basically just a row of arcade machines near a Roy Rogers or some fast food place like that.
+The first time I played *Donkey Kong Jr.* was at the Kings Plaza Mall which was located deep in Brooklyn near Canarsie in this neighborhood called Mill Basin.
 
-#### Firefox (1982)
+#### [Firefox (1982)](Firefox)
 
-The first time I played *Firefox* was at the Astroland arcade which was on West 10th Street near Neptune Avenue in Coney Island; right across the way from the *Dante’s Inferno* dark ride. It was an outdoor arcade that had some kind of overhead shade, but otherwise was wide open and you could just walk through it without hassle. The game looked cool since it used actual footage from the motion picture it was based on, but the gameplay kind of sucked. I remember playing the game and Victor—this guy who was older than me who was the son of my mom’s friend in the building—spotted me and said, “These games are fun, right?” I nodded in agreement and he walked off to hang out with a friend of his (William?) who would hang out on the boardwalk and ogle the girls on the beach via a telephoto lens camera one of them had. Family friends but kind of creepy, right?
+The first time I played *Firefox* was at the Astroland arcade which was on West 10th Street near Neptune Avenue in Coney Island; right across the way from the *Dante’s Inferno* dark ride.
 
-#### Joust (1982)
+#### [Joust (1982)](Joust)
 
 I barely remember the first time I played *Joust* but I was really into it. It might have been at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue… but not too sure.
 
-#### Moon Patrol (1982)
+#### [Moon Patrol (1982)](Moon%20Patrol)
 
-The first time I played *Moon Patrol* was at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. They had the machine outside of their store and facing Brighton Beach Avenue itself which made gameplay awkward—if not impossible—on bright and sunny days. The game itself was fun since it introduced the idea of jumping an driving as well as shooting aliens to the mix. Graphics and music were cool too.
+The first time I played *Moon Patrol* was at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue.
 
-#### Mr. Do (1982)
+#### [Mr. Do (1982)](Mr%20Do)
 
-Of all of the games I ever played as a kid, *Mr. Do* was the one I was truly most obsessed with. I first played it at some candy store on Neptune Avenue near Brighton 6th or 5th street or something like that. This was literally the only arcade game they had in this small, well stocked, completely legit shop and they took good care of it. The owners would gladly provide kids with change for the machines and the kids would gladly buy some of the affordable snacks the shop had. I was obsessed with *Mr. Do* because the gameplay was fast, the graphics were cute and while it was technically a *Dig Dug* clone, it was just much more fun to play. And there were all kinds of bonuses. I don’t remember the exact high scores I made, but was pretty high for a kid on an arcade machine in a dumpy neighborhood and other kids were impressed so I was happy: Finally I could earn some level of basic respect from other neighborhood kids by playing a simple video game!
+Of all of the games I ever played as a kid, *Mr. Do* was the one I was truly most obsessed with.
 
-#### Pole Position (1982)
+#### [Pole Position (1982)](Pole%20Position)
 
-I barely remember the first place I played *Pole Position*. Maybe it was  *Rainbow Lanes*, a bowling alley in Sheepshead Bay? Don’t know but leaving this here until the memory pops back into my head.
+I barely remember the first place I played *Pole Position*.
 
-#### Robotron 2084 (1982)
+#### [Robotron 2084 (1982)](Robotron%202084)
 
-The first time I played *Robotron 2084* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. The game was fun because coordinating between the left joystick that controlled your movement and the right joystick that controlled your firing direction was difficult to get a hang of but still a fun skill to learn. The onscreen graphics were also fluid and cool. And while the gameplay could get insane on higher levels, it was still a fun ride to be on.
+The first time I played *Robotron 2084* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue.
 
-#### Tutankham (1982)
+#### [Tutankham (1982)](Tutankham)
 
 The first time I played *Tutankham* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. The game was fun but that’s about it.
 
-#### Xevious (1982)
+#### [Xevious (1982)](Xevious)
 
-First time I played *Xevious* was in this candy store on Neptune Avenue near Ocean Parkway; right near Lincoln High School. Pretty sure I first played it when I was going home after being let out on some day during my sophomore year in the school. The candy store was cool and had a few arcade games near the back. But the back of the store was kind of sketchy. I think they only had 3 video games in there at any given time and at one point even had *Dragon’s Lair* which was a big deal since it was a laserdisc video game that was completely animated and had no digital arcade-like characters in it.
+First time I played *Xevious* was in this candy store on Neptune Avenue near Ocean Parkway; right near Lincoln High School.
 
 ## 1983
 
