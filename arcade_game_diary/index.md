@@ -60,15 +60,15 @@ The first time I played *Missile Command* was at this arcade called *Captain’s
 
 The first time I played *Moon Cresta* was in this discount store on Brighton Beach Avenue near Coney Island Avenue.
 
-#### Phoenix (1980)
+#### [Phoenix (1980)](Phoenix)
 
-The first time I played *Phoenix* was in this discount store on Brighton Beach Avenue—near Coney Island Avenue—that was eventually called *Bertas* but had some generic sounding discount store name when I played this game there. The game setup for this game was weird since it was placed right next to the front windows of the store so you could see all of the old men and ladies walking back and forth—and waiting for the B68 or B1 bus—as you played. The game itself was fun since there were multiple levels and a “boss”-like level at the end where you had to destroy some floating space station that looked like the Comet Empire from *Star Blazers*. One odd memory I had of playing *Phoenix* was going up to the teenage cashier in front of the place when I needed change and she said bluntly, “No…” I was dejected enough that even when her co-worker explained I needed change to play the arcade games, I didn’t go back… I just walked out and walked home down Brighton Beach Avenue; blew some of that money on some comics at Nostrand Books before heading home.
+*Phoenix* was a cool shooting game that combined some elements of *Star Wars* and *Star Blazers*.
 
-#### Star Castle (1980)
+#### [Star Castle (1980)](Star%20Castle)
 
-The first time I played *Star Castle* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. This game got me hooked from the beginning. The vector graphics with just a small hint of color—thanks to color overlays—looked cool and the gameplay was very smooth. And since I liked bumper cars it was fun to bump the starship you controlled into the titular Star Castle’s shields. It was like *Asteroids* but just more fun.
+The first time I played *Star Castle* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue.
 
-#### Wizard of Wor (1980)
+#### [Wizard of Wor (1980)](Wizard%20of%20Wor)
 
 The first time I played *Wizard of Wor* was at *Faber’s Fascination* in Coney Island on Neptune Avenue near Surf Avenue. The game was fun but that’s about it.
 
