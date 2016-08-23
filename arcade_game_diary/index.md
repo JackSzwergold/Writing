@@ -24,7 +24,7 @@ The first time I played *Space Invaders* I was bored with it because there were 
 
 #### [Asteroids (1979)](Asteroids)
 
-The first time I played *Asteroids* was in 1979 or 1980 at this arcade called *Captain’s Quarters* that opened up on Brighton Beach Avenue near Coney Island Avenue; just down the block from *Forty Thieves*.
+The first time I played *Asteroids* was in 1979 or 1980 at this arcade called *Captain’s Quarters*.
 
 #### [Lunar Lander (1979)](Lunar%20Lander)
 
@@ -86,17 +86,17 @@ Played *Centipede* for the first time at an arcade called *Captain’s Quarters*
 
 The first time I ever played *Donkey Kong* was at Met Food; the supermarket across the street from me on Brighton Beach Avenue and Ocean Parkway.
 
-#### Gorf (1981)
+#### [Gorf (1981)](Gorf)
 
-*Gorf* was a great value of a junior high school kid with limited funds who wanted to play a variety of games for a single quarter. The first time I played it was at the *Forty Thieves* candy store on the corner of Brighton Beach Avenue and Coney Island Avenue. It was one of three games they had at the time: *Space Invaders*, *Bite Monster (Pac-Man Clone)* and *Gorf*. *Gorf* was fun to play since it had five levels, started off like *Space Invaders* and had a level later on that was just like *Galaxian*. It’s weird this candy store would have *Gorf* and *Space Invaders* since why would anyone play *Space Invaders* when they could play *Gorf* instead. The game also talked to you to taunt you and the controller was a joystick with a trigger on it that looked/felt like a fighter pilot’s control stick. The one thing that did stink about *Gorf* is how unsmooth the gameplay was; it was like it was programmed in some clunky language like Forth or something and never optimized for speed.
+*Gorf* was a great value of a junior high school kid with limited funds who wanted to play a variety of games for a single quarter.
 
-#### Ms. Pac Man (1981)
+#### [Ms. Pac Man (1981)](Ms%20Pac-Man)
 
-The first time I played *Ms. Pac-Man* was in Harrison, NJ. My sister and her family had moved to Harrison from Texas—where they used to live—and me and my dad were visiting Harrison at some point when I spotted a *Ms. Pac-Man* machine inside of a shop in a strip mall on our way to my sisters house. I don’t believe it was in an arcade, but I seem to recall it being setup right near the front of a laundromat or a pizza parlor or something like that. I begged my dad to go inside and play, and he relented. I only got to play one game, but my mind was blown: This game was better than I expected it to be based on video game magazine reviews/previews I read. Faster paced, more options more overall fun. Despite the fact I only played the game once it was the main topic of discussion I had with pretty much any adult I encountered during the rest of the visit.
+The first time I played *Ms. Pac-Man* was in Harrison, NJ.
 
-#### Vanguard (1981)
+#### [Vanguard (1981)](Vanguard)
 
-The first time I played *Vanguard* was at some corner grocery store on Neptune Avenue near Brighton 2nd Street. Weird detail, but I remember it being after school and the day was overcast to the point it seemed like it was going to rain. The grocery wasn’t sketchy but was one of these “Meh…” groceries that you could tell was once a decent place that was now on it’s way out. *Vanguard* was fun to play since there was a controller that moved you across a moving screen and 4 buttons to fire lasers in 4 different directions. It was definitely fun and a bit addictive but it was also one of the first arcade games I knew of where there was a clear ending; no rolling over the game to the beginning. Getting to the end of the game was tough but it was fun to try to see how far I could get. I remember asking the clerk behind the counter for some change once and she gladly gave me 4 quarters and said a bit catatonically, “Is that game fun?” She seemed burned out but was young and all I said was “Yes!” and went back to playing the game.
+The first time I played *Vanguard* was at some corner grocery store on Neptune Avenue near Brighton 2nd Street.
 
 ## 1982
 
