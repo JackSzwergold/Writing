@@ -112,11 +112,11 @@ Lando was pretty cool. First major black character in a *Star Wars* film. The fi
 
 The coolest of all of the figures I had. Yoda had a cloth jacket, small belt, walking cane and an orange snake. When I felt I outgrew the *Star Wars* toys, I still kept Yoda on my desk.
 
-#### Imperial Stormtrooper (Hoth Battle Gear)
+#### Imperial Stormtrooper Hoth Battle Gear (Youth World)
 
 Like the original Stormtroopers from the first film, I got two of these guys. I hated the small plastic skirt they put on these figures, but their long blaster guns were pretty cool.
 
-#### Bossk (Bounty Hunter)
+#### Bossk (Youth World)
 
 Right next to Yoda, I really liked this Bossk figure. The character looked cool and he carried a weird gun.
 
