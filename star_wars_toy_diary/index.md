@@ -120,15 +120,15 @@ Like the original Stormtroopers from the first film, I got two of these guys. I 
 
 Right next to Yoda, I really liked this Bossk figure. The character looked cool and he carried a weird gun.
 
-#### Princess Leia Organa (Hoth Outfit)
+#### Princess Leia Organa Hoth Outfit (Youth World)
 
 I bought this new Leia figure when I started to get bored with the toy line. I bought her just to have some kind of complete set of the new “hero” figures.
 
-#### Princess Leia Organa (Bespin Gown)
+#### Princess Leia Organa Bespin Gown (Youth World)
 
 Ditto as above, I bought this new Leia figure when I started to get bored with the toy line. I bought her just to have some kind of complete set of the new “hero” figures.
 
-#### Han Solo (Hoth Outfit)
+#### Han Solo Hoth Outfit (Youth World)
 
 One of the worst figures ever. It’s supposedly Han Solo, but the guy is so bundled up in winter gear it could be anyone. Bought it out of addictive boredom.
 
