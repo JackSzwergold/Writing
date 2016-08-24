@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-Holy grail figure. Youth World never had it. Scored it on a trip to Cameo one day with my dad. Wa so stunned I got it I walked home basically just staring at the package for 6 blocks. Had to stop to show other kids what I scored.
+Holy grail figure. Youth World never had it. Scored it on a trip to Cameo one day with my dad. Was so stunned I got it I walked home basically just staring at the package for 6 blocks. Had to stop to show other kids what I scored.
 
 ***
 

@@ -34,7 +34,7 @@ Scored Chewbacca before I scored Han Solo because Chewbacca was/is very cool.
 
 #### [Han Solo](Han%20Solo)
 
-Remember spotting this figure at Cameo right under the checkout counter and gasped a bit. Youth World didn’t have it, but this place did.
+Remember spotting this figure at Cameo right under the checkout counter and gasped a bit.
 
 #### [Princess Leia Organa](Princess%20Leia%20Organa)
 
@@ -42,11 +42,11 @@ Kinda forced myself to buy this one since Princess Leia is a girl and I wasn’t
 
 #### [Darth Vader](Darth%20Vader)
 
-Holy grail figure. Youth World never had it. Scored it on a trip to Cameo one day with my dad. Wa so stunned I got it I walked home basically just staring at the package for 6 blocks. Had to stop to show other kids what I scored.
+Holy grail figure. Scored it on a trip to Cameo one day with my dad.
 
 #### [Stormtrooper](Stormtrooper)
 
-Had two of these figures, but the second one was hard to find. I asked the older owner of Youth World to hold onto it for me but his son insisted there were no holds; the old guy would have held it for me. Happily came back later in the week when I had my allowance to buy it.
+Had two of these figures, but the second one was hard to find.
 
 #### [Death Squad Commander](Death%20Squad%20Commander)
 
@@ -54,7 +54,7 @@ Bought this one when it was one of the last ones I needed to complete my collect
 
 #### [Jawa](Jawa)
 
-These were some of the hardest figures to get. When my brother heard I wanted these, he bought them from a toy store in Washington Heights. I liked them but really wanted to check out this other toy store myself; my brother insisted I should “not worry” and just let him buy figures for me if I wanted any more. I pushed harder and he relented to show me the store. They had tons of stuff, but my brother was constantly grumbling about why I would want to check out the toys myself. The idea of letting a kid explore/collect on their own was a foreign idea to him.
+Jawas were some of the hardest figures to get.
 
 ***
 
@@ -96,53 +96,53 @@ Awesome figure! First mail away figure that had a “mysterious” role in the n
 
 When *The Empire Strikes Back* came out, of course a whole new line of figures came out. And while I bought a few of them, I was outgrowing them and just didn’t have the strength or energy to buy them all. But I did buy some of them.
 
-#### Luke Skywalker Bespin Fatigues (Youth World)
+#### [Luke Skywalker Bespin Fatigues](Luke%20Skywalker%20Bespin%20Fatigues)
 
-Of course I had to score another Luke Skywalker figure. This one was actually cooler than the other two Luke figures that were released since his lightsaber was not shoved up his arm and he came with a blaster gun as well.
+This Luke Skywalker figure was actually cooler than the other two Luke figures that were released.
 
-#### Han Solo Bespin Outfit (Variety Store on King’s Highway Near the Train Station)
+#### [Han Solo Bespin Outfit](Han%20Solo%20Bespin%20Outfit)
 
-I started to scope out new and different stores outside of Brighton Beach in my quest to find cool new toys. The *Variety Store* on King’s Highway was one of them. One block away from the King’s Highway stop on the D line and they had tons of stuff. Han Solo in Bespin gear was basically like Han Solo from the first line of toys; but this figure had brown pants.
+Han Solo in Bespin gear was basically like Han Solo from the first line of toys; but this figure had brown pants.
 
-#### Lando Calrissian (Youth World)
+#### [Lando Calrissian](Lando%20Calrissian)
 
-Lando was pretty cool. First major black character in a *Star Wars* film. The figure came with a plastic cape but I took it off since he looked better without it.
+Lando was pretty cool. First major black character in a *Star Wars* film.
 
-#### Yoda (Youth World)
+#### [Yoda](Yoda)
 
-The coolest of all of the figures I had. Yoda had a cloth jacket, small belt, walking cane and an orange snake. When I felt I outgrew the *Star Wars* toys, I still kept Yoda on my desk.
+When I felt I outgrew the *Star Wars* toys, I still kept Yoda on my desk.
 
-#### Imperial Stormtrooper Hoth Battle Gear (Youth World)
+#### [Imperial Stormtrooper Hoth Battle Gear](Imperial%20Stormtrooper%20Hoth%20Battle%20Gear)
 
-Like the original Stormtroopers from the first film, I got two of these guys. I hated the small plastic skirt they put on these figures, but their long blaster guns were pretty cool.
+Like the original Stormtroopers from the first film, I got two of these guys.
 
-#### Bossk (Youth World)
+#### [Bossk](Bossk)
 
 Right next to Yoda, I really liked this Bossk figure. The character looked cool and he carried a weird gun.
 
-#### Princess Leia Organa Hoth Outfit (Youth World)
+#### [Princess Leia Organa Hoth Outfit](Princess%20Leia%20Organa%20Hoth%20Outfit)
 
-I bought this new Leia figure when I started to get bored with the toy line. I bought her just to have some kind of complete set of the new “hero” figures.
+I bought this new Leia figure when I started to get bored with the toy line.
 
-#### Princess Leia Organa Bespin Gown (Youth World)
+#### [Princess Leia Organa Bespin Gown](Princess%20Leia%20Organa%20Bespin%20Gown)
 
-Ditto as above, I bought this new Leia figure when I started to get bored with the toy line. I bought her just to have some kind of complete set of the new “hero” figures.
+Ditto as above, I bought this new Leia figure when I started to get bored with the toy line.
 
-#### Han Solo Hoth Outfit (Youth World)
+#### [Han Solo Hoth Outfit](Han%20Solo%20Hoth%20Outfit)
 
-One of the worst figures ever. It’s supposedly Han Solo, but the guy is so bundled up in winter gear it could be anyone. Bought it out of addictive boredom.
+One of the worst figures ever.
 
-#### Rebel Commander (Lee’s Toys/Variety on Avenue U)
+#### [Rebel Commander](Rebel%20Commander)
 
-Another score from a new store: *Lee’s Toys/Variety* on Avenue U near Coney Island Avenue. Another cool store to help me stretch my wings and explore other neighborhoods as a kid. A short ride on the B-68 and I was there. And honestly, they had a crappy selection of figures, but I spotted this one and decided to add it to my mix. If I had a Han Solo figure bundled up for winter combat, might as well have had a commander figure as well.
+If I had a Han Solo figure bundled up for winter combat, might as well have had a commander figure as well.
 
-#### Rebel Soldier Hoth Battle Gear (Lee’s Toys/Variety on Avenue U)
+#### [Rebel Soldier Hoth Battle Gear](Rebel%20Soldier%20Hoth%20Battle%20Gear)
 
 There were no Rebel soldier figures in the original *Star Wars* line so I guess I had to buy this one.
 
-#### AT-AT Driver (Variety Store on King’s Highway Near the Train Station)
+#### [AT-AT Driver](AT-AT%20Driver)
 
-I didn’t own a full sized AT-AT play-set, but wanted to get this figure mainly for the design quality. Honestly the paint job on this, slightly better quality plastic cool rifle hooked me. But I remember buying this figure and then—literally—not caring about buying *Star Wars* figures anymore. I was done.
+I remember buying this figure and then—literally—not caring about buying *Star Wars* figures anymore. I was done.
 
 ***
 
