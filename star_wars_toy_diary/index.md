@@ -36,7 +36,7 @@ Scored Chewbacca before I scored Han Solo because Chewbacca was/is very cool.
 
 Remember spotting this figure at Cameo right under the checkout counter and gasped a bit. Youth World didn’t have it, but this place did.
 
-#### Princess Leia Organa (Cameo)
+#### Princess Leia Organa (Cameo Stationery)
 
 Kinda forced myself to buy this one since Princess Leia is a girl and I wasn’t.
 
