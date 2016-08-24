@@ -78,17 +78,17 @@ I bought Walrus Man because I had to fill my need to buy more *Star Wars* figure
 
 Much like Walrus Man, I got Hammerhead for cheap and because I had an addiction. And it was Hammerhead.
 
-#### Greedo (Youth World)
+#### [Greedo](Greedo)
 
-I had more mixed feelings about Greedo. Remember buying the figure at some point in the school year when we all had time off. Maybe before spring break or summer break. Ran into some kids from school on the street who said I should go to some after school gym class or something, but I didn’t trust the gym teachers there so I made some excuse to go home and open up Greedo.
+I had more mixed feelings about Greedo.
 
-#### Power Droid (Youth World)
+#### [Power Droid](Power%20Droid)
 
-One of the last figures I bought from the first *Star Wars* line. The Power Droid was cool, but goofy. I think I paid like $1.59 for that figure. The card-back was beat to hell, but hey… A bargain is a bargain.
+Power Droid (aka: Gonk) was one of the last figures I bought from the first *Star Wars* line.
+ 
+#### [Boba Fett](Boba%20Fett)
 
-#### Boba Fett (Mail Away Offer)
-
-Awesome figure! First mail away figure that had a “mysterious” role in the next movie, *The Empire Strikes Back*. Had to save proof of purchase points from other figures I collected and send them in with a small shipping and handling fee to Kenner HQ and wait 6 weeks to get this figure in the mail in a small, white box. Such a cool thing! Except for the fact the missile firing backpack wasn’t going to fire a missile since Kenner—and other toy companies—neutered missile firing toys after some kid choked on one from a *Battlestar Galactica* toy.
+Awesome figure! First mail away figure that had a “mysterious” role in the next movie, *The Empire Strikes Back*.
 
 ***
 
