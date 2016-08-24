@@ -96,11 +96,11 @@ Awesome figure! First mail away figure that had a “mysterious” role in the n
 
 When *The Empire Strikes Back* came out, of course a whole new line of figures came out. And while I bought a few of them, I was outgrowing them and just didn’t have the strength or energy to buy them all. But I did buy some of them.
 
-#### Luke Skywalker (Bespin Fatigues)
+#### Luke Skywalker Bespin Fatigues (Youth World)
 
 Of course I had to score another Luke Skywalker figure. This one was actually cooler than the other two Luke figures that were released since his lightsaber was not shoved up his arm and he came with a blaster gun as well.
 
-#### Han Solo (Bespin Outfit) (Variety Store on King’s Highway Near the Train Station)
+#### Han Solo Bespin Outfit (Variety Store on King’s Highway Near the Train Station)
 
 I started to scope out new and different stores outside of Brighton Beach in my quest to find cool new toys. The *Variety Store* on King’s Highway was one of them. One block away from the King’s Highway stop on the D line and they had tons of stuff. Han Solo in Bespin gear was basically like Han Solo from the first line of toys; but this figure had brown pants.
 
