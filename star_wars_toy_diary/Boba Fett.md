@@ -1,8 +1,17 @@
-## Boba Fett (Mail Away Offer)
+## Boba Fett
+### Mail Away Offer from Kenner
 
 By Jack Szwergold
 
-Awesome figure! First mail away figure that had a “mysterious” role in the next movie, *The Empire Strikes Back*. Had to save proof of purchase points from other figures I collected and send them in with a small shipping and handling fee to Kenner HQ and wait 6 weeks to get this figure in the mail in a small, white box. Such a cool thing! Except for the fact the missile firing backpack wasn’t going to fire a missile since Kenner—and other toy companies—neutered missile firing toys after some kid choked on one from a *Battlestar Galactica* toy.
+Boba Fett was a very cool figure to score in 1979 for a few reasons:
+
+* One, the one way to get this figure was via a mail-away offer where you had to send 4 proof of purchases to Kenner and then wait 6-8 weeks and then this small, white box would show up in the mail containing the figure with not much else.
+* Two, the figure was some “mysterious” character from the next movie which—at the time—was only known as <i>Star Wars II</i> which lent it an air of mystery.
+* Three, the figure itself looked very cool and even had a spring powered rocket in it’s back pack that was reminiscent of some of the cool Japanese robot action figures of the 1970s.
+
+Sadly, by the time the figure arrived the missile firing mechanism was removed after some kid—or bunch of kids—choked on one from a *Battlestar Galactica* toy; toy manufacturers felt the market pressure from the Consumer Products Safety Commission and neutered all missile firing toys as a result.
+
+All that said, Boba Fett was still a very cool toy to own despite the fact the “rocket firing back pack” didn’t actually end up firing any rocket.
 
 ***
 
