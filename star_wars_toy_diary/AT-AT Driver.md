@@ -1,8 +1,13 @@
-## AT-AT Driver (Variety Store on King’s Highway Near the Train Station)
+## AT-AT Driver
+### Variety Store on King’s Highway Near the Train Station
 
 By Jack Szwergold
 
-I didn’t own a full sized AT-AT play-set, but wanted to get this figure mainly for the design quality. Honestly the paint job on this, slightly better quality plastic cool rifle hooked me. But I remember buying this figure and then—literally—not caring about buying *Star Wars* figures anymore. I was done.
+You know you have some collector’s compulsion problem when you just buy things for the wrong reason. That’s the case with my childhood purchase of an AT-AT driver action figure.
+
+First, I didn’t own a full sized AT-AT play-set—and had no desire to own one—but I wanted to get this figure when I saw it mainly because if it’s design quality. Honestly the paint job on this figure—plus the slightly better quality plastic and cool rifle—hooked me in. But that was about it. This was the first *Star Wars* action figure I bought simply because I admired it for it’s artistic quality and I hated that.
+
+I remember standing it on my desk as a small statuette, but also feeling too old to even care anymore. I bought the damned thing out of compulsion and had pretty much immediate buyer’s remorse. Too bad eBay didn’t exist in 1980 or I would have flipped it for some much needed cash.
 
 ***
 
