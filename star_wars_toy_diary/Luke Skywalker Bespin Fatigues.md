@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-I started to scope out new and different stores outside of Brighton Beach in my quest to find cool new toys. The *Variety Store* on King’s Highway was one of them. One block away from the King’s Highway stop on the D line and they had tons of stuff. Han Solo in Bespin gear was basically like Han Solo from the first line of toys; but this figure had brown pants.
+Of course I had to score another Luke Skywalker figure. This one was actually cooler than the other two Luke figures that were released since his lightsaber was not shoved up his arm and he came with a blaster gun as well.
 
 ***
 
