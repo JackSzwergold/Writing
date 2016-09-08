@@ -1,4 +1,5 @@
-## Han Solo Bespin Outfit (Variety Store on King’s Highway Near the Train Station)
+## Han Solo Bespin Outfit
+### Variety Store on King’s Highway Near the Train Station
 
 By Jack Szwergold
 
