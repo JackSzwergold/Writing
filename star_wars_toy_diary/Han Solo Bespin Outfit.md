@@ -3,7 +3,9 @@
 
 By Jack Szwergold
 
-I started to scope out new and different stores outside of Brighton Beach in my quest to find cool new toys. The *Variety Store* on King’s Highway was one of them. One block away from the King’s Highway stop on the D line and they had tons of stuff. Han Solo in Bespin gear was basically like Han Solo from the first line of toys; but this figure had brown pants.
+Han Solo in his “Bespin Outfit” was basically the same figure as his figure in the first film. Except this figure has him wearing brown pants and a blue jacket.
+
+Still, this figure looks cool. The colors were cool and the trim on his legs was cool. Much more fun to play with than that stupid Han Solo in a “Hoth Outfit” figure I scored.
 
 ***
 
