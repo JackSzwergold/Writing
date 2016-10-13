@@ -41,4 +41,4 @@ namespace :deploy do
 end
 
 # after :deploy, "deploy:create_symlink"
-after "deploy:published", "deploy:create_symlink"
+# after "deploy:published", "deploy:create_symlink"
