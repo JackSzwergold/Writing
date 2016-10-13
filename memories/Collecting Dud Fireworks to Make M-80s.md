@@ -1,5 +1,5 @@
 ## Collecting Dud Fireworks to Make M-80s
-### Neighborhood Kids worked Together to Make an M-80
+### Neighborhood Kids Working Together to Make M-80 Fireworks
 
 By Jack Szwergold
 
@@ -51,4 +51,4 @@ Of all the fireworks I saw up until then that M-80 block buster Howie made was t
 
 ***
 
-*Collecting Dud Fireworks and Scraping the Gunpowder out to Make M-80s (c) Copyright by Jack Szwergold; written on June 13, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Collecting Dud Fireworks to Make M-80s: Neighborhood Kids Working Together to Make M-80 Fireworks (c) Copyright by Jack Szwergold; written on June 13, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
