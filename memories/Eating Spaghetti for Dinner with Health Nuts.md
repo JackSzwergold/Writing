@@ -1,5 +1,5 @@
 ## Eating Spaghetti for Dinner with Health Nuts
-### The Young Boyfriend of the Old Hollywood Actress
+### Having Crappy Spaghetti With the Young Boyfriend of the Old Hollywood Actress
 
 By Jack Szwergold
 
@@ -29,4 +29,4 @@ It was a nice, warm evening so I decided to walk along the boardwalk back to Oce
 
 ***
 
-*Eating Spaghetti for Dinner with Health Nuts: The Young Boyfriend of the Old Hollywood Actress (c) Copyright by Jack Szwergold; written on May 29, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Eating Spaghetti for Dinner with Health Nuts: Having Crappy Spaghetti With the Young Boyfriend of the Old Hollywood Actress (c) Copyright by Jack Szwergold; written on May 29, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

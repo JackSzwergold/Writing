@@ -1,5 +1,5 @@
 ## The Jewish Club Goes to Philadelphia
-### About the Time in High School the Jewish Club Went to Philadelphia and Got Kicked Out for Smoking Pot
+### About the Time in High School the Jewish Club Went to Philadelphia and Some of Us Got Kicked Out for Smoking Pot
 
 By Jack Szwergold
 
@@ -67,4 +67,4 @@ We finished hugging, I looked at the blackboard, I looked at the lecturer, close
 
 ***
 
-*The Jewish Club Goes to Philadelphia (c) Copyright by Jack Szwergold; written on June 27, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*The Jewish Club Goes to Philadelphia: About the Time in High School the Jewish Club Went to Philadelphia and Some of Us Got Kicked Out for Smoking Pot (c) Copyright by Jack Szwergold; written on June 27, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
