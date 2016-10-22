@@ -1,4 +1,4 @@
-# Mr. Do
+# Me and Mr. Do
 ## A brief memory of an arcade game from 1982
 
 By Jack Szwergold
@@ -11,4 +11,4 @@ I was obsessed with *Mr. Do* because the gameplay was fast, the graphics were cu
 
 ***
 
-*Mr. Do (1982) (c) Copyright by Jack Szwergold; written on August 22, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Me and Mr. Do: A brief memory of an arcade game from 1982 (c) Copyright by Jack Szwergold; written on August 22, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
