@@ -1,4 +1,4 @@
-# Vanguard
+# Vanguard in a Dumpy Grocery Store
 ## A brief memory of an arcade game from 1981
 
 By Jack Szwergold
@@ -13,4 +13,4 @@ Getting to the end of the game was tough but it was fun to try to see how far I 
 
 ***
 
-*Vanguard (1981) (c) Copyright by Jack Szwergold; written on August 22, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Vanguard in a Dumpy Grocery Store: A brief memory of an arcade game from 1981 (c) Copyright by Jack Szwergold; written on August 22, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

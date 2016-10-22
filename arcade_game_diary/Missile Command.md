@@ -1,4 +1,4 @@
-# Missile Command
+# Discovering Missile Command
 ## A brief memory of an arcade game from 1980
 
 By Jack Szwergold
@@ -11,4 +11,4 @@ Not a “feel good” for a kid growing up in the middle of the Cold War in the 
 
 ***
 
-*Missile Command (1980) (c) Copyright by Jack Szwergold; written on August 22, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Discovering Missile Command: A brief memory of an arcade game from 1980 (c) Copyright by Jack Szwergold; written on August 22, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
