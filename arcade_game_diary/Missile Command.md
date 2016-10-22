@@ -1,4 +1,4 @@
-# Missile Command (1980)
+# Missile Command
 ## A brief memory of an arcade game from 1980
 
 By Jack Szwergold
