@@ -29,6 +29,12 @@ Beven actually came over to my friends house with his beat up briefcase and—ye
 
 ***
 
+Beven’s family lived in a pre-War tenement apartment building but his apartment was weird. It was really dark and filled with busted or dismantled furniture.
+
+“Sorry, my dad refinishes old furniture.” Beven said as we walked in. “Just walk over there,” he said while pointing to an improvised desk made out of a dining table that was near the entrance to the kitchen.
+
+We made our way through the piles of crap and saw a smll TV set connected to an Atari 800 and 810 disk drive sitting on the table.
+
 ***
 
 *Trading Video Games with Beven (c) Copyright by Jack Szwergold; written on November 25, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
