@@ -71,7 +71,37 @@ Beven introduced me to his dad and I shook his hand. He was smiling but sweaty a
 
 “Here!” I said to Douglas as I gave him a joystick to play.
 
-“Wow! Look at that!” Beven’s dad said as Douglas played the game. “You have fun now, I gotta do some work…” he said as he moved towards the front of the apartment, grabbed some rags and a bottle and started to rub stuff on the furniture. He was clearly stripping paint from the wood. The fumes were strong and I started to feel dizzy. Nobody else seemed to be affected
+“Wow! Look at that!” Beven’s dad said as Douglas played the game. “You have fun now, I gotta do some work…” he said as he moved towards the front of the apartment, grabbed some rags and a bottle and started to rub stuff on the furniture. He was clearly stripping paint from the wood. The fumes were strong and I started to feel dizzy. Nobody else seemed to be affected so I spoke up and asked Beven’s mom if she could open up the kitchen window. “Oh, okay Jack,” she said again using my name as if it was a stick she was poking me with.
+
+She reached over to open the window and in a few seconds the air cooled up a bit and was easier to breathe. “Thank you,” I said as she looked down on the washing machine.
+
+“Hey! I forgot to start the wash!” she said as she opened and closed the lid to the machine, turned a knob and started it up.
+
+I turned back to Beven, Douglas and Bradley. Beven seemed to had finally found a disk, but Douglas was still playing the game. All three of them stared at the screen as Douglas incompetently—but enthusiastically—played the game.
+
+Some more time passed and we all played for a bit until the washing machine started to knock back and forth. The lid was starting to open and everyone seemed to be ignoring it.
+
+“Douglas!” Beven’s mom shouted from the hallway, “Go and sit on the washing machine before it spills!” What? Spills? Anwyay, I looked at Douglas. He was hapilly playing the game, but you could watch his face prune up.
+
+“Douglas!!!” she shouted.
+
+And with that Bradley grabbed the joystick out of Douglas’s hand. Douglas sat catatonic for a second, but his face grew redder and redder as each second passed. Before you knew it he stood up, started crying and climbed up to the top of the washing machine and sat on it.
+
+“Douglas!!!” she shouted again to which Douglas shouted “I’m sitting mom!!!”
+
+I looked at Douglass sitting there on the washing machine as it shook back and forth, but the lid was closed. No water was going to spill out if the lid, but Douglas sat there crying, red faced with his legs gently shaking back and forth with the motion of the machine.
+
+I turned back to the Atari. Bradley tried to play Donkey Kong but really stunk. He didn’t get upset about it. But he also didn’t get upset at his brother crying on the top of washing machine. Neither did Beven. Neither did Matt. Neither did his dad who was wiping wood with turpentine from the begining of this mess without uttering a word.
+
+“Here!” Beven said as he gave me a beat up floppy disk. “Copy it on this one.”
+
+I poked Bradley to get him to stop playing and before you knew it I had copied the games for him and passed it back to him.
+
+“Thanks! You want stuff? I can give you new games when I get them,” he said, “And then we can sell them to the other kids.” He still didn’t get it. It was simple enough for me to copy the games so who cares. But I responded, “Okay, when you get some new games, okay?”
+
+“Deal!” he said as he took the disk from me.
+
+His mom came back into the kitchen. The sun was setting
 
 ***
 
