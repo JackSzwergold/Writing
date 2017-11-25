@@ -7,6 +7,7 @@ By Jack Szwergold
 
 ***
 
+Beven was a new kid in Junior High School. I didn’really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky.
 
 ***
 
