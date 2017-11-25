@@ -37,7 +37,15 @@ We made our way through the piles of crap and saw a smll TV set connected to an 
 
 “Who is that!” said some voice from deeper in the apartment. It was Beven’s younger brother Douglas.
 
-“That’s Jack and Matt. We’re going to trade games,” Beven said as Douglas checked us out. If Beven was dishelved and scrappy, Douglas was worse with visible dirt on his face, snot on his nose 
+“That’s Jack and Matt. We’re going to trade games,” Beven said as Douglas checked us out. If Beven was dishelved and scrappy, Douglas was worse with visible dirt on his face, snot on his nose, and a huge ripped hole on his stained white t-shirt.
+
+“Oh!” Douglass said.
+
+“Hey!” said another voice coming out of the kicthen. It was Bradley, the middle kid in the family. Unlike Beven or Douglas, Bradley looked somewhat presentable with a flannel button down shirt tucked neatly into his pants.
+
+“Hey Bradley!” Matt and I said. We actually have met Bradley before and he was cool, but he was always a bit shaky in a way that seemed to imply “You believe I was born into this shit?”
+
+“So what do you go?” Douglass said as I opened up my carrying case of disks. “I’ve got Caverns of Mars and—
 
 ***
 
