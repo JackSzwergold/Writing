@@ -45,7 +45,15 @@ We made our way through the piles of crap and saw a smll TV set connected to an 
 
 “Hey Bradley!” Matt and I said. We actually have met Bradley before and he was cool, but he was always a bit shaky in a way that seemed to imply “You believe I was born into this shit?”
 
-“So what do you go?” Douglass said as I opened up my carrying case of disks. “I’ve got Caverns of Mars and—
+“So what do you go?” Douglass said as I opened up my carrying case of disks. “I’ve got Caverns of Mars and Pac-Man and Donkey Kong…” and then without any hesitation Douglas shouted “DONKEY KONG!!!”
+
+“Wow! Donkey Kong?” said a woman’s voice out of the kitchen. It was Beven’s mother who looked like she just got up from a nap, “That sounds cool. You want that Douglas?” “Yeah,” he responded.
+
+“Okay, no problem… You got it…” I said. And everyone stopped talking and stared at me. Apparently the whole family expected some negotiation to this. “You’re just gonna give it to us for free?” she said to which I responded, “Yeah… Why not? Just give me a blank disk.”
+
+I looked around and Beven was eyeing his mom while trying to find a blank disk somewhere in the pile of crap on the kitchen table.
+
+“Really? Just like that Jack,” she said in a semi-intimidating way.
 
 ***
 
