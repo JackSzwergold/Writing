@@ -7,7 +7,9 @@ By Jack Szwergold
 
 ***
 
-Beven was a new kid in Junior High School. I didn’really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky.
+Beven was a new kid in Junior High School. I didn’really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky. Like the basic way he carried himself, stains on his clothes and—most notably—the brifcase he carried around.
+
+While the rest of us had some of basic kid backpack—like a Jansport or some generic olive drab Mussette bag—this guy came to class with a beatup, dark brown leather briefcase. It was beat to hell—and the frayed seams made you wonder if the leather was real or some kind fake crap—but he liked it and used it. Whenever he came to class he’d non-chalantly just place it on a desk, pop the clasps and open it up to reveal… A pile
 
 ***
 
