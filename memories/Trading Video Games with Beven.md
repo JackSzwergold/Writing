@@ -55,6 +55,24 @@ I looked around and Beven was eyeing his mom while trying to find a blank disk s
 
 “Really? Just like that Jack,” she said in a semi-intimidating way, standing there with her arms on her hips. It was really a strange scene. Everyone’s silent and here is the family matriarch just standing there and giving a 14 year old kid (aka: me) the 3rd degree because I was willing to give her son a copy of the game for free.
 
+“Okay, if that’s what you say, Jack…” she said turning to Beven. “You have a disk, Beven?” to which he responded, “I’m looking! I’m looking!”
+
+“I want to play Donkey Kong!” said Douglas as he looked at my pile of disks.
+
+“Look, we can play it now while Beven is looking. Is that okay?” I said to which Beven said sure.
+
+I shifted myself in the rickety chair, powered up the Atari 810 disk drive, stuck the disk in, powered on the Atari 800, powered on the TV set and attempted to get the setup all ready for Douglas to play Donkey Kong on.
+
+“Hello!!! Beven’s got friends over?” said a man’s voice coming from the front of the apartment. It was Beven’s dad carrying some beat up headboard as he came into the apartment.
+
+Beven introduced me to his dad and I shook his hand. He was smiling but sweaty and exhausted; he was wearing a wife-beater t-shirt, wool pants and beatup dress shoes. After he shook my hand he went over to hug his wife. As she moved towards him me and Matt could see she wasn’t wearing anything underneath her dingy nightie. You could see the silhouette of her body but it was as far from erotic as one could imagine. As she turned to us to ask if we wanted a snack we could now see the huge stain on the front of the crotch of her nightie.
+
+“No thank you! We already ate!” I said as the Atari finally loaded Donkey Kong.
+
+“Here!” I said to Douglas as I gave him a joystick to play.
+
+“Wow! Look at that!” Beven’s dad said as Douglas played the game. “You have fun now, I gotta do some work…” he said as he moved towards the front of the apartment, grabbed some rags and a bottle and started to rub stuff on the furniture. He was clearly stripping paint from the wood. The fumes were strong and I started to feel dizzy. Nobody else seemed to be affected
+
 ***
 
 *Trading Video Games with Beven (c) Copyright by Jack Szwergold; written on November 25, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
