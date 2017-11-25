@@ -45,7 +45,7 @@ We made our way through the piles of crap and saw a smll TV set connected to an 
 
 “Hey Bradley!” Matt and I said. We actually have met Bradley before and he was cool, but he was always a bit shaky in a way that seemed to imply “You believe I was born into this shit?”
 
-“So what do you go?” Douglass said as I opened up my carrying case of disks. “I’ve got Caverns of Mars and Pac-Man and Donkey Kong…” and then without any hesitation Douglas shouted “DONKEY KONG!!!”
+“So what do you go?” Douglas said as I opened up my carrying case of disks. “I’ve got Caverns of Mars and Pac-Man and Donkey Kong…” and then without any hesitation Douglas shouted “DONKEY KONG!!!”
 
 “Wow! Donkey Kong?” said a woman’s voice out of the kitchen. It was Beven’s mother who looked like she just got up from a nap, “That sounds cool. You want that Douglas?” “Yeah,” he responded.
 
