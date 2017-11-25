@@ -101,7 +101,9 @@ I poked Bradley to get him to stop playing and before you knew it I had copied t
 
 “Deal!” he said as he took the disk from me.
 
-His mom came back into the kitchen. The sun was setting
+His mom came back into the kitchen. The sun was setting so she turned on the light. With the bright light of a bare, circular florescent light shining you could see the whole kitchen scene: Douglas—red faced and sobbing—sitting on the crappy washing machine, his young ass the only thing preventing the piece of junk from exploding all over the place. And next to him his mom standing there in a crappy pink nightie with a big stain right over her crotch.
+
+“You want some dinner, Jack?” she said as she opened up the cupboard. “Nah,” I said, “I gotta go home!” 
 
 ***
 
