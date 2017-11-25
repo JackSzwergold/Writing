@@ -3,6 +3,10 @@
 
 By Jack Szwergold
 
+**QUICK NOTES**: Trading copies of Atari video games with Beven. Describe his family including his dad who would refinish furniture in their apartment, his mother yelling at one of Beven’s brothers to sit on the crappy washing machine. And describe his mother wearing some night dress with a stain on the front crotch who would constantly insinuate that I was reading games for free because I wanted something else. Paranoid assholes who treated basic niceness as a “threat.”
+
+***
+
 
 ***
 
