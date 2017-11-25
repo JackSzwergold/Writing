@@ -53,7 +53,7 @@ We made our way through the piles of crap and saw a smll TV set connected to an 
 
 I looked around and Beven was eyeing his mom while trying to find a blank disk somewhere in the pile of crap on the kitchen table.
 
-“Really? Just like that Jack,” she said in a semi-intimidating way.
+“Really? Just like that Jack,” she said in a semi-intimidating way, standing there with her arms on her hips. It was really a strange scene. Everyone’s silent and here is the family matriarch just standing there and giving a 14 year old kid (aka: me) the 3rd degree because I was willing to give her son a copy of the game for free.
 
 ***
 
