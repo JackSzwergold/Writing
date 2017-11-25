@@ -33,7 +33,11 @@ Beven’s family lived in a pre-War tenement apartment building but his apartmen
 
 “Sorry, my dad refinishes old furniture.” Beven said as we walked in. “Just walk over there,” he said while pointing to an improvised desk made out of a dining table that was near the entrance to the kitchen.
 
-We made our way through the piles of crap and saw a smll TV set connected to an Atari 800 and 810 disk drive sitting on the table.
+We made our way through the piles of crap and saw a smll TV set connected to an Atari 800 and 810 disk drive sitting unceremoniously on the table. The chairs near the setup were a mish-mash of junky dining room tables. We each picked a chair and sat down.
+
+“Who is that!” said some voice from deeper in the apartment. It was Beven’s younger brother Douglas.
+
+“That’s Jack and Matt. We’re going to trade games,” Beven said as Douglas checked us out. If Beven was dishelved and scrappy, Douglas was worse with visible dirt on his face, snot on his nose 
 
 ***
 
