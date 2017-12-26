@@ -97,6 +97,16 @@ When the D train finally pulled into 59th Street and he was nowhere to be seen, 
 
 As the D train exited Prospect Park station and was awash withb the dusk sunlight I felt better. I was even able to take a nap on the train.
 
+When it got to Ocean Parkway, I got off and walked down the block and headed home. When I got upstairs, my father noticed how stressed I looked asked “What happned?” To which I replied, “Nothing…”
+
+My father told me I had a call from a friend of a friend. It ended up being the guy who worked in the Knish shop. So I called him, headed over to his home and found out I could start working in a few days if I wanted to. 
+
+What a relief! I finally landed my first job on my own.
+
+When I got home again that night my father was on the phone with my brother as I walked in the door. I’m not too sure my brother told our father the full story, but he seemed to know something was up.
+
+“Jack!” he said. “Ben is on the phone!”
+
 ***
 
 *Getting a Job at Columbia University (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
