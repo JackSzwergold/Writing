@@ -51,7 +51,10 @@ I ran some small errands for him around his lab, but for the most part my suppos
 
 You see, when I was 14 I was in some required science classes in Junior High School. I didn’t particularly like them or hate them; they were simply required classes. But in his mind the fact I was—for example—studying biochemistry meant I actually had a passion for the subject. Thus somehow I would care to listen to him blather on and on about whatever grad student class bullshit he was doing as if I cared.
 
-In between that bullshit I did things like use pipettes to fill things or use the autoclave to disinfect things. But there was no independence in these tasks
+In between that bullshit I did things like use pipettes to fill things or use the autoclave to disinfect things. But there was no independence in these tasks. No matter what I did or how I did it, my brother was hovering nearby, micromanaging me.
+
+It was horrible. But at least he paid. How much, I don’t remember, but I remember at the end of each day he would pull some money out of his pocket and gave it to me. It felt less like a job and more like he was paying me to be his friend.
+
 
 ***
 
