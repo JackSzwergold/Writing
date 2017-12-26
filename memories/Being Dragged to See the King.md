@@ -81,6 +81,10 @@ We were approaching the front of the line as she started to complain about where
 
 Anyway, before you knew it we were in the museum. I liked the little tin museum tag they gave me and rubbed it as we walked around.
 
+I have no literal memory of ever seeing King Tut, but apparently I did. All I remembr is being whisked around from room to room, having my brother and his wife lean into me to explain things to me, and me nodding politely to push things along. Every once in a while someone my brother and his wife knew would lean in and talk to me this way as well.
+
+Where did they come from? Were they in line with us? Did they meet us inside? I have no clue. The whole experience was disjointed and unpleasant that I didn’t keep track and didn’t care; a sparrow could have landed on my shoulder at that moment and talk to me and I would not care.
+
 ***
 
 *Being Dragged to See the King (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
