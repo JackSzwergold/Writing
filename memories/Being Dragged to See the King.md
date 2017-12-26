@@ -121,4 +121,14 @@ The door was closed and they left. And I soon fell into a comfortable deep sleep
 
 ***
 
+**Epilogue**: Later that year at Hanukkah, Karen’s parents gave me an odd gift: A program from the British musem when they went to see the Rosetta stone. Somehow the fact I was dragged to a King Tut exhibit earlier that year meant that somehow I loved that exhibit and thus I would love to have this family artifact.
+
+The program was old, musty and nicely printed but I never liked it. I had no idea what to do with it. I did not like being dragged to see King Tut and now I did not like having this odd family heirloom passed onto me. Unlike other gifts I could give to others, break or even just throw in the garbage, this gift was extremely loaded. So my whole life I awkwardly carried it around. Not wanting it but burdened to keep it. Who gives a 9 year old kid something like this?
+
+But then in the late 1990s as news about more and more abuse and dysfunction arose in my family—abuse, dellusion, born-again Jewish evangellical nonsense—I looked at this thing and decided it was not my burden. It was given to me as a gift for me to do as I pleased when I was 9 years old, and returning it to my brother’s wife»s parents seemed impossible to do without starting more conflict. So I did the only thing I thought I could do: I ripped it to shreds, put it in a tin coffee can and burned it.
+
+Sometimes I have regrets about destroying this family artifact, but at the end of the day these people did not respct my family, our lives, our choices or anything. At the end of the day a piece of paper is a piece of paper. Lives are more important.
+
+***
+
 *Being Dragged to See the King (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
