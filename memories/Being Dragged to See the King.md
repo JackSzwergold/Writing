@@ -69,6 +69,18 @@ By the time we got to the Brooklyn Bridge I was relieved. The bridge had this gr
 
 When we got to the Manhattan side, the hum settled, but my brother was still going at a mile a minute… His mouth was at least.
 
+I never knew what the concept of repression—or dissociation—was back as a kid, but I did know at a certain point in dealing with the endless pile of B.S. my brother would dish out, my brain would seemingly become numb. While I knew I was physically there—wherever that “there” happened to be—my brain would be numb as if I was in a dream.
+
+The next thing you know we are on 5th Avenue in frontb of the Metropolitan Museum of Art. I had never been to any museum past the Museum of Natural History as a kid, so this was technically my first step into a larger world of so-called “culture”… The thing is—as mentioned before—I was numb to the experience and all this place was to me was yet another building, and yet another place where my brother—in his quest to make my supposedly bad life “better”—would drag me too.
+
+I rememeber getting out of the car as my brother went to park the car and meeting up with his wife at the time. She was a bit of a patronizing hippie feminist. She hated my brother and treated him like crap, and would insist that he drag me to cultural events she approved of in some bizarrely dysfunctional circle of codepency.
+
+All I remember was me having to wait in line with her and her asking me tons of nonsene questions and me trying to answer them in any way to makre her seem happy. I was never happy in the scenarios.
+
+We were approaching the front of the line as she started to complain about where my brother was when he finally showed up. He was breathless and said something to the effect of I was worried about where he was when he ran off. Never actually cared. Never understood why I need to be there for this thing. I mean if he wants to go on a date with his wife to the Met, go for it… But why was I—a kid—dragged along as if I would enjoy being a third wheel on a shitty date?
+
+Anyway, before you knew it we were in the museum. I liked the little tin museum tag they gave me and rubbed it as we walked around.
+
 ***
 
 *Being Dragged to See the King (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
