@@ -59,7 +59,19 @@ I went along with this for a few weeks. The through is he was able to buy my fri
 
 Superficially this seemed great financially, but it was horrible otherwise: My dysfunctional brother wants to literally buy my friendship and my father is threatened by my brother’s behavior and I did not know what to do.
 
+I talked to a friend of mine who worked at a local Knish store and asked if he could hook me up with a job. “But don’t you already have one?” he said. “It’s not a real job. It stinks,” I replied. And he said he would ask and see but it wasn’t like it would happen right away. I understood and told him I was cool with that and left it at that.
 
+The week before my friend was going to hook me up with a job at the Knish shop, I was at Columbia University “working” for my brother again.
+
+Something odd was happening on something I was working on for him and I asked for help. “You should just use the stuff in that bottle over there.” he shouted. “Which one?” I replied. “I just don’t understand what is happening.” “You’ve done this before,“ he retorted condescendingly, “You know what you sholuld be doing.” But I didn’t know what I should do nor did ever do this before; he was simply dellusional.
+
+So in an effort to fix what was screwed up I grabbed the nearest bottle and carefully put the stuff into the test tubes. Nothing changed. “I need your help,” I asked. “I don’t think I did the right thing.” I said trying to hold back my frustration in trying to communicte with him.
+
+With that he angrilly came over, saw what I did and startd to scream at me about how I was “stupid” and ruined this project. I started to stammer and almost cry… I really didn’t know what I was supposed to do or why the thing wasn’t working. I asked for help, right? Anyway, in a huff he took the test tubes and walked out of the lab.
+
+I felt stunned, shocked and assaulted. I looked at the wall at a nearby calendar and tried to calculate how much more of this I had to deal with. At best one week if I could get the job at the Knish place. But that one week seemed like an eternity.
+
+I turned to a nearby sink and notcied
 
 ***
 
