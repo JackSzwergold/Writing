@@ -13,7 +13,39 @@ So around the time of my 14th birtday I started to look for jobs but really had 
 
 Anway, during one of my brother’s visits to the family home, he got wind of me wanting a job while sitting at the kitchen table, Before he could say anything our mom would say, “Yes! I will get a Jack a job in the factory. A good job!” to which my brother started shouting and screaming about.
 
-I have no idea what the shouting and screaming was about—why should he care about me wanting a job—but I finished my food, excused myself and headed back to my
+I have no idea what the shouting and screaming was about—why should my brother care about me wanting a job—but I finished my food, excused myself and headed back to my room.
+
+The fighting persisted for some time until it stoped. I knew something was up since—while my mom and dad wreen’t fighting—they were worriedly talking to each other. I could hear some hushed tones as the TV went on in the living room and then I heard a knock on my door.
+
+It was my dad who peeked into my room and said, “I don’t know… Working at mom’s place might not be a good idea… Ben knows…” and then he went away.
+
+Soon after Ben came into my room and sat down on the floor in front of me and calmly said, “If you want a job I have a very good job for you at Columbia University.”
+
+“Really?” I said, “Doing what?” I asked.
+
+“Don’t worry, it’s very good… Just come to me on Monday and I will show you…”
+
+With that he left me room and I waited for Monday.
+
+I took the train up to Columbia University. Did it by myself. D to 59th Street to the A to 168h Street.
+
+Got off of the train and walked to the building my brother’s lab was in.
+
+He was outside waiting for me and waved. I imagined he would show me someone—or bring me someplace—where I could get a real job. I imaged for a place like Columbia University I would need working papers—since I was only 14 at the time—but my brother said not too worry.
+
+We went into the building and headed up the the elevator. Where I did not know?
+
+“What kind of job is this again?” I asked and he said, “You will see… Don’t worry…”
+
+And soon enough we got off at some non-descript floor, walked into a non-descript room and my brother said, “Here is where you will work!” I was confused… I saw nobody else… Just me and my brother in this miscellaneous lab.
+
+“Here?” I asked. “Who am I working for?” I asked again.
+
+“Me! You can be my assitant!” he said.
+
+And with that I felt my mind twist inside of itself. This is not what I wanted. I wanted a real job where I would be paid. I asked my brother who would pay me—assuming there was some kind of arrangement with the university and this was normal—and he responded, “I will! Do not worry!“
+
+And with that I had no idea what to do. If I left at that momement, my brother would cut me off and corner me. In his mind it was perfectly normal that he would pay me out of his own pocket for a “job” like this
 
 
 ***
