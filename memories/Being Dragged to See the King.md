@@ -91,6 +91,34 @@ I remember at that moment, one of my brother’s friends kneeling down to me and
 
 Before you knew it, whoever was in the bathroom was out and we’re all headed outside.
 
+My brother said we would get the car while hsi wife—and those random friends of theirs—waved goodbye to me. Have no idea who they were and have no idea why they were there.
+
+My brother and I headed to his car, and I got in.
+
+As I sat in the passenger seat my brother turned to me and said, “Shhh… This is a big suprise!” I have no idea what he was talking about, but then he pulled out some steerihg wheel cover/grip he had bought. When? I don’t know. Why? No clue. But apparently this was some big secret I was privy to.
+
+It was a basic steering wheel grip. He was putting it on the steerig wheel itself as he talked to me and explained how I should not talk to his wife about this. I said quietly, “Okay…” while trying to understand how I was supposed to keep something that visually obvious a “secret” from his wife. I mean, he just put it on in his car, right?
+
+As he continued to talk to me about how his wife wouldn’t like it, she suddenly showed up and stuck her head into the driver’s side window, condescendingly pushed her finger on the steering wheel cover and started to argue with him in Hebrew.
+
+I’m sitting there—a 9 year old kid—in this car parked on 86th Street and staring down the road. I knew Central Park was behind me, and it seemed like there might be a subway line in front of me. So if I git out of the car and ran, I could probably figure out which train to take home.
+
+But who was I kidding? I had no idea how the trains worked over here. So I sat in the car and waited for their fight to subside. Soon enough it was getting dusky, my brothers wife got into the car and wedrove off.
+
+As we drove off, both my brother and his wife asked me some generic questions about King Tut and whethere I liked the exhibit of not. I nodded and said, “Yeah…” and generally went along with it despite the fact I genuinely remebered nothing about the exhibit.
+
+We got back to my home on Ocean Parkway and I ran out of the car to head upstairs. The sound of the train and the ocean; I finally felt like home again. And the cloud of dissociation of the afternoon lifted.
+
+My brother and his wife shouted at me to wait, but I didn’t care. I justed buzzed the buzzer, ran upstairs and headed into my room.
+
+“Where’s Ben?” my dad asked as I took off my jacket. “I don’t know…” I said as I headed to my room.
+
+I turned on the TV, closed the door and settled in. I finally felt comforatble. 
+
+My brother and his wife came upstairs and for a brief moment there was a little fight. I could feel my brain clench a bit but then my father knocked at the door and saidm “Ben and Karen want to say goodbye…” They both peeked their heads into my room and said goodbye. So did I.
+
+The door was closed and they left. And I soon fell into a comfortable deep sleep knowing they were both gone.
+
 ***
 
 *Being Dragged to See the King (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
