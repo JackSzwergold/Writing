@@ -117,7 +117,19 @@ A week later I started my new job. It was filled with all kinds of new challenge
 
 Anyway, one Saturday before I was headed ton work my brother called and told my father he wanted to speak to me. I took the phone and asked what he wanted. He wanted to talk to me when he came over that afternoon. I pointed out I couldn’t talk to him since I was working and I couold hear him start to get angry again. I said I had to leave to go to work, passed the phone back to my father and left.
 
-A few hours into my shif
+A few hours into my shift, my brother showed up at the Knish shop. It was weird. I’ve had friends visit me at the place before and they would just come up to the counter or window and say “Hello!”
+
+Not my brother.
+
+He came in and sat at the very end of the counter and just stared at me. I walked over to him and asked him what he wanted. There as no hello and no common courtesy. He just sat at the counter not ordering but looking at me.
+
+This made me nervous, but he didn’t seem to care. But then one of my co-workers asked what was up and I shrugged. My brother noticed that and without a word stoodd up and left.
+
+“Who was that?” my co-worker asked.
+
+“That’s my brother,” I said as I cleaned the counter with a rag and he walked acorss Coney Island Avenue to—pressumably—head back home.
+
+I felt like crying at that moment but didn’t. I had no idea how to react to my brother showing up like a creep at the place I worked. Or how to react to my co-workers after they witnessed this bizaerre behavior.
 
 ***
 
