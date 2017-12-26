@@ -87,7 +87,15 @@ My brother could clearly see what was happening but I shook it off as an acciden
 
 After a few minutes I started to feel normal again, while my brother was still hunched over the tesrt tubes still doing his work when I said, “I am going home…”
 
-“No! Wait! I will drive you!” he shouted, which was odd. He occassiionally hijacked my attempts to leave on my own
+“No! Wait! I will drive you!” he shouted, which was odd. He occassiionally hijacked my attempts to leave on my own in the past, but as long as I had been “working” for him, he knew I would take the train home.
+
+“Yes! I am going home.” I said to him as I walked out the lab door and headed home.
+
+As I waited on the train platform for the A train to show up, I imagined him running down the staircase and felt paralyzed. When the train finally arrived, I jumped in but worried that when it got to 59th Street he would somehow show up there, but he didn’t.
+
+When the D train finally pulled into 59th Street and he was nowhere to be seen, I started to loosen up a bit.
+
+As the D train exited Prospect Park station and was awash withb the dusk sunlight I felt better. I was even able to take a nap on the train.
 
 ***
 
