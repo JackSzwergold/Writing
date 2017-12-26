@@ -45,8 +45,13 @@ And soon enough we got off at some non-descript floor, walked into a non-descrip
 
 And with that I felt my mind twist inside of itself. This is not what I wanted. I wanted a real job where I would be paid. I asked my brother who would pay me—assuming there was some kind of arrangement with the university and this was normal—and he responded, “I will! Do not worry!“
 
-And with that I had no idea what to do. If I left at that momement, my brother would cut me off and corner me. In his mind it was perfectly normal that he would pay me out of his own pocket for a “job” like this
+And with that I had no idea what to do. If I left at that momement, my brother would cut me off and corner me. In his mind it was perfectly normal that he would pay me out of his own pocket for a “job” like this so there was no simple escape. So I decided to stay and make the best of it.
 
+I ran some small errands for him around his lab, but for the most part my supposed “job” was to simply sit there and listen to my brother endlessly bather on about his work.
+
+You see, when I was 14 I was in some required science classes in Junior High School. I didn’t particularly like them or hate them; they were simply required classes. But in his mind the fact I was—for example—studying biochemistry meant I actually had a passion for the subject. Thus somehow I would care to listen to him blather on and on about whatever grad student class bullshit he was doing as if I cared.
+
+In between that bullshit I did things like use pipettes to fill things or use the autoclave to disinfect things. But there was no independence in these tasks
 
 ***
 
