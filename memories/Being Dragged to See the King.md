@@ -45,6 +45,10 @@ He sensed a pause from me and reacted, “You know who King Tut is, right?”
 
 I immediately said, “Yes…” despite the fact all I knew about King Tut at the time was the Steve Martin song, some vague crappy lessons from elemetary school and the fact one of the Micronaut action figures I had was named “Pharoid” which I was smart enough to know was connected to the Pharoah in Egypt.
 
+I was 9 years old at the time.
+
+Anyway, my brother inists on dragging me along, and my father comes out and states, “Why are you making such a big deal about this?” I go to put on my jacket to join my brother. I really didn’t want to go, but I learned from my experience at the time that it was better if I went along with Ben and his plans than say no. He was—and is—very violent, and giving him a sacrifice of some time was somewhat better than him sitting around and verbally abusing me—and his own family—for the rest of the afternoon. 
+
 ***
 
 *Being Dragged to See the King (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
