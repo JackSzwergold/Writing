@@ -85,6 +85,12 @@ I have no literal memory of ever seeing King Tut, but apparently I did. All I re
 
 Where did they come from? Were they in line with us? Did they meet us inside? I have no clue. The whole experience was disjointed and unpleasant that I didn’t keep track and didn’t care; a sparrow could have landed on my shoulder at that moment and talk to me and I would not care.
 
+Before you knew it we were ready to leave. I remember this momement because we were waiting near some bathrooms and I was looking at the wall at some hieroglyphics. They were not original hieroglyphics, but some wall text blowups of real hieroglyphics. I was fascinated by the shapes and how they looked like the stuff on my Micronaut Pharoid case, but that’s about it.
+
+I remember at that moment, one of my brother’s friends kneeling down to me and talking about the hieroglyphics. I looked at him and heard him speak, but I didn’t care about what he was saying. I saw some sign on the wall that had a street number exit. 81st Street exit I believe. I made a mental note of it. I wanted to look up that street on a map when I got home so the next time I was in this place, I could just sneak out and take the train back home.
+
+Before you knew it, whoever was in the bathroom was out and we’re all headed outside.
+
 ***
 
 *Being Dragged to See the King (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
