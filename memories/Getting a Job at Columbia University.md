@@ -107,6 +107,8 @@ When I got home again that night my father was on the phone with my brother as I
 
 “Jack!” he said. “Ben is on the phone!”
 
+I grabbed the phone and Ben asked, “How are you doing? What happened?” to which I replied, “I don’t want to work for you anymore. I have a new job!” and as I said that I could hear his breathing get more intense and his tone and anger growing. “What do you mean?!?” he said to which I said, “I have a new job! Goodbye!” and with that I passed the phone back to my dad, ran to my room and collapsed on the sofa.
+
 ***
 
 *Getting a Job at Columbia University (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
