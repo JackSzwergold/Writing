@@ -29,7 +29,11 @@ The fight was bad enough that my dad showed up at the doorway to me room and ask
 
 I was still 9 years old at the time.
 
-As my dad walked away, I could hear my brother grunt and rumble
+As my dad walked away, I could hear my brother grunt and rumble and head to the bathroom. What a joy!
+
+When my brother went to the bathroom it would usually take what professionals call “Forever” so I was free to walk around the apartment without being snagged by him in some horseshit.
+
+I went to the living room and saw my mom staring blankly towards the TV. She saw me and asked me herself, “What does he want?” And I shrugged again. I went into the kicthen and saw my dad warming up latkes or blintzes.
 
 ***
 
