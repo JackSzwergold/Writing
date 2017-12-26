@@ -55,6 +55,11 @@ In between that bullshit I did things like use pipettes to fill things or use th
 
 It was horrible. But at least he paid. How much, I don’t remember, but I remember at the end of each day he would pull some money out of his pocket and gave it to me. It felt less like a job and more like he was paying me to be his friend.
 
+I went along with this for a few weeks. The through is he was able to buy my friendship. I did want the money. But then—at some point—our father got wind of what Ben was doing and was angry. He said I should not take Ben’s money… He would just give me whatever money I needed.
+
+Superficially this seemed great financially, but it was horrible otherwise: My dysfunctional brother wants to literally buy my friendship and my father is threatened by my brother’s behavior and I did not know what to do.
+
+
 
 ***
 
