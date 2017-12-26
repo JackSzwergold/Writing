@@ -53,6 +53,22 @@ Anyway, my brother inists on dragging me along, and my father comes out and stat
 
 I walked out the door and ran to the staircase with my hand in my jacket pocket holding my Micronaut in place.
 
+As I walked out of the building and into the afternoon sunlight I saw what was a typical neighborhood day playing out: Yentas sitting in front of the building and kids playing in the street.
+
+I saw some neighborhood kids invite me over to play, but I told them I had to go somewhere. I walked past them, into my brothers car and closed the door.
+
+Pretty much immeiately from the moment the door closed to barely the moment my brother pulled out of the parking space I was inundated with him venting—seemingly endlessly—about our parents. I had no problem with them, but he seemed to be perpetually angry at them.
+
+And that was on a good day. Today was anything but good.
+
+We drove down Ocean Parkway, to the Belt Parkway, to the Gowanus Expressway, to the Brooklyn-Queens Expressway to the Brooklyn Bridge. All along the way, endless negativity from my brother.
+
+I was 9 years old at the time. He was 20 years older. And in his mind this was acceptable.
+
+By the time we got to the Brooklyn Bridge I was relieved. The bridge had this grating for a roadway that made for an enldess hum as cars drove over. The second the wheels of my brother’s car hit the Brooklyn Bridge that hum, that white noise was beautiful… I could not hear a thing he was saying, and I smiled as we drove over the bridge and I was able to enjoy the view without the bullshit.
+
+When we got to the Manhattan side, the hum settled, but my brother was still going at a mile a minute… His mouth was at least.
+
 ***
 
 *Being Dragged to See the King (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
