@@ -7,7 +7,13 @@ By Jack Szwergold
 
 ***
 
+It was an odd period in the family, my sister, her husband and children moved back to Brooklyn a few years before. They lived on Ocean Avenue near Neck Road. The apartment was decent, but one day—while walking back home—my sister saw a splattering of blood on the sidewalk near a payphone on the corner and flipped out. She needed to move. Desperately.
 
+So my father heard about this, taked to the superintendent of the building and was able to hook them up with a decent apartment in our building that was just one floor above us.
+
+Despite the close proximity, each family kept it’s distance… For the most part… And things were seemingly decent. I could go out and play with friends in the neighborhood, and my sister and her family were not completely up our collective asses all the time.
+
+One day I was bored and headed up to my sister’s apartment. Her husband had just come back from joggging. He was shirtless and smoking a joint as he posed my nephew on their couch for a picture.
 
 ***
 
