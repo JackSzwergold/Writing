@@ -71,7 +71,15 @@ With that he angrilly came over, saw what I did and startd to scream at me about
 
 I felt stunned, shocked and assaulted. I looked at the wall at a nearby calendar and tried to calculate how much more of this I had to deal with. At best one week if I could get the job at the Knish place. But that one week seemed like an eternity.
 
-I turned to a nearby sink and notcied
+I turned to a nearby sink and noticed some dry ice in a box next to it. The dry ice was leftover from some delivery so it was no longer need. I broke off some pieces and dropped them in the sink as the water was running. A carbon dioxide cloud filled the air. I thought about my brother’s yelling, temper and anger and just shoved my head straight into the cloud of carbon dioxide.
+
+I knew I couldn’t breathe it, but at that moment I waneted to feel something new. Have some escape from this bullshit. So for a brief moment I suffocated myself. The pain was gone for. few seconds then a new pain came; the pain of actually not being able to breath.
+
+I quickly pulled my head out, grasped my hands at my throat and was gasping for air when my brother came into lab.
+
+“What happened?” he said, looking straight at me.
+
+“Nothing!” I said as I audibly gasped for air.
 
 ***
 
