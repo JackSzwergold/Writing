@@ -33,7 +33,17 @@ As my dad walked away, I could hear my brother grunt and rumble and head to the 
 
 When my brother went to the bathroom it would usually take what professionals call “Forever” so I was free to walk around the apartment without being snagged by him in some horseshit.
 
-I went to the living room and saw my mom staring blankly towards the TV. She saw me and asked me herself, “What does he want?” And I shrugged again. I went into the kicthen and saw my dad warming up latkes or blintzes.
+I went to the living room and saw my mom staring blankly towards the TV. She saw me and asked me herself, “What does he want?” And I shrugged again. I went into the kicthen and saw my dad warming up latkes or blintzes. He turned to me and said, “Don’t worry… I’ll bring them to you…” So with that I headed back to my room and made sure the door was closed just enough and open just enough.
+
+By the time I got back to my room I could hear the sounds of someone finishing up their business in a bathroom; it didn’t seem like a lot of time passed but maybe the stress of the moment was deceiving me.
+
+Anyway, I am in my room and was on the floor doing whatever when my brother showed, pushed open the door without asking and then blurted out some stream of anger. Something about how much time and effort he spent getting tickets to the King Tut exhibit at the Met and how our parents did not care. Somehow I was suppposed to comiserate and “care” about this so I did what I always did: I shrugged and made some minor noises that acknowledged I went along with it.
+
+“Come! We are going to go!” my brother said to me as if I had no choice. “Where are we going?” I asked. “To see the King Tut exhibit!” I’m not too sure what made him think I would want to see this, but in his mind bullying into doing something good was intrinsically a good thing.
+
+He sensed a pause from me and reacted, “You know who King Tut is, right?”
+
+I immediately said, “Yes…” despite the fact all I knew about King Tut at the time was the Steve Martin song, some vague crappy lessons from elemetary school and the fact one of the Micronaut action figures I had was named “Pharoid” which I was smart enough to know was connected to the Pharoah in Egypt.
 
 ***
 
