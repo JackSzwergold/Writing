@@ -81,6 +81,14 @@ I quickly pulled my head out, grasped my hands at my throat and was gasping for 
 
 “Nothing!” I said as I audibly gasped for air.
 
+My brother could clearly see what was happening but I shook it off as an accident. Despite my gasping for air, he did not run over and do anythihg to help me. He simply placed the test tubes on the table and went back to work undoing the damage I had don’t.
+
+“You are not stupid? Why did you do this?” he asked me again, oblivious not only to the fact I had no idea what this work entailed but also oblivious to the fact I was still struggling to breathe.
+
+After a few minutes I started to feel normal again, while my brother was still hunched over the tesrt tubes still doing his work when I said, “I am going home…”
+
+“No! Wait! I will drive you!” he shouted, which was odd. He occassiionally hijacked my attempts to leave on my own
+
 ***
 
 *Getting a Job at Columbia University (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
