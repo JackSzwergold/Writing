@@ -95,7 +95,21 @@ I wanted it, but it cost $29.99. Which was waaay out of the price-range of my al
 
 The next week my dad wanted to head to “The City” and asked me where I wanted to go. “The Computer Center!” I said. “But we were just there last week? Why again?” he responded. “Because I want to,” I replied. So we made some compromise to check out the deals at Gimbel’s and Macy’s in Herald Square and then go to “The Computer Center” when we had time.
 
+So the weekend came, and we headed to Herald Square and my father then said we were going to “The Computer Center” first. “Why?” I asked. “Because Ben wants to see the place,” he said.
 
+I didn’t know what to make of it, but if Ben was showing up, he was showing up and that’s that.
+
+So we headed to “The Computer Center” again and I stared at the packing on “Baja Buggies” again. But this time my brother Ben leaned in and asked me about it.
+
+After explaining what the game was to him he simply said loudly and audibly, “That’s stupid! You can program a better game!”
+
+I was stunned and frozen. Ben had still not gotten me the magical BASIC cartridge he promised, but yet somehow was judging the games I liked and somehow thought I could somehow magically program games.
+
+Our father showed up and started to talk to Ben in Hebrew, Polish or Yiddish… I don’t remember… I just know it was not English… But he managed to calm him down a bit.
+
+I was feeling a tad better but raw. Here I am 14 years old walking around with my older brother—who is 34 years old—and justifying my desire and curiostity towards games and things I saw in the shop to him.
+
+I wouldn’t say it was a big scene; maybe only a handful of people noticed the minor domestic dust up. But as a kid who simply wanted to share what he enjoyed with a family member 
 
 ***
 
