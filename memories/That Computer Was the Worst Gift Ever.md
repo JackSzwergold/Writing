@@ -23,8 +23,9 @@ Anyway, I loved videogames and I longed to have a video game system at home. And
 
 Anyway, in 1980 I was 12 years old going on 13 and for a Jewish kid that meant a Bar Mitzvah. I was never religious, but went to Hebrew school at the time and learned the most important thing a Jewish kid could learn about the occassion: Relatives will come out of nowhere to toss tons of cash and expensive gifts at you.
 
-I was a dellusional kid at the time. Despite the fact my parents were poor and my extended family treated my family—and me—like utter shit, I had some great fantasy that somehow on this wonderful day, all differences would be put aside and respect and love would be finally be bestowed on me and my family by that time honored
+I was a dellusional kid at the time. Despite the fact my parents were poor and my extended family treated my family—and me—like utter shit, I had some great fantasy that somehow on this wonderful day, all differences would be put aside. Someho respect and love would be finally be bestowed on me and my family by that time honored tradition of giving somebody and expensive gift or piles of cash.
 
+So as the date approached I started to flip through the Sunday newspaper advertisements with intent and purpose: May’s, Topp’s, Macy’s, A&S and Korvette’s… Which of these low-brow to mid-brow discount chains would give me the best deal—and most convincing economic argument—that I could use to persude the adults in my life to toss their well intentioned Bar Mitzvah cash towards so I could finally play videogames at home.
 
 ***
 
