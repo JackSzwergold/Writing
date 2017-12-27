@@ -91,7 +91,11 @@ Racks were filled with zip-lock backs filled with software on cassette and disk.
 
 One game caught my eye: It was called “Baja Buggy.” It basically was an independently made clone of the Atari arcade game “Pole Position.” You drove a dirt buggy in somewhat first person point of view through a desert in some kind of race.
 
-I wanted it, but it cost $29.99. Which was waaay out of the price-range of my allowance.
+I wanted it, but it cost $29.99. Which was waaay out of the price-range of my allowance and limited savings at the time. So I looked at the package and tried to figure out how I could afford it.
+
+The next week my dad wanted to head to “The City” and asked me where I wanted to go. “The Computer Center!” I said. “But we were just there last week? Why again?” he responded. “Because I want to,” I replied. So we made some compromise to check out the deals at Gimbel’s and Macy’s in Herald Square and then go to “The Computer Center” when we had time.
+
+
 
 ***
 
