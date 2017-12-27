@@ -55,6 +55,8 @@ But I accepted it for what it was worth.
 
 A few months later—in June—my Bar Miztvah came and it happened and that is the absolute best that can be said about. My family wasn’t religious so the actual event was cursory rather than anything spectacular; in retrospect it should have never have happened and perhaps a basic birthday party with some pizza and ice cream would have been more honest.
 
+After the somewhat awkward ceremony, we ended up at back at the family home on Ocean Parkway. I saw boxes on the table in the living room and as ready to go at them.
+
 ***
 
 *That Computer Was the Worst Gift Ever (c) Copyright by Jack Szwergold; written on December 27, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
