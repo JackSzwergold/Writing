@@ -37,6 +37,24 @@ I took the Radio Shack supplement and carefully stored it in my desk drawer and 
 
 One weekend, as I was daydreaming on the floor of my room—toys, comics and that supplement near me—my brother showed up.
 
+He acted odd… Almost strange… There was no shouting or fighting as he walked into my room, kneeled down and started to talk to me.
+
+“What are you reading?” he asked.
+
+I showed him what I was reading: It was the Radio Shack supplement with the two dinosaurs fighting on it.
+
+“Do you want to play this game?” he asked.
+
+I nodded, “Yes…” as I started to explain what the game was and what a Radio Shack TRS-80 computer was.
+
+“That’s very nice,” he said. “Maybe you can get that for your Bar Mitzvah!” he added.
+
+I nodded, but was confused. While my brother wasn’t mean all the time, the kind of “nice” he was now was somewhat creepy. His tone of voice sounded a bit off as well; as if he was forcing himself to be nice.
+
+But I accepted it for what it was worth.
+
+A few months later—in June—my Bar Miztvah came and it happened and that is the absolute best that can be said about. My family wasn’t religious so the actual event was cursory rather than anything spectacular; in retrospect it should have never have happened and perhaps a basic birthday party with some pizza and ice cream would have been more honest.
+
 ***
 
 *That Computer Was the Worst Gift Ever (c) Copyright by Jack Szwergold; written on December 27, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
