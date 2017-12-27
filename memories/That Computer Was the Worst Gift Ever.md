@@ -13,7 +13,17 @@ Never heard of *Bite Monster*? Don’t worry… Most people didn’t. *Bite Mons
 
 Anway, I was really into videogames at the time. I loved going to the arcades in Coney Island and playing some of the old school pinball and electromagnetic games they still had there: Horse racing, target shooting, baseball… But as much fun as they were, they were inherently limited by physical space.
 
-The playing field on an electromagnetic game was 
+The playing field on an electromagnetic game was just what you saw in front of you. Oh, sometimes it was cool and fun in it’s own kitschy way, but each game only had limited, physical real world appeal.
+
+A videogame—on the other hand—was potentially limitless. A grid of pixels on the screen flashed and could recreate tons of different worlds, fantasies and realms.
+
+One could not play *Pac-Man* in another medium.
+
+Anyway, I loved videogames and I longed to have a video game system at home. And at the time the premier video game system was the classic Atari 2600. Clunky graphics aside, Atari games were fun since—while they might have not had the graphics and details of their arcade counterparts—they were far and away more interesting to play and look at than some of the TV game systems at the time that let you play games such as skeet shoot or crappy shooting gallery.
+
+Anyway, in 1980 I was 12 years old going on 13 and for a Jewish kid that meant a Bar Mitzvah. I was never religious, but went to Hebrew school at the time and learned the most important thing a Jewish kid could learn about the occassion: Relatives will come out of nowhere to toss tons of cash and expensive gifts at you.
+
+I was a dellusional kid at the time. Despite the fact my parents were poor and my extended family treated my family—and me—like utter shit, I had some great fantasy that somehow on this wonderful day, all differences would be put aside and respect and love would be finally be bestowed on me and my family by that time honored
 
 
 ***
