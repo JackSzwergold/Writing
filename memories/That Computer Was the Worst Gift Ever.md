@@ -109,7 +109,25 @@ Our father showed up and started to talk to Ben in Hebrew, Polish or Yiddish… 
 
 I was feeling a tad better but raw. Here I am 14 years old walking around with my older brother—who is 34 years old—and justifying my desire and curiostity towards games and things I saw in the shop to him.
 
-I wouldn’t say it was a big scene; maybe only a handful of people noticed the minor domestic dust up. But as a kid who simply wanted to share what he enjoyed with a family member 
+I wouldn’t say it was a big scene; maybe only a handful of people noticed the minor domestic dust up. But as a kid who simply wanted to share what he enjoyed with a family member who—I believed at the time—respected me, it was awkward.
+
+We walked around some more, I took some mental notes on game names and companies, and we all went home.
+
+A few weeks later Ben showed up with the magical BASIC cartridge. The packaging had been crushed and was opened sine my brother and his wife wanted to try it out on the loaned Atari 800 they had in their home.
+
+Ben showed me some basic BASIC programming and I learned such thrilling things such as how to do a GOTO loop. Ben also showed me some sine/cosine function I barely understood past it drawing a few curvy lines on the screen.
+
+“And now, you can program games!” he said with no awareness of how little I cared.
+
+By the time he gave me this cartridge I had become an expert at “Star Raiders.” I tried to show him some game level achievements I had made. But no sooner than I booted up the game he then powered the computer up to show me BASIC yet again.
+
+I nodded politely, listened to his self-centered, unwanted computer programming lessons and then pretended to program myself.
+
+It was not fun, but at some point I fooled myself into thinking I could program a game. Not for my own benefit, but for my own self-preservation. If I could do some basic BASIC and show my brother my “progress” as each week went on, I believed I could get him off my back.
+
+But it didn’t work. My programming at the time stunk and I didn’t enojoy it. Slowly I learned about the world of pirated software and slowly—but surely—me and my neighbhorhood friends would copy and trade games with each other. This was actually fun. It was social. For the price of some blank cassettes I could have a social circle focused on copying and playing games.
+
+But whenever my brother visited and saw me playing games some outbrust would occur. If I showed him the game I was playing, 9 times out of 10 he would declare it to be stupid.
 
 ***
 
