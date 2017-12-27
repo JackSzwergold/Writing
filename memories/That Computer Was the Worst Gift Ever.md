@@ -27,6 +27,16 @@ I was a dellusional kid at the time. Despite the fact my parents were poor and m
 
 So as the date approached I started to flip through the Sunday newspaper advertisements with intent and purpose: May’s, Topp’s, Macy’s, A&S and Korvette’s… Which of these low-brow to mid-brow discount chains would give me the best deal—and most convincing economic argument—that I could use to persude the adults in my life to toss their well intentioned Bar Mitzvah cash towards so I could finally play videogames at home.
 
+One Saturday night, after my dad picked up the Sunday Daily News, I picked through the non-news detritus on the living room table. There between the Parade Magazine and the Sunday comics was a sight to be seen: Two dinosaurs fighting each other on the cover of the Radio Shack supplement.
+
+I held onto thet supplement with intent and soaked in all the details: The game was called xxx and if I wanted to play it I needed to own a TRS-80 color computer. Just those words, “Color Computer” screamed humblebrag to me: “Other computers might be computers, but this computer was in full color!”
+
+The idea of such a thing boggled my mind. And better yet… There was a Radio Shack right nearby us in the Trump Village shopping center. I imagined myself wandering those aisles and getting the inside skinny on hot new TRS-80 games before anybody else knew.
+
+I took the Radio Shack supplement and carefully stored it in my desk drawer and would pull it out once in a while.
+
+One weekend, as I was daydreaming on the floor of my room—toys, comics and that supplement near me—my brother showed up.
+
 ***
 
 *That Computer Was the Worst Gift Ever (c) Copyright by Jack Szwergold; written on December 27, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
