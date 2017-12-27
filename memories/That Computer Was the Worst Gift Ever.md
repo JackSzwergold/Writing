@@ -7,6 +7,14 @@ By Jack Szwergold
 
 ***
 
+It was 1980. I was 12 years old. Just headed to Junior High School and boy, was I obsessed with videogames. *Space Invaders*, *GORF* and *Bite Monster* were my favorites because they were the only games I had access to in crappy Brighton Beach.
+
+Never heard of *Bite Monster*? Don’t worry… Most people didn’t. *Bite Monster* was the name of some German *Pac-Man* bootleg the local candy store—“40 Thieves”—had. I really liked playing *Bite-Monster*.
+
+Anway, I was really into videogames at the time. I loved going to the arcades in Coney Island and playing some of the old school pinball and electromagnetic games they still had there: Horse racing, target shooting, baseball… But as much fun as they were, they were inherently limited by physical space.
+
+The playing field on an electromagnetic game was 
+
 
 ***
 
