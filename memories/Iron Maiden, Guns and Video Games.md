@@ -51,7 +51,15 @@ I stood fairly dumbfounded and speechless. I simply went along with it and said,
 
 All the while his son—my friend—stood behind me and repeatedly said some variation of “Pa! Dad! Please… Stop… Stop it… Please…”
 
-I looked at his dad and he seemed a bit drunk but coherent.
+I looked at his dad and he seemed a bit drunk but coherent. “Jack, you want this?” he said, “Let me show you…”
+
+I shook my head no, headed back to my friend’s room while my friend looked at me, looked at his dad and started talking to him in Russian. He put his hand on his dad’s shoulder and made him put the gun away.
+
+I sat down on the edge of the bed in my friend’s room, picked up the guitar and dawdled with it a bit as I peered into the master bedroom: I could see my friends dad push the drawer of the nightstand closed and climb into bed. My friend still talked to him in Russian as his father laid down.
+
+Eventually, my friend left the master bedroom, closed the door and came back into his room. He looked at me, but didn’t said anything. I shifted himself so he could squeeze into the room and dicked around a bit on the guitar while staring at the poster of Eddie on the wall.
+
+It was dusk and the sun was setting. I put the guitar down, stood up and asked, “So let me know when get that blacklight, okay?” “Sure,” he said as I gathered my stuff and headed out the front door.
 
 ***
 
