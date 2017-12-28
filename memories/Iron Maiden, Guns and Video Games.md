@@ -33,6 +33,19 @@ Indeed it was. While I was looking at it without the glow of blacklight, the pos
 
 “Let me know!” I said as I stared at the poster again.
 
+Just then, I heard the sound of someone coming out of a bathroom. It was my friend’s dad. I had no idea he was even there yet taking a shower, but anyway… There he was in the doorway of my friend’s room wearing just a bathtowel and some slippers.
+
+“Jack,” he said, “Come here… I want to show you something…” he said.
+
+“Pa!” my friend said, “Come on?” he said.
+
+“Don’t worry! Done’t worry!” he said, “Jack come here let me show you something…” he said as he walked into the master bedroom next door. I followed.
+
+As I walked in, I saw him rummage through a nigthstand next to the bed. The room itself was basic Russian gaudy: While the apartment itself wasn’t big, the master bedroom was tricked out, ornate and over-decorated. Lots of mirrors and details that made you feel like you lived in a playhouse, but for real.
+
+“Here!” he said, “I have it now!” he said as he stood up, turned around and showed me what he had in his hand. It was a small sliver plated handgun. Had never seen an actual gun before in my life, but the gun looked legit.
+
+
 ***
 
 *Iron Maiden, Guns and Video Games (c) Copyright by Jack Szwergold; written on December 28, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
