@@ -27,7 +27,11 @@ He then stood up a bit and proceeded to play the opening riff to Deep Purple’s
 
 “About a week ago,” my friend said. “Pretty cool, right?”
 
-Indeed it was. While I was looking at it without the blacklight.
+Indeed it was. While I was looking at it without the glow of blacklight, the poster was amazing: The blacks were so deep and black. The yellows and other flourescent colors still glowed even in the non-blacklight of the afternoon sun. But more importantly, the message of the poster was amazing: There was Eddie—Iron Maiden’s mascot—writ large, the puppet master of the devil who was inturn the puppet master of some dude in the middle of some pile of flames in hell. The more you think of it, it makes no sense: Who is the devil the puppet master of? But if you think about it just hard enough, that poster can blow your mind.
+
+“I’m gonna get a blacklight next week,” my friend says.
+
+“Let me know!” I said as I stared at the poster again.
 
 ***
 
