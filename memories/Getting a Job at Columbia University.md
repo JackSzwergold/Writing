@@ -3,10 +3,6 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: Write about my first “job” working for my brother at Columbia University as a 13 year old kid. Basically my brother knew I wanted a job to earn money at the time and told me he knew of a job. Naively I believed he knew of a real job at Columbia University. The reality was he made me his “lab assistant” or some bullshit like that and paid me out of his own pocket. I even explicitly asked him if there was a “job” and he said “Yes, this is your job!” smiling as if I would be happy about this. I hated it. It wasn’t a job. It was another example of my brother attempting to control my life and rip me away from our father. Describe first suicide attempt by shoving face in cloud of CO2 vapor from dropping dry ice in a sink of warm water.
-
-***
-
 I was about 14 years old and wanted a summer job. Every other friend of mine had a summer job doing something somewhere, and I wanted one too. I wanted the indepence, the freedome but—most of all—I wanted the money a job would give me.
 
 So around the time of my 14th birtday I started to look for jobs but really had no idea where to start. I told my parents I wanted a job and my mom said she would ask someone at her factory if I could get a job. I was kind of excited, but not sure what that meant. My mom got up early each day, worked long hours and usually came home and collapsed in bed. Maybe there was some summer job for a teenager at the factory I could handle? Who knows.

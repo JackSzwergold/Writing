@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: Describe getting an Atari 400 for my Bar Mitzvah. Worst gift ever. Berated by Ben and Karen for playing games instead of programming them on this piece of shit “computer.”
+**QUICK NOTES**: This needs to be divided up into 2 to 3 pieces.
 
 ***
 

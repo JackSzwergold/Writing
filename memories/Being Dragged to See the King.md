@@ -3,10 +3,6 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: Being forced to see the King Tut exhibit at the Met Museum in the 1970s. Epilogue should be flashing forward to the 1990s and ripping up the Rosetta Stone program my brother’s wife’s parents gave me as a kid. Recall being rushed to go, sitting in Ben’s car hearing him yell at me about how he bought tickets and our parents didn’t care. This was 1977 and I was 9 years old.
-
-***
-
 My first memory of this event was my brother showing up on the weekend for a “suprise” visit like he usually did. To be fair, sometimes he would tell us he would show up, but this time he showed up out of nowhere.
 
 I knew he was coming because he would buzz into the front door of the building, my dad would answer that abd then my my dad would come to the front door—that was near my room—to open it up.

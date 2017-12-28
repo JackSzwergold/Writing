@@ -3,10 +3,6 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: Russian friend whose dad worked a crappy job at a gourmet deli in Manhattan yet had tons of money. One day in the 1980s—when I was in junior high school—while playing video games and futzing around on guitars, he told me to come into his bedroom. I go in and he’s standing there in nothing but a robe with a small silver handgun in his hand. He’s asking me, “Jack, why do I need to have this? Look at this Jack. I never use it. Why do I need this, Jack?” Never calls it a gun but is jostling it and shuffling it between each hand. His son (my friend) keeps on pleading to his dad by saying, “Dad… Dad…” repeatedly. I keep on saying “I dunno…” and eventually go back to my friend’s room. We sat down and looked at each other and didn’t really talk about what just happened. He closed the door and I just sat there, trying to play around with some video games some more but I mainly sat and stared at his huge Iron Maiden poster of Eddie from “Number of the Beast“ on his wall.
-
-***
-
 I was hanging out a friend’s house in the early 1980s. We both had Atari computers—I had an Atari 400 and he had an Atari 800—and we spent time copying games and trying to figure out games.
 
 You see, if you pirated a video game back then—in the pre-Internet age—you didn’t necessarilly get an instruction manual telling you how the game worked or even what keys on your keyboard you could use to do things.

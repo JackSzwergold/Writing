@@ -3,10 +3,6 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: The time Bruce Becker tried to bully me in 3rd grade at P.S. 253 by sitting next to me in the school cafeteria and say, “I hear your family only has a black and white TV.” Then without missing a beat someone walks by and says, “What are you bugging him about? You dad had to sell your TV! You don't even have one!” He started to cry immediately and responded “Shut up! He’s gonna get it back by the end of the week when he gets paid!” Gets up and walks away.
-
-***
-
 I was a new kid at P.S. 253 and people didn’t know what to make of me. Teachers, students… I was always treated a little odd.
 
 A few different factors came into play: One was that I was kicked out of P.S. 100 after 2nd grade when parents dared to complain when I was throw by my ear into a closet by a teacher angry I was running around and playing with other kids. Other kids at P.S. 100 didn’t know those details… But they did know that a kid being tranferred from one school to another was “weird” so I was treated as such.
