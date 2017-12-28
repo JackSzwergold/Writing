@@ -35,6 +35,8 @@ The idea of such a thing boggled my mind. And better yet… There was a Radio Sh
 
 I took the Radio Shack supplement and carefully stored it in my desk drawer and would pull it out once in a while.
 
+***
+
 One weekend, as I was daydreaming on the floor of my room—toys, comics and that supplement near me—my brother showed up.
 
 He acted odd… Almost strange… There was no shouting or fighting as he walked into my room, kneeled down and started to talk to me.
@@ -52,6 +54,8 @@ I nodded, “Yes…” as I started to explain what the game was and what a Radi
 I nodded, but was confused. While my brother wasn’t mean all the time, the kind of “nice” he was now was somewhat creepy. His tone of voice sounded a bit off as well; as if he was forcing himself to be nice.
 
 But I accepted it for what it was worth.
+
+***
 
 A few months later—in June—my Bar Miztvah came and it happened and that is the absolute best that can be said about. My family wasn’t religious so the actual event was cursory rather than anything spectacular; in retrospect it should have never have happened and perhaps a basic birthday party with some pizza and ice cream would have been more honest.
 
@@ -75,9 +79,11 @@ Next up was *Star Raiders* which was something else. It was a first person start
 
 “And you know, when we finally get you the BASIC cartridge, you can make your own games,” my brother said.
 
-I played these games and enjoyed them, but something feeled wrong. While I technically enjoyed the games, it still felt weird I would own something like this.
+I played these games and enjoyed them, but something felted wrong. While I technically enjoyed the games, it still felt weird I would own something like this.
 
-At that age I didn’t want a computer. I just wanted to play videogames. Who else in my neighborhood had a computer?
+At that age I didn’t want a computer. I just wanted to play videogames. Who else in my neighborhood had a computer? We were all poor.
+
+***
 
 Weeks would pass and slowly some of my friends would end up getting computers. In retrospect, Atari was making a big “educational” push so these so-called “computers” were being marketed as a smarter alternative to video games to people. And some of those people were friends of mine.
 
@@ -92,6 +98,8 @@ Racks were filled with zip-lock backs filled with software on cassette and disk.
 One game caught my eye: It was called “Baja Buggy.” It basically was an independently made clone of the Atari arcade game “Pole Position.” You drove a dirt buggy in somewhat first person point of view through a desert in some kind of race.
 
 I wanted it, but it cost $29.99. Which was waaay out of the price-range of my allowance and limited savings at the time. So I looked at the package and tried to figure out how I could afford it.
+
+***
 
 The next week my dad wanted to head to “The City” and asked me where I wanted to go. “The Computer Center!” I said. “But we were just there last week? Why again?” he responded. “Because I want to,” I replied. So we made some compromise to check out the deals at Gimbel’s and Macy’s in Herald Square and then go to “The Computer Center” when we had time.
 
@@ -112,6 +120,8 @@ I was feeling a tad better but raw. Here I am 14 years old walking around with m
 I wouldn’t say it was a big scene; maybe only a handful of people noticed the minor domestic dust up. But as a kid who simply wanted to share what he enjoyed with a family member who—I believed at the time—respected me, it was awkward.
 
 We walked around some more, I took some mental notes on game names and companies, and we all went home.
+
+***
 
 A few weeks later Ben showed up with the magical BASIC cartridge. The packaging had been crushed and was opened sine my brother and his wife wanted to try it out on the loaned Atari 800 they had in their home.
 
