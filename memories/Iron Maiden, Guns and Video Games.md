@@ -5,7 +5,7 @@ By Jack Szwergold
 
 I was hanging out a friend’s house in the early 1980s. We both had Atari computers—I had an Atari 400 and he had an Atari 800—and we spent time copying games and trying to figure out games.
 
-You see, if you pirated a video game back then—in the pre-Internet age—you didn’t necessarilly get an instruction manual telling you how the game worked or even what keys on your keyboard you could use to do things.
+You see, if you pirated a video game back then—in the pre-Internet age—you didn’t necessarily get an instruction manual telling you how the game worked or even what keys on your keyboard you could use to do things.
 
 So part of the process of pirating—at least for me—was to do some primitive “forensics” with friends to share notes and ideas on how certain games worked. This often just meant just smashing your hand across the keyboard and paying attention.
 
@@ -23,13 +23,13 @@ He then stood up a bit and proceeded to play the opening riff to Deep Purple’s
 
 “About a week ago,” my friend said. “Pretty cool, right?”
 
-Indeed it was. While I was looking at it without the glow of blacklight, the poster was amazing: The blacks were so deep and black. The yellows and other flourescent colors still glowed even in the non-blacklight of the afternoon sun. But more importantly, the message of the poster was amazing: There was Eddie—Iron Maiden’s mascot—writ large, the puppet master of the devil who was inturn the puppet master of some dude in the middle of some pile of flames in hell. The more you think of it, it makes no sense: Who is the devil the puppet master of? But if you think about it just hard enough, that poster can blow your mind.
+Indeed it was. While I was looking at it without the glow of blacklight, the poster was amazing: The blacks were so deep and black. The yellows and other fluorescent colors still glowed even in the non-blacklight of the afternoon sun. But more importantly, the message of the poster was amazing: There was Eddie—Iron Maiden’s mascot—writ large, the puppet master of the devil who was in-turn the puppet master of some dude in the middle of some pile of flames in hell. The more you think of it, it makes no sense: Who is the devil the puppet master of? But if you think about it just hard enough, that poster can blow your mind.
 
 “I’m gonna get a blacklight next week,” my friend says.
 
 “Let me know!” I said as I stared at the poster again.
 
-Just then, I heard the sound of someone coming out of a bathroom. It was my friend’s dad. I had no idea he was even there yet taking a shower, but anyway… There he was in the doorway of my friend’s room wearing just a bathtowel and some slippers.
+Just then, I heard the sound of someone coming out of a bathroom. It was my friend’s dad. I had no idea he was even there yet taking a shower, but anyway… There he was in the doorway of my friend’s room wearing just a bath towel and some slippers.
 
 “Jack,” he said, “Come here… I want to show you something…” he said.
 
@@ -37,7 +37,7 @@ Just then, I heard the sound of someone coming out of a bathroom. It was my frie
 
 “Don’t worry! Done’t worry!” he said, “Jack come here let me show you something…” he said as he walked into the master bedroom next door. I followed.
 
-As I walked in, I saw him rummage through a nigthstand next to the bed. The room itself was basic Russian gaudy: While the apartment itself wasn’t big, the master bedroom was tricked out, ornate and over-decorated. Lots of mirrors and details that made you feel like you lived in a playhouse, but for real.
+As I walked in, I saw him rummage through a nightstand next to the bed. The room itself was basic Russian gaudy: While the apartment itself wasn’t big, the master bedroom was tricked out, ornate and over-decorated. Lots of mirrors and details that made you feel like you lived in a playhouse, but for real.
 
 “Here!” he said, “I have it now!” he said as he stood up, turned around and showed me what he had in his hand. It was a small sliver plated handgun. Had never seen an actual gun before in my life, but the gun looked legit.
 
