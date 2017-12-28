@@ -7,7 +7,7 @@ Beven was a new kid in Junior High School. I didn’t really know him much past 
 
 While the rest of us had some of basic kid backpack—like a Jansport or an Eastpack or some generic olive drab Musette bag—this guy came to class with a beat-up, dark brown leather briefcase. It was beat to hell—and the frayed seams made you wonder if the leather was real or some kind fake crap—but he liked it and used it. Whenever he came to class he’d nonchalantly just place it on a desk, pop the clasps and open it up to reveal… A pile of papers and crap. He also liked to use beat-up legal pads but that’s another story entirely.
 
-Anyway, I barely knew him but one day me and a friend were talking about trading video games. Mainly Atari video games. Some new stuff was out that I wanted but didn’t know where to get it from. Maybe “Caverns of Mars” or “Defender?” I don’t know. Anway, Beven came over to our desk, said hi to my friend, was introduced to me and then opened up his beat up crappy briefcase to show off some games he had.
+Anyway, I barely knew him but one day me and a friend were talking about trading video games. Mainly Atari video games. Some new stuff was out that I wanted but didn’t know where to get it from. Maybe “Caverns of Mars” or “Defender?” I don’t know. Anyway, Beven came over to our desk, said hi to my friend, was introduced to me and then opened up his beat up crappy briefcase to show off some games he had.
 
 “Check this out!” he said as he rifled through the pile of scraps and crap in his bag to reveal a fairly beat up 5 1/3 inch diskette. The label had some messy handwriting on it and he clearly used a hole punch to be able to use the flip side of the disk. “See!” he said and then rifled off a list of games and said, “I can sell them to you, three for $10.”
 
@@ -29,7 +29,7 @@ Beven’s family lived in a pre-War tenement apartment building but his apartmen
 
 “Sorry, my dad refinishes old furniture.” Beven said as we walked in. “Just walk over there,” he said while pointing to an improvised desk made out of a dining table that was near the entrance to the kitchen.
 
-We made our way through the piles of crap and saw a small TV set connected to an Atari 800 and 810 disk drive sitting unceremoniously on the table. The chairs near the setup were a mish-mash of junky dining room tables. We each picked a chair and sat down.
+We made our way through the piles of crap and saw a small TV set connected to an Atari 800 and 810 disk drive sitting unceremoniously on the table. The chairs near the setup were a mishmash of junky dining room tables. We each picked a chair and sat down.
 
 “Who is that!” said some voice from deeper in the apartment. It was Beven’s younger brother Douglas.
 

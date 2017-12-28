@@ -7,29 +7,29 @@ By Jack Szwergold
 
 ***
 
-It was 1980. I was 12 years old. Just headed to Junior High School and boy, was I obsessed with videogames. *Space Invaders*, *GORF* and *Bite Monster* were my favorites because they were the only games I had access to in crappy Brighton Beach.
+It was 1980. I was 12 years old. Just headed to Junior High School and boy, was I obsessed with video games. *Space Invaders*, *GORF* and *Bite Monster* were my favorites because they were the only games I had access to in crappy Brighton Beach.
 
 Never heard of *Bite Monster*? Don’t worry… Most people didn’t. *Bite Monster* was the name of some German *Pac-Man* bootleg the local candy store—“40 Thieves”—had. I really liked playing *Bite-Monster*.
 
-Anway, I was really into videogames at the time. I loved going to the arcades in Coney Island and playing some of the old school pinball and electromagnetic games they still had there: Horse racing, target shooting, baseball… But as much fun as they were, they were inherently limited by physical space.
+Anyway, I was really into video games at the time. I loved going to the arcades in Coney Island and playing some of the old school pinball and electromagnetic games they still had there: Horse racing, target shooting, baseball… But as much fun as they were, they were inherently limited by physical space.
 
 The playing field on an electromagnetic game was just what you saw in front of you. Oh, sometimes it was cool and fun in it’s own kitschy way, but each game only had limited, physical real world appeal.
 
-A videogame—on the other hand—was potentially limitless. A grid of pixels on the screen flashed and could recreate tons of different worlds, fantasies and realms.
+A video game—on the other hand—was potentially limitless. A grid of pixels on the screen flashed and could recreate tons of different worlds, fantasies and realms.
 
 One could not play *Pac-Man* in another medium.
 
-Anyway, I loved videogames and I longed to have a video game system at home. And at the time the premier video game system was the classic Atari 2600. Clunky graphics aside, Atari games were fun since—while they might have not had the graphics and details of their arcade counterparts—they were far and away more interesting to play and look at than some of the TV game systems at the time that let you play games such as skeet shoot or crappy shooting gallery.
+Anyway, I loved video games and I longed to have a video game system at home. And at the time the premier video game system was the classic Atari 2600. Clunky graphics aside, Atari games were fun since—while they might have not had the graphics and details of their arcade counterparts—they were far and away more interesting to play and look at than some of the TV game systems at the time that let you play games such as skeet shoot or crappy shooting gallery.
 
-Anyway, in 1980 I was 12 years old going on 13 and for a Jewish kid that meant a Bar Mitzvah. I was never religious, but went to Hebrew school at the time and learned the most important thing a Jewish kid could learn about the occassion: Relatives will come out of nowhere to toss tons of cash and expensive gifts at you.
+Anyway, in 1980 I was 12 years old going on 13 and for a Jewish kid that meant a Bar Mitzvah. I was never religious, but went to Hebrew school at the time and learned the most important thing a Jewish kid could learn about the occasion: Relatives will come out of nowhere to toss tons of cash and expensive gifts at you.
 
-I was a dellusional kid at the time. Despite the fact my parents were poor and my extended family treated my family—and me—like utter shit, I had some great fantasy that somehow on this wonderful day, all differences would be put aside. Someho respect and love would be finally be bestowed on me and my family by that time honored tradition of giving somebody and expensive gift or piles of cash.
+I was a delusional kid at the time. Despite the fact my parents were poor and my extended family treated my family—and me—like utter shit, I had some great fantasy that somehow on this wonderful day, all differences would be put aside. Somehow respect and love would be finally be bestowed on me and my family by that time honored tradition of giving somebody and expensive gift or piles of cash.
 
-So as the date approached I started to flip through the Sunday newspaper advertisements with intent and purpose: May’s, Topp’s, Macy’s, A&S and Korvette’s… Which of these low-brow to mid-brow discount chains would give me the best deal—and most convincing economic argument—that I could use to persude the adults in my life to toss their well intentioned Bar Mitzvah cash towards so I could finally play videogames at home.
+So as the date approached I started to flip through the Sunday newspaper advertisements with intent and purpose: May’s, Topp’s, Macy’s, A&S and Korvette’s… Which of these low-brow to mid-brow discount chains would give me the best deal—and most convincing economic argument—that I could use to persuade the adults in my life to toss their well intentioned Bar Mitzvah cash towards so I could finally play video games at home.
 
 One Saturday night, after my dad picked up the Sunday Daily News, I picked through the non-news detritus on the living room table. There between the Parade Magazine and the Sunday comics was a sight to be seen: Two dinosaurs fighting each other on the cover of the Radio Shack supplement.
 
-I held onto thet supplement with intent and soaked in all the details: The game was called xxx and if I wanted to play it I needed to own a TRS-80 color computer. Just those words, “Color Computer” screamed humblebrag to me: “Other computers might be computers, but this computer was in full color!”
+I held onto that supplement with intent and soaked in all the details: The game was called xxx and if I wanted to play it I needed to own a TRS-80 color computer. Just those words, “Color Computer” screamed humblebrag to me: “Other computers might be computers, but this computer was in full color!”
 
 The idea of such a thing boggled my mind. And better yet… There was a Radio Shack right nearby us in the Trump Village shopping center. I imagined myself wandering those aisles and getting the inside skinny on hot new TRS-80 games before anybody else knew.
 
@@ -57,11 +57,11 @@ But I accepted it for what it was worth.
 
 ***
 
-A few months later—in June—my Bar Miztvah came and it happened and that is the absolute best that can be said about. My family wasn’t religious so the actual event was cursory rather than anything spectacular; in retrospect it should have never have happened and perhaps a basic birthday party with some pizza and ice cream would have been more honest.
+A few months later—in June—my Bar Mitzvah came and it happened and that is the absolute best that can be said about. My family wasn’t religious so the actual event was cursory rather than anything spectacular; in retrospect it should have never have happened and perhaps a basic birthday party with some pizza and ice cream would have been more honest.
 
 After the somewhat awkward ceremony, we ended up at back at the family home on Ocean Parkway. I saw boxes on the table in the living room and as ready to go at them.
 
-So after accepting cards from relatives and kisses on the cheek, I started to rip things open. Soon enough I saw the word “Atari” on a silver box. I renoved more wrapping and saw it right in front of me: “Atari 400 Personal Computer.” What?
+So after accepting cards from relatives and kisses on the cheek, I started to rip things open. Soon enough I saw the word “Atari” on a silver box. I removed more wrapping and saw it right in front of me: “Atari 400 Personal Computer.” What?
 
 As I looked around the box, some relatives gasped and started to gab and my brother focused on explaining what the computer was.
 
@@ -75,13 +75,13 @@ He took the cassette tape, stuck it into an odd looking tape deck that sat next 
 
 Soon enough the words “Space Invaders” showed up on the screen. But what I was looking at did not look like the “Space Invaders” I remembered from “40 Thieves” looked like. I grabbed. joystick and played. It was fun, but different.
 
-Next up was *Star Raiders* which was something else. It was a first person start fighter simulator and while it took some reading to understand how it worked, it was a funm game.
+Next up was *Star Raiders* which was something else. It was a first person start fighter simulator and while it took some reading to understand how it worked, it was a fun game.
 
 “And you know, when we finally get you the BASIC cartridge, you can make your own games,” my brother said.
 
 I played these games and enjoyed them, but something felted wrong. While I technically enjoyed the games, it still felt weird I would own something like this.
 
-At that age I didn’t want a computer. I just wanted to play videogames. Who else in my neighborhood had a computer? We were all poor.
+At that age I didn’t want a computer. I just wanted to play video games. Who else in my neighborhood had a computer? We were all poor.
 
 ***
 
@@ -97,7 +97,7 @@ Racks were filled with zip-lock backs filled with software on cassette and disk.
 
 One game caught my eye: It was called “Baja Buggy.” It basically was an independently made clone of the Atari arcade game “Pole Position.” You drove a dirt buggy in somewhat first person point of view through a desert in some kind of race.
 
-I wanted it, but it cost $29.99. Which was waaay out of the price-range of my allowance and limited savings at the time. So I looked at the package and tried to figure out how I could afford it.
+I wanted it, but it cost $29.99. Which was way out of the price-range of my allowance and limited savings at the time. So I looked at the package and tried to figure out how I could afford it.
 
 ***
 
@@ -115,7 +115,7 @@ I was stunned and frozen. Ben had still not gotten me the magical BASIC cartridg
 
 Our father showed up and started to talk to Ben in Hebrew, Polish or Yiddish… I don’t remember… I just know it was not English… But he managed to calm him down a bit.
 
-I was feeling a tad better but raw. Here I am 14 years old walking around with my older brother—who is 34 years old—and justifying my desire and curiostity towards games and things I saw in the shop to him.
+I was feeling a tad better but raw. Here I am 14 years old walking around with my older brother—who is 34 years old—and justifying my desire and curiosity towards games and things I saw in the shop to him.
 
 I wouldn’t say it was a big scene; maybe only a handful of people noticed the minor domestic dust up. But as a kid who simply wanted to share what he enjoyed with a family member who—I believed at the time—respected me, it was awkward.
 
@@ -135,17 +135,17 @@ I nodded politely, listened to his self-centered, unwanted computer programming 
 
 It was not fun, but at some point I fooled myself into thinking I could program a game. Not for my own benefit, but for my own self-preservation. If I could do some basic BASIC and show my brother my “progress” as each week went on, I believed I could get him off my back.
 
-But it didn’t work. My programming at the time stunk and I didn’t enojoy it. Slowly I learned about the world of pirated software and slowly—but surely—me and my neighbhorhood friends would copy and trade games with each other. This was actually fun. It was social. For the price of some blank cassettes I could have a social circle focused on copying and playing games.
+But it didn’t work. My programming at the time stunk and I didn’t enjoy it. Slowly I learned about the world of pirated software and slowly—but surely—me and my neighborhood friends would copy and trade games with each other. This was actually fun. It was social. For the price of some blank cassettes I could have a social circle focused on copying and playing games.
 
-But whenever my brother visited and saw me playing games some outbrust would occur. If I showed him the game I was playing, 9 times out of 10 he would declare it to be stupid. I had no idea how to respond so I let these outbursts pass and keep on playing.
+But whenever my brother visited and saw me playing games some outburst would occur. If I showed him the game I was playing, 9 times out of 10 he would declare it to be stupid. I had no idea how to respond so I let these outbursts pass and keep on playing.
 
 Soon enough I was able to wrap myself up in these games that when my brother came over, the passive aggressive—or even outright aggressive—violence could be numbed by staring at these games and being immersed in this world.
 
-As time passed, my brother begrudgingly accepted I only wanted to play video games and would never program any games. I felt like I won a victory against him until I realized that I was trapped in something I never wanted and had to endure years of verbal and psychological abuse becuase of this “gift.”
+As time passed, my brother begrudgingly accepted I only wanted to play video games and would never program any games. I felt like I won a victory against him until I realized that I was trapped in something I never wanted and had to endure years of verbal and psychological abuse because of this “gift.”
 
 If I was only given a video game system at the time all could be peaceful and happy. But instead—like all of my brother’s “gifts” and interactions—I had to get wrapped up in his bullshit to find any enjoyment in what he gave me.
 
-In retrospect I should have done with that computer what I did with virtually all of the “gifts” he and his wife gave me overv the years: Just not use it, toss it in the closet and throw it out after a few years.
+In retrospect I should have done with that computer what I did with virtually all of the “gifts” he and his wife gave me over the years: Just not use it, toss it in the closet and throw it out after a few years.
 
 ***
 
