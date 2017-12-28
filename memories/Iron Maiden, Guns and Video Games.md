@@ -45,6 +45,13 @@ As I walked in, I saw him rummage through a nigthstand next to the bed. The room
 
 “Here!” he said, “I have it now!” he said as he stood up, turned around and showed me what he had in his hand. It was a small sliver plated handgun. Had never seen an actual gun before in my life, but the gun looked legit.
 
+“Jack, why do I need to have this?,” he said shaking it in his hand, “Look at this Jack. I never use it. Why do I need this, Jack?”
+
+I stood fairly dumbfounded and speechless. I simply went along with it and said, “I don’t know…”
+
+All the while his son—my friend—stood behind me and repeatedly said some variation of “Pa! Dad! Please… Stop… Stop it… Please…”
+
+I looked at his dad and he seemed a bit drunk but coherent.
 
 ***
 
