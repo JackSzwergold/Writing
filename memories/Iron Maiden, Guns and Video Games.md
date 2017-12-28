@@ -21,7 +21,13 @@ Anyway, I was over at my friend’s home copying, playing and goofing around wit
 
 He then stood up a bit and proceeded to play the opening riff to Deep Purple’s “Smoke on the Water.” Sounded cool, but it was pretty basic.
 
+“Here,” he said, “Let me show you.” he added as he gave me the guitar and showed me which strings to hit and hold. Gotta admit… It was basic, but fun. Then I got bored and looked around the room and there I saw it: A flocked, blacklight poster of the cover of Iron Maiden’s “Number of the Beast.”
 
+“Whoa! When did you get that!” I asked.
+
+“About a week ago,” my friend said. “Pretty cool, right?”
+
+Indeed it was. While I was looking at it without the blacklight.
 
 ***
 
