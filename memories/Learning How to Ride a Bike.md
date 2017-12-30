@@ -41,6 +41,10 @@ I stood up, threw the remnants of the sandwich on the blanket and ran to the bik
 
 “I know how to do it! I know how to do it!” I shouted as I grabbed the bike, straddled it’s seat, pushed down on the pedal and finally rode on my own.
 
+My balance was wobbly, but with each push the feeling of balance—and what I had to do to retain it—became clearer and clearer. It was so clear I was able to ignore the fact my mom, dad and sister were frantically chasing me down Surf Avenue as I rode away from them. This one crazy feeling: I remembered riding my tricycle or Big Wheel down the block as a kid, but they could always catch up to me. But as I rode this crappy red Schwinn bike I realized I could ride a bike fast enough to get away from them! What a feeling!
+
+Soon enough I stopped because I saw some people in front of me—who were not my family—noticing the scene and attempting to run and grab me. Instead I awkwardly turned the bike around and rode back towards my mom, dad and sister.
+
 ***
 
 *Learning How to Ride a Bike (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
