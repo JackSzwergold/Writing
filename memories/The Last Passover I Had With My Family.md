@@ -15,7 +15,17 @@ Which is all to say: While I saw Passover as simply a unique holiday where Jews 
 
 I attended these evenst not because I too believed in Elijah the Prophet showing up or some nonsense like that, but rather because both of my sibilings families have dealt with divorce and abuse over the years so I saw my attendance as something that could add a layer of normalcy to the family’s lives. Especially my nephews and nieces who—despite their obvious lack of deep faith themselves—seemed to need some stability in the midst of familial chaose they were born into.
 
-Anway, the year was 2005 of 2006. I was prepared to participate in my sister’s Passover seder
+Anway, the year was 2005 of 2006. I was prepared to participate in my sister’s Passover seder. I showed up as I always did and met the family that was there as well as the small group of friends my sister had at her Temple.
+
+As usual, we waited for my brother and his kids to show up. This was fairly typical: My brother and his kids would show up whenever they wanted and barely apologized for any screwups their lateness caused. “Don’t sweat the small stuff,” my brother would always say, “And it’s all the small stuff.” 
+
+When my brother showed up he showed up with my niece—who seemed not into the idea of attending this event at all—but nowhere in sight was his son, my nephew.
+
+This seemed odd at the moment. My nephew had just moved to Brooklyn a year or so prior and was going to college here. He lived in Prospect Heights. While he had to get to my sister’s place on his own, there’s little to no reason he had to be late.
+
+“Where is he?” I calmly asked my brother, to which he shouted, “I don’t know!” which was a warning sign already.
+
+We waited some more
 
 ***
 
