@@ -37,6 +37,10 @@ My sister sat nearby and only said some cursory, basic and almost punishing thin
 
 I started to eat the sandwich, stared at the grass and then stared at the sky. My head was calm and clear, and when I turned to look at my bike I could feel my “ride a bike” neurons snap together: I knew how to ride a bike!
 
+I stood up, threw the remnants of the sandwich on the blanket and ran to the bike.
+
+“I know how to do it! I know how to do it!” I shouted as I grabbed the bike, straddled it’s seat, pushed down on the pedal and finally rode on my own.
+
 ***
 
 *Learning How to Ride a Bike (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
