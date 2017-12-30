@@ -25,6 +25,8 @@ I pushed and grunted a bit, but never was able to get my own balance.
 
 This went on and on for a while. Soon enough the whole family was involved including my mom and sister who took turns holding onto the other side of the bike as my dad continued to push and attempt to coach me along.
 
+After a while, it became nothing but stressful. All of the rolling up and back down the street was giving me pieces—and ideas—of what I should be doing, but it was hard for me to do it with people literally hanging on so close to me and basically arguing about what to do next while I sat in the middle.
+
 ***
 
 *Learning How to Ride a Bike (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
