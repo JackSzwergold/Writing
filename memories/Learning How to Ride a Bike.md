@@ -45,6 +45,10 @@ My balance was wobbly, but with each push the feeling of balance—and what I ha
 
 Soon enough I stopped because I saw some people in front of me—who were not my family—noticing the scene and attempting to run and grab me. Instead I awkwardly turned the bike around and rode back towards my mom, dad and sister.
 
+Instead of riding fast I pedalled a bit and coasted towards them. My dad came closer and gently grabbed the bike. The look on his face—and my mother’s—was happy and concerned. “Now you can ride a bike!” my dad said with a smile on his face as he puffed a bit harder than usual from running. My mom ran over and said, “Hey! Look at me!” which I did and then she grabbed my head and kissed me on the forehead.
+
+
+
 ***
 
 *Learning How to Ride a Bike (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
