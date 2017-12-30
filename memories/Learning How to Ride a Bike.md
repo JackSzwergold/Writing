@@ -27,6 +27,12 @@ This went on and on for a while. Soon enough the whole family was involved inclu
 
 After a while, it became nothing but stressful. All of the rolling up and back down the street was giving me pieces—and ideas—of what I should be doing, but it was hard for me to do it with people literally hanging on so close to me and basically arguing about what to do next while I sat in the middle.
 
+After a while, my dad called a break. We rolled the bike over to the iron fence next to a slim slice of grass, walked through a busted opening in the fence and had an impromptu picnic.
+
+The blanket was an old brown and beige blanket my parents got as refugees, and the lunch consisted of munester cheese sandwiches, grapes and maybe a can or two of Mott’s apple juice; it was basically a larger version of the lunch I would take to school each day.
+
+As I sat on the grass, unwrapping the wax paper from my sandwich, I tuned out my mom and dad arguing in Polish or Yiddish. You could tell there was some heated debate happening regarding the best way they could teach me how to ride a bike.
+
 ***
 
 *Learning How to Ride a Bike (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
