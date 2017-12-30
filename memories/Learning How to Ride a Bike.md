@@ -47,7 +47,9 @@ Soon enough I stopped because I saw some people in front of me—who were not my
 
 Instead of riding fast I pedalled a bit and coasted towards them. My dad came closer and gently grabbed the bike. The look on his face—and my mother’s—was happy and concerned. “Now you can ride a bike!” my dad said with a smile on his face as he puffed a bit harder than usual from running. My mom ran over and said, “Hey! Look at me!” which I did and then she grabbed my head and kissed me on the forehead.
 
+In the distance I could see my sister slowly walking towards us. She wasn’t happy and had a scowl on her face. She neither complimented me or insulted me. She just stood their glowering.
 
+“Come! Let’s go back and get the blanket and go home!” my dad said.
 
 ***
 
