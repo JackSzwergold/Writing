@@ -39,6 +39,8 @@ I was thrilled for a second or two… And that quickly passed into being terrifi
 
 I ran out to see what was happening and he immediately barked at me, “Stay out of this!!!” as his hands grasped my sister’s shoulders and she stood there, lifeless like a rag doll.
 
+I still walked towards him and said, “Leave her alone! She said the right thing! Why do we have to wait for your family all the time?” He turned to me and started barking again. I walked past him and stood near the phone. I looked at him holding her, looked at the phone and did not know what to do.
+
 ***
 
 *The Last Passover I Had With My Family (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
