@@ -51,6 +51,16 @@ I looked into the living room and saw the menagerie of “friends” my sister h
 
 I looked at them, turned my head, found a seat and sat down to wait… To wait for my nephew to finally show up so we could all—as a “family”—celebrate the magic of Passover.
 
+Some short time later—after dust had settled—the bell rang and there was my nephew. He was there apologizing and making nice to everyone. The events that just transpired were washed away and the “magic” of this kid showing up changed everyone’s tune.
+
+He really went out of his way to apologize for his actions; so much so I even told him, “Just sit down and let’s have a meal…”
+
+So as the Seder began, we all read from the Hagadah. We all took turns to read one paragraph like we always did, but when it came to my nephew he read a second paragraph… And then a third… As each obvious paragraph break happened I attempted to speak up and say he should allow others to read, but my brother and sister shushed me. My sister’s dullard friend said nothing; but that isn’t fair to them… The reality is nobody said anything. And I just accepted the reality of the situation and went along with it.
+
+Soon enough we were actually eating a meal. But as I ate I looked around and saw abusers, the abused and people who sat back and said nothing. While other Seders had given me headaches in the past, the feeling of death and “Why am I wasting my life?” washed over me.
+
+When I left my sister insisted I take home some food from the Seder despite my protests that I didn’t want anything. When I got home, I took off my jacket, lifted up the toilet cover and just flushed the food she gave me down the toilet.
+
 ***
 
 *The Last Passover I Had With My Family (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
