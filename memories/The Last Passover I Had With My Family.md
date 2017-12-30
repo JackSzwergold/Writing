@@ -25,7 +25,15 @@ This seemed odd at the moment. My nephew had just moved to Brooklyn a year or so
 
 “Where is he?” I calmly asked my brother, to which he shouted, “I don’t know!” which was a warning sign already.
 
-We waited some more
+We waited some more. Sundown had already passed. Everyone was antsy, but nobody wanted to start the Seder without my nephew and even less people dared to ask yet again, “Where is he?”
+
+My brother got on the phone with my nephew and it turned out he forgot today was the Seder at all. He was still at home in Prospect Heights after spending some of the day at his grandmother’s home.
+
+We found this all out after my brother hung up the phone and told us all about it adding a “This is no big deal!” to the end of the explanation. Easilly 8-9 people were sitting there waiting for the Seder to start but it was supposedly “No big deal!” that his son had forgotten it was happening and was leaving us in a lurch.
+
+Suddenly something odd happened. My sister spoke up and said something to the effect of “If this was his grandmother’s Seder and any of us were late, we would be getting grief!”
+
+My sister never spoke up. When she was a in a crappy abusive relationship with her ex—and now dead—husband she said nothing. When her own brother turned a blind eye to the abuse she endured at her ex-husband she said nothing. She was practically a human doormat when it came to power and men in her life who treated her like crap and never spoke up… But today was amazing! She finally spoke up!
 
 ***
 
