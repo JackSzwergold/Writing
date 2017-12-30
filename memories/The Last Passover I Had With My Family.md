@@ -39,7 +39,9 @@ I was thrilled for a second or two… And that quickly passed into being terrifi
 
 I ran out to see what was happening and he immediately barked at me, “Stay out of this!!!” as his hands grasped my sister’s shoulders and she stood there, lifeless like a rag doll.
 
-I still walked towards him and said, “Leave her alone! She said the right thing! Why do we have to wait for your family all the time?” He turned to me and started barking again. I walked past him and stood near the phone. I looked at him holding her, looked at the phone and did not know what to do.
+I still walked towards him and said, “Leave her alone! She said the right thing! Why do we have to wait for your family all the time?” He turned to me and started barking again. I walked past him and stood near the phone.
+
+I looked at him holding her, looked at the phone and did not know what to do. My arms were crossed and my brain was about to explode. If I called the police, what would happen? My brother and sister are masochists and 
 
 ***
 
