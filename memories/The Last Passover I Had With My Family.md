@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-**QUICKNOTES**: About the last Passover I had at my sister’s home in Bensonhurst. It was 2005 or 2006. My nephew didn’t show up, my sister complained, my brother shouted at her and shoved her against a wall. I saw my niece curled up in a fetal position on a couch. My nephew shows up and like robots, everyone did “Passover.”
+**QUICK NOTES**: About the last Passover I had at my sister’s home in Bensonhurst. It was 2005 or 2006. My nephew didn’t show up, my sister complained, my brother shouted at her and shoved her against a wall. I saw my niece curled up in a fetal position on a couch. My nephew shows up and like robots, everyone did “Passover.”
 
 ***
 
