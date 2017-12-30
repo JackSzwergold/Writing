@@ -41,7 +41,11 @@ I ran out to see what was happening and he immediately barked at me, “Stay ou
 
 I still walked towards him and said, “Leave her alone! She said the right thing! Why do we have to wait for your family all the time?” He turned to me and started barking again. I walked past him and stood near the phone.
 
-I looked at him holding her, looked at the phone and did not know what to do. My arms were crossed and my brain was about to explode. If I called the police, what would happen? My brother and sister are masochists and 
+I looked at him holding her, looked at the phone and did not know what to do. My arms were crossed and my brain was about to explode. If I called the police, what would happen? My brother and sister are masochists; it would end up being my word against theirs because my sister would not fight back.
+
+I looked at the stuff near the sink and saw a huge kitchen knife; maybe I could stab him and he would stop? But then again, what would happened. I would have stabbed my own brother, my sister would most likely black out of the whole incident and claim she has no idea what would have happened. If I did that I might have gone to jail for defending my own family from abuse because “That’s just the way it is…”
+
+As things calmed down
 
 ***
 
