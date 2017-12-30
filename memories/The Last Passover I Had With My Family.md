@@ -47,7 +47,9 @@ I looked at the stuff near the sink and saw a huge kitchen knife; maybe I could 
 
 As things calmed down, I walked past them and back to the living room. There I saw my niece curled up in a fetal position on the couch. I asked her if she was okay. She lifted her head and you could see the glistening of tears and redness in her cheeks as she nodded that she was okay when she clearly wasn’t.
 
-I looked into the living room and saw the menagerie of “friends”
+I looked into the living room and saw the menagerie of “friends” my sister had. They sat their motionless like a bunch of dullards. Not one of them stood up and said or did anything throughout this incident. Not when it started nor now when it ended. They sat their patiently and obediently—not even asking me how I was doing or coming to comfort my niece—as violence occured a room away from them.
+
+I looked at them, turned my head, found a seat and sat down to wait… To wait for my nephew to finally show up so we could all—as a “family”—celebrate the magic of Passover.
 
 ***
 
