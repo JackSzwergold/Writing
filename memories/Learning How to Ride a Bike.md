@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-**QUICKNOTES**: How I learned how to ride a bike when I was a kid on Surf Avenue in the 1970s, and how my sister resented it and abused me after it happened.
+**QUICK NOTES**: How I learned how to ride a bike when I was a kid on Surf Avenue in the 1970s, and how my sister resented it and abused me after it happened.
 
 ***
 
