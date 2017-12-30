@@ -45,7 +45,9 @@ I looked at him holding her, looked at the phone and did not know what to do. My
 
 I looked at the stuff near the sink and saw a huge kitchen knife; maybe I could stab him and he would stop? But then again, what would happened. I would have stabbed my own brother, my sister would most likely black out of the whole incident and claim she has no idea what would have happened. If I did that I might have gone to jail for defending my own family from abuse because “That’s just the way it is…”
 
-As things calmed down
+As things calmed down, I walked past them and back to the living room. There I saw my niece curled up in a fetal position on the couch. I asked her if she was okay. She lifted her head and you could see the glistening of tears and redness in her cheeks as she nodded that she was okay when she clearly wasn’t.
+
+I looked into the living room and saw the menagerie of “friends”
 
 ***
 
