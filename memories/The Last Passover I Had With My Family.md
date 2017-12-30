@@ -35,6 +35,10 @@ Suddenly something odd happened. My sister spoke up and said something to the ef
 
 My sister never spoke up. When she was a in a crappy abusive relationship with her ex—and now dead—husband she said nothing. When her own brother turned a blind eye to the abuse she endured at her ex-husband she said nothing. She was practically a human doormat when it came to power and men in her life who treated her like crap and never spoke up… But today was amazing! She finally spoke up!
 
+I was thrilled for a second or two… And that quickly passed into being terrified as my brother—like a bulldog—rushed at her, grabbed her by the shoulders and shoved her against the wall. “Don’t talk about my son this way!” he screamed as he pushed her against the wall.
+
+I ran out to see what was happening and he immediately barked at me, “Stay out of this!!!” as his hands grasped my sister’s shoulders and she stood there, lifeless like a rag doll.
+
 ***
 
 *The Last Passover I Had With My Family (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
