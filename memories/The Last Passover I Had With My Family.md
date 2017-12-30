@@ -13,6 +13,10 @@ In contrast, as my siblings grew older they all started to take their belief in 
 
 Which is all to say: While I saw Passover as simply a unique holiday where Jews got together to meet and greet each other, my siblings took it more seriously than anyone else I knew.
 
+I attended these evenst not because I too believed in Elijah the Prophet showing up or some nonsense like that, but rather because both of my sibilings families have dealt with divorce and abuse over the years so I saw my attendance as something that could add a layer of normalcy to the family’s lives. Especially my nephews and nieces who—despite their obvious lack of deep faith themselves—seemed to need some stability in the midst of familial chaose they were born into.
+
+Anway, the year was 2005 of 2006. I was prepared to participate in my sister’s Passover seder
+
 ***
 
 *The Last Passover I Had With My Family (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
