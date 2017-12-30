@@ -33,6 +33,10 @@ The blanket was an old brown and beige blanket my parents got as refugees, and t
 
 As I sat on the grass, unwrapping the wax paper from my sandwich, I tuned out my mom and dad arguing in Polish or Yiddish. You could tell there was some heated debate happening regarding the best way they could teach me how to ride a bike.
 
+My sister sat nearby and only said some cursory, basic and almost punishing things. I nodded politely in response but not in passion; there was always an undercurrent of meanness to her interactions with me even when she acted “nice.”
+
+I started to eat the sandwich, stared at the grass and then stared at the sky. My head was calm and clear, and when I turned to look at my bike I could feel my “ride a bike” neurons snap together: I knew how to ride a bike!
+
 ***
 
 *Learning How to Ride a Bike (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
