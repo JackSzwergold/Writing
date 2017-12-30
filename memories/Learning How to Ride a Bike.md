@@ -49,7 +49,9 @@ Instead of riding fast I pedalled a bit and coasted towards them. My dad came cl
 
 In the distance I could see my sister slowly walking towards us. She wasn’t happy and had a scowl on her face. She neither complimented me or insulted me. She just stood their glowering.
 
-“Come! Let’s go back and get the blanket and go home!” my dad said.
+“Come! Let’s go back and get the blanket and go home!” my dad said. So we all walked back… Except for me, who rode slowly next to my dad as his hand gently held the handlebars to help me keep slow speed balance.
+
+Soon enough we were back home and the red bike was back in its usual place in the living room. My calves hurt a bit, but I felt fine.
 
 ***
 
