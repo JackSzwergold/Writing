@@ -19,11 +19,15 @@ I was somewhat balanced in this setup, but it was clear that without my dad ther
 
 As I sat and waited for something to happen, my dad said, “Okay… Push the pedals…” I did, but it was awkward and not really natural. With my dad holding on the bike like that it felt more like I was on a rickety merry-go-round with a worker holding the horse up than me actually propelling myself down the street.
 
-I pushed and grunted a bit, but never was able to get my own balance.
+I pushed and grunted a bit, but never was able to get my own balance in this setup.
 
-This went on and on for a while. Soon enough the whole family was involved including my mom and sister who took turns holding onto the other side of the bike as my dad continued to push and attempt to coach me along.
+This went on and on for a while. My dad holding the bike up, me trying to pedal and then the same thing up in an opposite direction.
 
-After a while, it became nothing but stressful. All of the rolling up and back down the street was giving me pieces—and ideas—of what I should be doing, but it was hard for me to do it with people literally hanging on so close to me and basically arguing about what to do next while I sat in the middle.
+After a while the whole family—my mom and sister—was involved in the process and took turns holding onto the other side of the bike as my dad continued to push and attempt to coach me along.
+
+After a while the whole process became nothing but stressful exercise at best. All of the rolling up and down the same stretch of sidewalk gave me vague pieces
+
+of what I should be doing, but it was hard for me to do it with people literally hanging on so close to me and basically arguing about what to do next while I sat in the middle.
 
 After a while, my dad called a break. We rolled the bike over to the iron fence next to a slim slice of grass, walked through a busted opening in the fence and had an impromptu picnic.
 
