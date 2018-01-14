@@ -15,7 +15,9 @@ The lesson started out unceremoniously and simply: My dad who was walking the sm
 
 My dad held the handlebars with both hands but then quickly shuffled to the side and held onto the handlebars with one hand and held onto the back of the banana seat with his other hand.
 
-I was somewhat balanced in this setup, but it was clear that without my dad there to hold the whole thing up I would just fall down on my side. Then my dad said, “Okay… Push the pedals…” I did, but it was awkward. With my dad holding on the bike like that it felt more like I was on a rickety merry-go-round than propelling myself down the street.
+I was somewhat balanced in this setup, but it was clear that without my dad there to hold the whole thing up the bike would just fall down on it’s side with me sitting there going along for the ride.
+
+As I sat and waited for something to happen, my dad said, “Okay… Push the pedals…” I did, but it was awkward and not really natural. With my dad holding on the bike like that it felt more like I was on a rickety merry-go-round with a worker holding the horse up than me actually propelling myself down the street.
 
 I pushed and grunted a bit, but never was able to get my own balance.
 
