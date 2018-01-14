@@ -25,11 +25,12 @@ This went on and on for a while. My dad holding the bike up, me trying to pedal 
 
 After a while the whole family—my mom and sister—was involved in the process and took turns holding onto the other side of the bike as my dad continued to push and attempt to coach me along.
 
-After a while the whole process became nothing but a stressful and frustrating exercise at best for all involved. All of the rolling up and down the same stretch of sidewalk gave me vague ideas of what I should be doing–and how bike riding should work—but it was hard for me to actually ride that bike with people literally hanging on so close to me
+After a while the whole process became nothing but a stressful and frustrating exercise at best for all involved. All of the rolling up and down the same stretch of sidewalk gave me vague ideas of what I should be doing–and how bike riding should work—but it was hard for me to actually ride that bike given the situation. I mean, there I was with people literally hanging on so close to me—and literally arguing about what to do next—while I sat in the middle trying to get my own feel for the situation. I literally had no room to think let alone balance and process it all.
 
- and basically arguing about what to do next while I sat in the middle.
+After a while, my dad gave up and called a break. We rolled the bike over to the iron fence next to a slim slice of grass that sat next to the beach and boardwalk
 
-After a while, my dad called a break. We rolled the bike over to the iron fence next to a slim slice of grass, walked through a busted opening in the fence and had an impromptu picnic.
+
+, walked through a busted opening in the fence and had an impromptu picnic.
 
 The blanket was an old brown and beige blanket my parents got as refugees, and the lunch consisted of Muenster cheese sandwiches, grapes and maybe a can or two of Mott’s apple juice; it was basically a larger version of the lunch I would take to school each day.
 
