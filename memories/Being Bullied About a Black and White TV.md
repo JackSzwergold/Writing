@@ -9,7 +9,7 @@ While you can never know what makes someone tick—or why people judge you in a 
 
 It also didn’t help it that my parents were in their 50s at the time and technically looked like my grandparents to some. Nor did it help that I was the first American child of immigrants which made me naturally awkward and foreign to some despite my relatively fluent English at 8 years old.
 
-The fact that when teachers called the roll in class they would always say “Yakov…” instead of Jack. Children—and some teachers—back in the day weren’t exactly open minded towards kids with “weird” names or kids named “Jack” who were not actually a John.
+It also didn’t help when teachers did the roll call each day in class and would always shout “Yakov!” instead of Jack because that technically was—and is—my legal name. Children—and some teachers—back in the day weren’t exactly open minded towards kids with “weird” non-American names or kids named “Jack” who were not actually a John.
 
 Anyway, I was a new kid at P.S. 253 and eating lunch in the cafeteria with the handful of new friends I had.
 
