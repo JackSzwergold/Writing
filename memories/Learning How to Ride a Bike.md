@@ -43,7 +43,8 @@ Within momemnts I stood up, threw the remnants of the sandwich on the blanket an
 
 My balance was wobbly, but with each push of the pedals the feeling of natural balance—and what I had to do to maintain it—became clearer, more focused and natural. My focus was so clear I was able to calmly ignore the fact my mom, dad and sister were frantically chasing me down Surf Avenue as I rode away from them.
 
-This all added up to one crazy feeling: I remembered riding my tricycle or Big Wheel down the block as a kid, but they could always catch up to me.
+This all added up to one crazy feeling of freedome: While my mom and dad would always be able to catch up with me when I rode my tricycle or Big Wheel down the block, this bike was different.
+
 
 But as I rode this crappy red Schwinn bike I realized I could ride a bike fast enough to get away from them! What a feeling!
 
