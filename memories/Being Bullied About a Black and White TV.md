@@ -27,7 +27,7 @@ I kept on eating.
 
 “Hey…” said Bruce as he poked me in the shoulder again. “I hear your family only has a black and white TV?” He asked and as I was just about to say something, someone walked by and said, “What are you bugging him about? Your dad had to sell your TV! You don’t even have one!”
 
-Bruce turned to look at the kids who just said that. His cheeks turned read and his lips started to quiver and he started to cry.
+Bruce face turned pale and his experession changed as he turned to look at the kid who just said that. His cheeks turned read and his lips started to quiver and he started to cry.
 
 “Shut up! He’s gonna get it back by the end of the week when he gets paid!” Bruce said through the tears and snot.
 
