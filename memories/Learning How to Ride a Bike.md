@@ -11,11 +11,11 @@ Anyone who knew my family at the time knew that organizing an event like that wa
 
 My dad decided the best place to teach a child of my age how to ride a bike was the sidewalk near the one sharp curve on Surf Avenue; the area right near the handball courts and public bathrooms on West 5th Street. While that description sounds disparaging, the location was a great choice in retrospect; it was a somewhat desolate and empty area far away from the judgemental eyes of the local Yentas and neighborhood kids. And since it was a long stretch of uninterrupted sidewalk, I had a lot of surface area to putz and putter around on with the bike before hitting a curb.
 
-The lesson started out simply: My dad who was walking the small red bike in the street stopped, talked to my mom and then asked me to sit on the bike. I went on and sat on the bike’s yellowed—but still cool looking—glitter covered seat. Put one foot on one pedal and the other foot on another pedal.
+The lesson started out unceremoniously and simply: My dad who was walking the small red bike in the street stopped, talked to my mom and then asked me to sit on the bike. I went on and sat on the bike’s yellowed—but still cool looking—glitter covered seat, put one foot on one pedal and the other foot on another pedal and kinda rocked back and forth a bit.
 
-My dad was holding the handlebars with both hands but then shuffled to the side and held the back of the banana seat with one hand and front handlebars with his other hand.
+My dad held the handlebars with both hands but then quickly shuffled to the side and held onto the handlebars with one hand and held onto the back of the banana seat with his other hand.
 
-I was somewhat balanced but it was clear that without my dad there I would fall down on my side. Then my dad said, “Okay… Push the pedals…” I did, but it was awkward. With my dad holding on the bike like that it felt more like I was on a rickety merry-go-round than propelling myself down the street.
+I was somewhat balanced in this setup, but it was clear that without my dad there to hold the whole thing up I would just fall down on my side. Then my dad said, “Okay… Push the pedals…” I did, but it was awkward. With my dad holding on the bike like that it felt more like I was on a rickety merry-go-round than propelling myself down the street.
 
 I pushed and grunted a bit, but never was able to get my own balance.
 
