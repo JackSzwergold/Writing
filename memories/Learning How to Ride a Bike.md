@@ -33,7 +33,7 @@ The grass was clean but brownish and patchy in spots and my mom and dad laid out
 
 I sat on the grass, unwrapped the wax paper from the half of a sandwich I grabbed from a brown bag, and tried to tune out my mom and dad as they argued in Polish or Yiddish or whatever non-English language they were speaking in at that moment. You didn’t need to know the specific meaning of what they were saying to understand there was some sort of heated debate happening regarding the best way they could teach me how to ride a bike.
 
-My sister sat nearby and only said some cursory, basic and almost punishing things. I nodded politely in response but not in passion; there was always an undercurrent of meanness to her interactions with me even when she acted “nice.”
+My sister sat nearby and only said some basic and somewhat passive aggressive things to me as I sat and ate. I nodded politely in response but not in passion; there was always an undercurrent of meanness to her interactions with me even when she acted “nice.”
 
 I started to eat the sandwich, stared at the grass and then stared at the sky. My head was calm and clear, and when I turned to look at my bike I could feel my “ride a bike” neurons snap together: I knew how to ride a bike!
 
