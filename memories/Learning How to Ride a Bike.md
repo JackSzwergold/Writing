@@ -27,12 +27,9 @@ After a while the whole family—my mom and sister—was involved in the process
 
 After a while the whole process became nothing but a stressful and frustrating exercise at best for all involved. All of the rolling up and down the same stretch of sidewalk gave me vague ideas of what I should be doing–and how bike riding should work—but it was hard for me to actually ride that bike given the situation. I mean, there I was with people literally hanging on so close to me—and literally arguing about what to do next—while I sat in the middle trying to get my own feel for the situation. I literally had no room to think let alone balance and process it all.
 
-After a while, my dad gave up and called a break. We rolled the bike over to the iron fence next to a slim slice of grass that sat next to the beach and boardwalk
+After a while, my dad gave up and called a break. We rolled the bike over to the iron fence next to a slim sliver of grass that sat next to the beach and boardwalk, walked through a busted opening in the fence and had an impromptu picnic right then and there.
 
-
-, walked through a busted opening in the fence and had an impromptu picnic.
-
-The blanket was an old brown and beige blanket my parents got as refugees, and the lunch consisted of Muenster cheese sandwiches, grapes and maybe a can or two of Mott’s apple juice; it was basically a larger version of the lunch I would take to school each day.
+The grass was clean but brownish and patchy in spots and my mom and dad laid out a small blanket on top of it. The blanket was an old brown and beige patterned blanket my parents got as refugees way back when and have always used since. The lunch consisted of Muenster cheese sandwiches, grapes and maybe a can or two of Mott’s apple juice; it was basically a larger version of the lunch I would take to school each day. Except this time the whole family was enjoying the meal
 
 As I sat on the grass, unwrapping the wax paper from my sandwich, I tuned out my mom and dad arguing in Polish or Yiddish. You could tell there was some heated debate happening regarding the best way they could teach me how to ride a bike.
 
