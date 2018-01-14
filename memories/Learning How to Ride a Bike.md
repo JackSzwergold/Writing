@@ -37,9 +37,9 @@ My sister sat nearby and only said some basic and somewhat passive aggressive th
 
 As I was eating the sandwich I stared at the grass and then stared at the sky and was calm. My head was cool, clear and collected when I turned, looked at the bike, and suddenly felt my “I can ride a bike” neurons snap into place: At that moment, I knew how to ride a bike!
 
-I stood up, threw the remnants of the sandwich on the blanket and ran to the bike.
+Within momemnts I stood up, threw the remnants of the sandwich on the blanket and ran straight to the bike.
 
-“I know how to do it! I know how to do it!” I shouted as I grabbed the bike, straddled it’s seat, pushed down on the pedal and finally rode on my own.
+“I know how to do it! I know how to do it!” I shouted as I grabbed the bike, straddled its seat, pushed down on the pedal and finally rode on my own down the block.
 
 My balance was wobbly, but with each push the feeling of balance—and what I had to do to retain it—became clearer and clearer. It was so clear I was able to ignore the fact my mom, dad and sister were frantically chasing me down Surf Avenue as I rode away from them. This one crazy feeling: I remembered riding my tricycle or Big Wheel down the block as a kid, but they could always catch up to me. But as I rode this crappy red Schwinn bike I realized I could ride a bike fast enough to get away from them! What a feeling!
 
