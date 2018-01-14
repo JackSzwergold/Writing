@@ -41,7 +41,11 @@ Within momemnts I stood up, threw the remnants of the sandwich on the blanket an
 
 “I know how to do it! I know how to do it!” I shouted as I grabbed the bike, straddled its seat, pushed down on the pedal and finally rode on my own down the block.
 
-My balance was wobbly, but with each push the feeling of natural balance—and what I had to do to maintain it—became clearer, more focused and natural. My focus was so clear I was able to calmly ignore the fact my mom, dad and sister were frantically chasing me down Surf Avenue as I rode away from them. This one crazy feeling: I remembered riding my tricycle or Big Wheel down the block as a kid, but they could always catch up to me. But as I rode this crappy red Schwinn bike I realized I could ride a bike fast enough to get away from them! What a feeling!
+My balance was wobbly, but with each push of the pedals the feeling of natural balance—and what I had to do to maintain it—became clearer, more focused and natural. My focus was so clear I was able to calmly ignore the fact my mom, dad and sister were frantically chasing me down Surf Avenue as I rode away from them.
+
+This all added up to one crazy feeling: I remembered riding my tricycle or Big Wheel down the block as a kid, but they could always catch up to me.
+
+But as I rode this crappy red Schwinn bike I realized I could ride a bike fast enough to get away from them! What a feeling!
 
 Soon enough I stopped because I saw some people in front of me—who were not my family—noticing the scene and attempting to run and grab me. Instead I awkwardly turned the bike around and rode back towards my mom, dad and sister.
 
