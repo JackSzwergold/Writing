@@ -47,9 +47,9 @@ This all added up to one crazy feeling of freedom: While my mom and dad would al
 
 But this feeling of freedom was cut short when I noticed some people in front of me down the sidewalk who—while not a part of my family—clearly noticed the small scene me and my family created and attempted to run, cut me off and grab me to help my parents out.
 
-Instead of riding into these folks, I awkwardly stopped the bike, turned the bike around and rode back towards my mom, dad and sister.
+Instead of riding into this band of meddling outsiders, I awkwardly stopped the bike, turned the bike around and rode back towards my mom, dad and sister.
 
-Instead of riding fast I pedaled a bit and coasted towards them. My dad came closer and gently grabbed the bike. The look on his face—and my mother’s—was happy and concerned. “Now you can ride a bike!” my dad said with a smile on his face as he puffed a bit harder than usual from running. My mom ran over and said, “Hey! Look at me!” which I did and then she grabbed my head and kissed me on the forehead.
+I pedaled a bit and coasted towards them. My dad came closer and gently grabbed the bike. The look on his face—and my mother’s—was happy and concerned. “Now you can ride a bike!” my dad said with a smile on his face as he puffed a bit harder than usual from running. My mom ran over and said, “Hey! Look at me!” which I did and then she grabbed my head and kissed me on the forehead.
 
 In the distance I could see my sister slowly walking towards us. She wasn’t happy and had a scowl on her face. She neither complimented me or insulted me. She just stood their glowering.
 
