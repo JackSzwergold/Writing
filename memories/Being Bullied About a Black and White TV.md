@@ -27,11 +27,11 @@ I kept on eating.
 
 “Hey…” said Bruce as he poked me in the shoulder again. “I hear your family only has a black and white TV?” He asked and as I was just about to say something, someone walked by and said, “What are you bugging him about? Your dad had to sell your TV! You don’t even have one!”
 
-Bruce’s face turned pale and his experession turned dour as he turned to look at the kid who just said that. His cheeks reddened up and his lips started to quiver and—before anyone knew it—he started to cry.
+Bruce’s face turned pale and his expression turned dour as he turned to look at the kid who just said that. His cheeks reddened up and his lips started to quiver and—before anyone knew it—he started to cry.
 
-“Shut up!” Bruce blurted as he cried tears and snot while gasping for air. “He’s gonna get it back by the end of the week when he gets paid!” He shouted to the kid as he walked awat.
+“Shut up!” Bruce blurted as he cried tears and snot while gasping for air. “He’s gonna get it back by the end of the week when he gets paid!” He shouted to the kid as he walked away.
 
-His turned back to the table and arched his body as he cried with his face turned down to the floor. I turned and poked him in the shoulder and gave him another cookie. He took the coookie and ate it while still hunced over and in between a few sobs. After a while stood up and walked away.
+He turned back to the table and hunched his body over as he cried with his face turned down to the floor. I turned and poked him in the shoulder and gave him another cookie. He took the cookie and slowly ate it in between sobs and coughs. After a while stood up and walked away.
 
 ***
 
