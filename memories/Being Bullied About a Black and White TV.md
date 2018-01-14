@@ -11,13 +11,13 @@ It also didn’t help it that my parents were in their 50s at the time and techn
 
 It also didn’t help when teachers did the roll call each day in class and would always shout “Yakov!” instead of Jack because that technically was—and is—my legal name. Children—and some teachers—back in the day weren’t exactly open minded towards kids with “weird” non-American names or kids named “Jack” who were not actually a John.
 
-Anyway, I was a new kid at P.S. 253 and humbly eating lunch in the cafeteria with the handful of new friends I had at time time,
+Anyway, I was a new kid at P.S. 253 and humbly eating lunch in the cafeteria with the handful of new friends I had at time time.
 
-As I’m sitting there eating my salami sandwich with a can of Mott’s apple juice—with a side of Hydrox cookies—I noticed Bruce Becker looking towards me. I pretended to ignore him, but then he straddled up on the seat next to me and poked me in the shoulder.
+As I’m sitting there eating my salami sandwich with a can of Mott’s apple juice—and a side of Hydrox cookies—I noticed this other kid, Bruce Becker, looking straight at me. I turned away and pretended to ignore him, but then he straddled up on the seat next to me and poked a finger in my shoulder.
 
 “Hey, Jack…” he said, “Can I have a cookie?” he asked.
 
-I looked at my four Hydrox cookies and said, “Yeah, sure…” and gave him one.
+I looked at my four Hydrox cookies and said, “Yeah, sure…” and gave him one of them
 
 “Thanks…” he said as he pried the cookie open to lick the insides. “Ha! Ha! Your family can’t even afford Oreos!” he said loud enough for all to hear.
 
