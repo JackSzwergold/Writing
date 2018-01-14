@@ -7,7 +7,7 @@ I don’t know how old I was exactly—maybe 6 or 7—but I knew I was a just a 
 
 The whole family was there for the occasion… At least the whole family that lived in Brighton Beach at the time: Me, my dad, my mom and my older sister.
 
-This was a big deal since usually at least one family member stayed behind in the apartment to make sure things didn’t catch on fire or someone didn’t break in to steal our stuff.
+Anyone who knew my family at the time knew that organizing an event like that was a pretty big deal. Usually at least one family member stayed behind in the apartment to make sure things didn’t catch on fire or someone didn’t break in to our apartment to steal our stuff.
 
 My dad decided the best place to teach me how to ride a bike was the sidewalk near the one sharp curve on Surf Avenue; the area right near the handball courts on West 5th Street. It was a great choice in retrospect; it was somewhat desolate and empty and since it was a long stretch of sidewalk I had a lot of sidewalk I could putz around on before hitting a curb.
 
