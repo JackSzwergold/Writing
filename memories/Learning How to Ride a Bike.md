@@ -3,9 +3,9 @@
 
 By Jack Szwergold
 
-I don’t know how old I was exactly—maybe 6 or 7—but I knew I was a just a small kid and it was kinda cold outside. Everyone was dressed up in winterish clothes but it definitely wasn’t winter since there was no snow on the ground. All I knew was I was being taken outside by my whole family to learn how to ride a bike. And it would have been pretty cruel to subject a kid of any age to do something like that if it was actually cold outside.
+I don’t know how old I was exactly—maybe 6 or 7—but I knew I was a just a small kid and it was kinda cold outside. Everyone was dressed up in winterish clothes but it definitely wasn’t winter since there was no snow on the ground. All I knew was I was being taken outside to learn how to ride a bike. And it would have been pretty cruel to subject a kid of any age to do something like that if it was actually cold outside.
 
-The whole family was there… At least the whole family that lived in Brighton Beach at the time: Me, my dad, my mom and my older sister.
+The whole family was there for the occasion… At least the whole family that lived in Brighton Beach at the time: Me, my dad, my mom and my older sister.
 
 This was a big deal since usually at least one family member stayed behind in the apartment to make sure things didn’t catch on fire or someone didn’t break in to steal our stuff.
 
