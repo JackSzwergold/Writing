@@ -53,7 +53,7 @@ I pedaled a bit—at a speed that was neither slow nor fast—and coasted toward
 
 In the near distance I could see my sister slowly walking towards us. She wasn’t running anymore and clearly wasn’t happy: She had a scowl on her face that I only I could see. She neither complimented me or insulted me. She just stood their glowering.
 
-“Come! Let’s go back and get the blanket and go home!” my dad said. So we all walked back… Except for me, who rode slowly next to my dad as his hand gently held the handlebars to help me keep slow speed balance.
+“Come! Let’s go back and get the blanket and go home!” my dad said. So everyone walked back to get the blanket… Except for me, who rode slowly next to my dad as his hand gently one side of the handlebars to help me balance while riding along at a slow speed.
 
 Soon enough we were back home and the red bike was back in its usual place in the living room. My calves hurt a bit, but I felt fine.
 
