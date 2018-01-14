@@ -3,11 +3,7 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: How I learned how to ride a bike when I was a kid on Surf Avenue in the 1970s, and how my sister resented it and abused me after it happened.
-
-***
-
-I don’t know how old I was but I knew I was a kid and it was cold. Everyone was dressed up in winterish clothes. But it wasn’t winter since there was no snow on the ground and I was being taking outside to learn how to ride a bike, which would have been cruel to subject a kid to if it was actually cold.
+I don’t know how old I was exactly—maybe 6 or maybe 7—but I knew I was a just a small kid and it was kinda cold outside. Everyone was dressed up in winterish clothes but it wasn’t winter since there was no snow on the ground. All I knew was I was being taken outside by my whole family to learn how to ride a bike. And it would have been cruel to subject a kid of any age to do something like that if it was actually cold.
 
 The whole family was there… At least the whole family that lived in Brighton Beach at the time: Me, my dad, my mom and my older sister.
 
