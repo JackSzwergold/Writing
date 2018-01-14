@@ -25,9 +25,9 @@ This went on and on for a while. My dad holding the bike up, me trying to pedal 
 
 After a while the whole family—my mom and sister—was involved in the process and took turns holding onto the other side of the bike as my dad continued to push and attempt to coach me along.
 
-After a while the whole process became nothing but stressful exercise at best. All of the rolling up and down the same stretch of sidewalk gave me vague pieces
+After a while the whole process became nothing but a stressful and frustrating exercise at best for all involved. All of the rolling up and down the same stretch of sidewalk gave me vague ideas of what I should be doing–and how bike riding should work—but it was hard for me to actually ride that bike with people literally hanging on so close to me
 
-of what I should be doing, but it was hard for me to do it with people literally hanging on so close to me and basically arguing about what to do next while I sat in the middle.
+ and basically arguing about what to do next while I sat in the middle.
 
 After a while, my dad called a break. We rolled the bike over to the iron fence next to a slim slice of grass, walked through a busted opening in the fence and had an impromptu picnic.
 
