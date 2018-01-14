@@ -43,9 +43,9 @@ Within momemnts I stood up, threw the remnants of the sandwich on the blanket an
 
 My balance was wobbly, but with each push of the pedals the feeling of natural balance—and what I had to do to maintain it—became clearer, more focused and natural. My focus was so clear I was able to calmly ignore the fact my mom, dad and sister were frantically chasing me down Surf Avenue as I rode away from them.
 
-This all added up to one crazy feeling of freedom: While my mom and dad would always be able to catch up with me when I rode my tricycle or Big Wheel down the block, the feeling of freedom connected to riding a real bike was different. As crappy as this little red Schwinn bike was, I pretty instantly realized this bike was still inherently fast enough to allow me to ride away from them! What a feeling!
+This all added up to one crazy feeling of freedom: While my mom and dad would always be able to catch up with me when I rode my tricycle or Big Wheel down the block, the feeling of freedom connected to riding a real bike was different. As crappy as this little red Schwinn bike was, I pretty much immediately realized this bike was still inherently fast enough to allow me to ride away from them! What a feeling!
 
-But this immediate feeling of freedom at that moment was cut short
+But this feeling of freedom was cut short
 
 Soon enough I stopped because I saw some people in front of me—who were not my family—noticing the scene and attempting to run and grab me. Instead I awkwardly turned the bike around and rode back towards my mom, dad and sister.
 
