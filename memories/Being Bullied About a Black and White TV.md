@@ -21,9 +21,11 @@ I looked at my four Hydrox cookies and said, “Yeah, sure…” and gave him on
 
 “Thanks…” he said as he pried the cookie open to lick the insides. Other kids started to look at what was happening when Bruce suddenly said, “Hydrox? Ha! Ha! Your family can’t even afford Oreos!” he said loud enough for all to hear.
 
-I didn’t know what to say. I liked Hydrox cookies but I had no response to his reaction so I let it pass and kept on eating. I looked around and saw other kids staring at me. Was I about to get into a fight over cookies? Who knows
+I didn’t know what to say. I liked Hydrox cookies but I had no response to his reaction so I let it pass and kept on eating. I looked around and saw other kids staring at me. Was I about to get into a fight over cookies? Who knows.
 
-“Hey…” Bruce said poking me in the shoulder again. “I hear your family only has a black and white TV.” He said and as I was about to say something, someone walked by and said, “What are you bugging him about? You dad had to sell your TV! You don't even have one!”
+I kept on eating.
+
+“Hey…” said Bruce as he poked me in the shoulder again. “I hear your family only has a black and white TV?” He asked and as I was just about to say something, someone walked by and said, “What are you bugging him about? Your dad had to sell your TV! You don’t even have one!”
 
 Bruce turned to look at the kids who just said that. His cheeks turned read and his lips started to quiver and he started to cry.
 
