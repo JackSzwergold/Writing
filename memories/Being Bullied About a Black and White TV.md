@@ -31,7 +31,7 @@ Bruce’s face turned pale and his expression turned dour as he turned to look a
 
 “Shut up!” Bruce blurted as he cried tears and snot while gasping for air. “He’s gonna get it back by the end of the week when he gets paid!” He shouted to the kid as he walked away.
 
-He turned back to the table and hunched his body over as he cried with his face turned down to the floor. I turned and poked him in the shoulder and gave him another cookie. Without a word he took the cookie and slowly ate it in between sobs and coughs. After a while stood up and walked away.
+He hunched his body over and turned back to the table as he cried with his face turned down to the floor so nobody could see. I turned and poked him in the shoulder and gave him another cookie. Without a word he took the cookie and slowly ate it in between sobs and coughs. After a while stood up and walked away.
 
 ***
 
