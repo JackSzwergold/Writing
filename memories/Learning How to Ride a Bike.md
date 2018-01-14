@@ -45,9 +45,9 @@ My balance was wobbly, but with each push of the pedals the feeling of natural b
 
 This all added up to one crazy feeling of freedom: While my mom and dad would always be able to catch up with me when I rode my tricycle or Big Wheel down the block, the feeling of freedom connected to riding a real bike was different. As crappy as this little red Schwinn bike was, I pretty much immediately realized this bike was still inherently fast enough to allow me to ride away from them! What a feeling!
 
-But this feeling of freedom was cut short
+But this feeling of freedom was cut short when I noticed some people in front of me down the sidewalk who—while not a part of my family—clearly noticed the small scene me and my family created and attempted to run, cut me off and grab me to help my parents out.
 
-Soon enough I stopped because I saw some people in front of me—who were not my family—noticing the scene and attempting to run and grab me. Instead I awkwardly turned the bike around and rode back towards my mom, dad and sister.
+Instead of riding into these folks, I awkwardly stopped the bike, turned the bike around and rode back towards my mom, dad and sister.
 
 Instead of riding fast I pedaled a bit and coasted towards them. My dad came closer and gently grabbed the bike. The look on his face—and my mother’s—was happy and concerned. “Now you can ride a bike!” my dad said with a smile on his face as he puffed a bit harder than usual from running. My mom ran over and said, “Hey! Look at me!” which I did and then she grabbed my head and kissed me on the forehead.
 
