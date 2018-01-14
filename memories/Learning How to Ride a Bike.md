@@ -29,9 +29,9 @@ After a while the whole process became nothing but a stressful and frustrating e
 
 After a while, my dad gave up and called a break. We rolled the bike over to the iron fence next to a slim sliver of grass that sat next to the beach and boardwalk, walked through a busted opening in the fence and had an impromptu picnic right then and there.
 
-The grass was clean but brownish and patchy in spots and my mom and dad laid out a small blanket on top of it. The blanket was an old brown and beige patterned blanket my parents got as refugees way back when and have always used since. The lunch consisted of Muenster cheese sandwiches, grapes and maybe a can or two of Mott’s apple juice; it was basically a larger version of the lunch I would take to school each day. Except this time the whole family was enjoying the meal
+The grass was clean but brownish and patchy in spots and my mom and dad laid out a small blanket on top of it. The blanket was an old brown and beige patterned blanket my parents got as refugees way back when and have always used since. The lunch consisted of Muenster cheese sandwiches, grapes and maybe a can or two of Mott’s apple juice; it was basically a larger version of the lunch I would take to school each day. Except this time the whole family was enjoying the meal.
 
-As I sat on the grass, unwrapping the wax paper from my sandwich, I tuned out my mom and dad arguing in Polish or Yiddish. You could tell there was some heated debate happening regarding the best way they could teach me how to ride a bike.
+I sat on the grass, unwrapped the wax paper from the half of a sandwich I grabbed from a brown bag, and tried to tune out my mom and dad as they argued in Polish or Yiddish or whatever non-English language they were speaking in at that moment. You didn’t need to know the specific meaning of what they were saying to understand there was some sort of heated debate happening regarding the best way they could teach me how to ride a bike.
 
 My sister sat nearby and only said some cursory, basic and almost punishing things. I nodded politely in response but not in passion; there was always an undercurrent of meanness to her interactions with me even when she acted “nice.”
 
