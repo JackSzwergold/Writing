@@ -29,7 +29,7 @@ I kept on eating.
 
 Bruce’s face turned pale and his experession turned dour as he turned to look at the kid who just said that. His cheeks reddened up and his lips started to quiver and—before anyone knew it—he started to cry.
 
-“Shut up! He’s gonna get it back by the end of the week when he gets paid!” Bruce said through the tears and snot.
+“Shut up!” Bruce blurted as he cried and gasped for air. “He’s gonna get it back by the end of the week when he gets paid!” Bruce said through the tears and snot.
 
 His body was arched as he cried and looked down to the floor. I poked him and gave him another cookie. He took it—still hunched over—ate it in between sobs, stood up and walked away.
 
