@@ -35,7 +35,7 @@ I sat on the grass, unwrapped the wax paper from the half of a sandwich I grabbe
 
 My sister sat nearby and only said some basic and somewhat passive aggressive things to me about the whole experience as I sat there, ate and nodded politely. Nodding politely to here was often the best way to deal with her when she acted like this since there was always an undercurrent of meanness and nastiness to her interactions with me even when she was supposedly being “nice.”
 
-As I was eating the sandwich I stared at the grass and then stared at the sky and was calm. My head was cool, clear and collected when I turned to look at the bike suddenly I could feel my “ride a bike” neurons snap into place: I knew how to ride a bike!
+As I was eating the sandwich I stared at the grass and then stared at the sky and was calm. My head was cool, clear and collected when I turned, looked at the bike, and suddenly felt my “I can ride a bike” neurons snap into place: At that moment, I knew how to ride a bike!
 
 I stood up, threw the remnants of the sandwich on the blanket and ran to the bike.
 
