@@ -17,11 +17,11 @@ As I’m sitting there eating my salami sandwich with a can of Mott’s apple ju
 
 “Hey, Jack…” he said, “Can I have a cookie?” he asked.
 
-I looked at my four Hydrox cookies and said, “Yeah, sure…” and gave him one of them
+I looked at my four Hydrox cookies and said, “Yeah, sure…” and gave him one of them.
 
-“Thanks…” he said as he pried the cookie open to lick the insides. “Ha! Ha! Your family can’t even afford Oreos!” he said loud enough for all to hear.
+“Thanks…” he said as he pried the cookie open to lick the insides. Other kids started to look at what was happening when Bruce suddenly said, “Hydrox? Ha! Ha! Your family can’t even afford Oreos!” he said loud enough for all to hear.
 
-I let it pass but looked all around to see other kids staring at me. Was I about to get into a fight? Who knows.
+I didn’t know what to say. I liked Hydrox cookies but I had no response to his reaction so I let it pass and kept on eating. I looked around and saw other kids staring at me. Was I about to get into a fight over cookies? Who knows
 
 “Hey…” Bruce said poking me in the shoulder again. “I hear your family only has a black and white TV.” He said and as I was about to say something, someone walked by and said, “What are you bugging him about? You dad had to sell your TV! You don't even have one!”
 
