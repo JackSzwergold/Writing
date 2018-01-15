@@ -60,3 +60,4 @@ Soon enough we were back home and the red bike was back in its usual place in th
 ***
 
 *Learning How to Ride a Bike (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+w

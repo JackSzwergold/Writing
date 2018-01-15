@@ -5,7 +5,7 @@ By Jack Szwergold
 
 I was a new kid at P.S. 253 and people didn’t know what to make of me. Teachers, students… I was always treated as a little bit odd when I showed up.
 
-While you can never know what makes someone tick—or why people judge you in a certain way—a few different factors came into play: One was that I was kicked out of P.S. 100 after 2nd grade when my parents dared to complain when I was literally thrown by my ear into a coat closet by a teacher who was angry I was running around and playing with another kid. Other kids at P.S. 253 didn’t know those specifics… But they did know that some kid being transferred from one school to another was “weird” so I was treated as such.
+While you can never know what makes someone tick—or why people judge you in a certain way—but from my perspective a few different factors came into play: One was that I was kicked out of P.S. 100 after 2nd grade when my parents dared to complain when I was literally thrown by my ear into a coat closet by a teacher who was angry I was running around and playing with another kid. Other kids at P.S. 253 didn’t know those specifics… But they did know that some kid being transferred from one school to another was “weird” so I was treated as such.
 
 It also didn’t help it that my parents were in their 50s at the time and technically looked like my grandparents to some. Nor did it help that I was the first American child of immigrants which made me naturally awkward and foreign to some despite my relatively fluent English at 8 years old.
 
