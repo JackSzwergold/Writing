@@ -95,7 +95,7 @@ And with that Bradley uncermoniously grabbed the joystick out of Douglas’s han
 
 I looked at Douglass sitting there on the washing machine as it shook back and forth, but the lid was closed thanks to his weight. No water was going to spill out if the machine thanks to Douglas’s efforts, but Douglas sat there crying, red faced, with his limp legs gently shaking back and forth with the motion of the machine.
 
-I turned back to the Atari. Bradley tried to play Donkey Kong but really stunk. He didn’t get upset about it. But he also didn’t get upset at his brother crying on the top of washing machine. Neither did Beven. Neither did Matt. Neither did his dad who was wiping wood with turpentine from the beginning of this mess without uttering a word.
+Turning back to the computer, I watched as Bradley tried to play “Donkey Kong” but failed miserably. He stunk worse than Douglas at playing the game, but didn’t get upset about it. He also didn’t get upset at his brother crying on the top of washing machine. Neither did Beven. Neither did Matt. Neither did his dad who was still wiping wood with turpentine from the beginning of this mess without uttering a word to anyone.
 
 “Here!” Beven said as he gave me a beat up floppy disk. “Copy it on this one.”
 
