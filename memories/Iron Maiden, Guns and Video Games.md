@@ -51,7 +51,7 @@ I followed and as I walked in, I saw him rummage through a nightstand next to th
 
 “Jack,” he implored, “Why do I need to have this?,” he said shaking it a bit in his hand as he talked, “Look at this Jack,” he said, “I never use it so why do I need this, Jack?”
 
-I stood fairly dumbfounded and speechless. I simply went along with it and said, “I don’t know…”
+I stood there fairly dumbfounded and speechless. What could I say? He seemed a little red faced and wobbly; was he actually a bit drunk or just shower drunk and happy to be freshly clean and out of the shower. Whatever was in his head, I don’t know. All I know is that I simply went along with it and said, “I don’t know…”
 
 All the while his son—my friend—stood behind me and repeatedly said some variation of “Pa! Dad! Please… Stop… Stop it… Please…”
 
