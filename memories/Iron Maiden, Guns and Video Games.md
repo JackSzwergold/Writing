@@ -47,9 +47,9 @@ Just then—as if on cue—I heard the sound of someone coming out of a nearby b
 
 I followed and as I walked in, I saw him rummage through a nightstand next to the bed. The bedroom itself was decorated in what could only be described as basic, aspirational Russian gaudy. That meant it was all tricked out with all of the kinds of ornate and over-decorated flourishes that aspires to make the place seem as if it was a fancy, luxurious mansion despite the fact that—when all is said and done—it was actually a small bedroom in a dumpy medium-sized post-war apartment building next to an equally dumpy highway off-ramp.
 
-“Here!” he shouted, “I have it now!” he added as he stood up, turned around and showed me what he was so excited about. There in his hand was a small silver-plated handgun. Had never seen an actual gun before in my life, but the gun looked legit. Could have been a .22 or .38 caliber gun.
+“Here!” he shouted, “I have it now!” he added as he stood up, turned around and showed me what he was so excited about. There in his hand was a small silver-plated handgun. While I had seen—and collected—small bullets I would find on the ground in the neighborhood, I had never seen an actual gun before in my life. But the gun looked legit. Could have been a .22 or .38 caliber gun.
 
-“Jack, why do I need to have this?,” he said shaking it in his hand, “Look at this Jack. I never use it. Why do I need this, Jack?”
+“Jack,” he implored, “Why do I need to have this?,” he said shaking it a bit in his hand as he talked, “Look at this Jack,” he said, “I never use it so why do I need this, Jack?”
 
 I stood fairly dumbfounded and speechless. I simply went along with it and said, “I don’t know…”
 
