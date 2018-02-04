@@ -9,9 +9,7 @@ You see, if you pirated a video game back then—in the pre-Internet age—you d
 
 So part of the process of video game pirating—at least for me and my small circle of software pirating friends—was to do some primitive, improvised version of digital “forensics” with friends to figure out how these games worked. And when I say “digital” I don’t mean just 1s and 0s and bits and bytes. Often the hacking method we used was to just smash our hands across the keyboard to see what happened. It was a simple and effective method of figuring out how software worked without having to do things like decompile a binary and wade through raw, undocumented code.
 
-Anyway, I was over at my friend’s place playing and copying some video games we each had.
-
-Copying any data back then was a tedious process at best since storage media was slow and tedious. Especially when you’re a poor kid like me who only had a cassete tape drive to use.
+Anyway, I was over at my friend’s place playing and copying some video games which was a tedious process back then since storage media and devices were slow, tedious and unreliable at best. Even moreso for a poor kid like me who couln’t afford a disk drive at the time and only had a measely, slow data cassette tape drive to use.
 
 
 
