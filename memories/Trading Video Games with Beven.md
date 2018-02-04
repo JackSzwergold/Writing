@@ -3,11 +3,13 @@
 
 By Jack Szwergold
 
-Beven was a new kid in Junior High School. I didn’t really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky. Like the basic way he carried himself, stains on his clothes and—most notably—the briefcase he carried around.
+Beven was a new kid in Junior High School. I didn’t really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky. Like the basic way he carried and composed himself, stains on his clothes and—most notably—the odd, beat up briefcase he carried around with him at all times.
 
-While the rest of us had some of basic kid backpack—like a Jansport or an Eastpack or some generic olive drab Musette bag—this guy came to class with a beat-up, dark brown leather briefcase. It was beat to hell—and the frayed seams made you wonder if the leather was real or some kind fake crap—but he liked it and used it. Whenever he came to class he’d nonchalantly just place it on a desk, pop the clasps and open it up to reveal… A pile of papers and crap. He also liked to use beat-up legal pads but that’s another story entirely.
+While the rest of us had some of basic kid backpack—like a Jansport or an Eastpack or some generic olive drab Musette bag—this guy came to class with a beat-up, dark brown leather briefcase that looked like it was discarded on a pile of trash. It was beat to hell—and the frayed seams made you wonder if the leather was real or some kind fake crap—but he liked it and used it. Whenever he came to class he’d non-chalantly just place it on a desk, pop the clasps and open it up to reveal… A pile of papers and realted school supply crap. He also liked to use beat-up legal pads instead of regular notebooks but that’s another story entirely.
 
-Anyway, I barely knew him but one day me and a friend were talking about trading video games. Mainly Atari video games. Some new stuff was out that I wanted but didn’t know where to get it from. Maybe “Caverns of Mars” or “Defender?” I don’t know. Anyway, Beven came over to our desk, said hi to my friend, was introduced to me and then opened up his beat up crappy briefcase to show off some games he had.
+Anyway, I barely knew him but one day me and a friend were talking about trading video games in class. Mainly Atari video games. Some new stuff was out that I wanted but didn’t know where to get it from. Maybe “Caverns of Mars” or “Defender?” I don’t know. Anyway, Beven came over to our desk, said hi to my friend, was introduced to me and then opened up his beat up crappy briefcase to show off some games he had on flopp.
+
+
 
 “Check this out!” he said as he rifled through the pile of scraps and crap in his bag to reveal a fairly beat up 5 1/3 inch diskette. The label had some messy handwriting on it and he clearly used a hole punch to be able to use the flip side of the disk. “See!” he said and then rifled off a list of games and said, “I can sell them to you, three for $10.”
 
