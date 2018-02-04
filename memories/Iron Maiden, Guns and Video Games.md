@@ -55,11 +55,11 @@ I stood there fairly dumbfounded and speechless. What could I say? He seemed a l
 
 All the while his son—also known as my friend—stood behind me in the doorway and was repeatedly sayin some variation of “Pa! Dad! Please… Stop… Stop it… Please…” while this whole odd thing was going on.
 
-I looked at his dad again and again trying to find a clean way out of this when he suddenly blurted, “Jack, do you want this?” 
+I looked at his dad again and again trying to find a clean way out of this when he suddenly blurted, “Jack, do you want this?” As he head the gun in his palm and pushed it towards me.
 
-“Let me show you…”
+“Here, let me show you,” he said as he leaned forward.
 
-I shook my head no, headed back to my friend’s room while my friend looked at me, looked at his dad and started talking to him in Russian. He put his hand on his dad’s shoulder and made him put the gun away.
+I backed off a bit shook my head no, laughing and smiling a bit and headed back to my friend’s room while my friend looked at me, looked at his dad and started talking to him in Russian. He put his hand on his dad’s shoulder and made him put the gun away.
 
 I sat down on the edge of the bed in my friend’s room, picked up the guitar and dawdled with it a bit as I peered into the master bedroom: I could see my friends dad push the drawer of the nightstand closed and climb into bed. My friend still talked to him in Russian as his father laid down.
 
