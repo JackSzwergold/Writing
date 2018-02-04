@@ -103,9 +103,9 @@ I poked Bradley to get him to stop playing and before you knew it I had copied �
 
 “Thanks! You want stuff? I can give you new games when I get them,” he said, “And then we can sell them to the other kids.” He still didn’t get it. It was simple enough for me to copy the games so who cares. But I responded, “Okay, when you get some new games, okay?”
 
-“Deal!” he said as he took the disk from me.
+“Deal!!!” he said enthusiastically as he took the disk from me and put it back into his pile of seemingly randomly labelled disks.
 
-His mom came back into the kitchen. The sun was setting so she turned on the light. With the bright light of a bare, circular florescent light shining you could see the whole kitchen scene: Douglas—red faced and sobbing—sitting on the crappy washing machine, his young ass the only thing preventing the piece of junk from exploding all over the place. And next to him his mom standing there in a crappy pink nightie with a big stain right over her crotch.
+His mom came back into the kitchen as the sun was setting and turned on the light. With the bright light of a bare, circular florescent light shining you could clearly see the whole kitchen scene: Douglas—red faced and sobbing—sitting on the crappy washing machine, his young ass apparently the only thing preventing the piece of junk from exploding all over the place. And next to him his mom standing there in a dingy pink nightie with a big stain right over her crotch.
 
 “You want some dinner, Jack?” she said as she opened up the cupboard. “Nah,” I said, “I gotta go home!” 
 
