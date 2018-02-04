@@ -53,9 +53,11 @@ I followed and as I walked in, I saw him rummage through a nightstand next to th
 
 I stood there fairly dumbfounded and speechless. What could I say? He seemed a little red faced and wobbly; was he actually a bit drunk or just shower drunk and happy to be freshly clean and out of the shower. Whatever was in his head, I don’t know. All I know is that I simply went along with it and said, “I don’t know…”
 
-All the while his son—my friend—stood behind me and repeatedly said some variation of “Pa! Dad! Please… Stop… Stop it… Please…”
+All the while his son—also known as my friend—stood behind me in the doorway and was repeatedly sayin some variation of “Pa! Dad! Please… Stop… Stop it… Please…” while this whole odd thing was going on.
 
-I looked at his dad and he seemed a bit drunk but coherent. “Jack, you want this?” he said, “Let me show you…”
+I looked at his dad again and again trying to find a clean way out of this when he suddenly blurted, “Jack, do you want this?” 
+
+“Let me show you…”
 
 I shook my head no, headed back to my friend’s room while my friend looked at me, looked at his dad and started talking to him in Russian. He put his hand on his dad’s shoulder and made him put the gun away.
 
