@@ -29,7 +29,7 @@ About 4-5 minutes into dicking around with that riff,  I got bored and looked ar
 
 Cool was an understatement.
 
-While I was looking at the poster without the requisite glow of a blacklight bulb, the poster itself was amazing in the normal incandescent daylight of the sun: The flocked blacks were so deep and black and the yellows and other requisite fluorescent colors were still vibrant and full in the light of the afternoo sun.
+While I was looking at the poster without the requisite glow of a blacklight bulb, the poster itself was amazing in the normal incandescent daylight of the sun: The flocked blacks were so deep and black and the yellows and other requisite fluorescent colors were still vibrant and full in the light of the afternoon sun.
 
 
 
