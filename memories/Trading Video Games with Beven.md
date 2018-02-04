@@ -87,11 +87,11 @@ Some more time passed and we all played for a bit. Things were actually calm, co
 
 “Douglas!!!” Beven’s mom shouted from the hallway, “Go and sit on the washing machine before it spills!!” What? Spills? My family had a similar washing machine but I don’t recall it ever spilling. Anyway, I looked at Douglas and he was happily playing the game, but you could watch his face wince up and get tense.
 
-“Douglas!!!” she shouted.
+“Douglas!!!” she shouted yet again.
 
-And with that Bradley grabbed the joystick out of Douglas’s hand. Douglas sat catatonic for a second, but his face grew redder and redder as each second passed. Before you knew it he stood up, started crying and climbed up to the top of the washing machine and sat on it.
+And with that Bradley uncermoniously grabbed the joystick out of Douglas’s hand. Douglas sat catatonically for a second, but his face grew redder and redder as each second passed. Before you knew it Douglas stood up, started crying and climbed onto the top of the washing machine just sat there as his mother demanded.
 
-“Douglas!!!” she shouted again to which Douglas shouted “I’m sitting mom!!!”
+“Douglas!!!” she shouted again to which Douglas shouted “I’m sitting on it mom!!!”
 
 I looked at Douglass sitting there on the washing machine as it shook back and forth, but the lid was closed. No water was going to spill out if the lid, but Douglas sat there crying, red faced with his legs gently shaking back and forth with the motion of the machine.
 
