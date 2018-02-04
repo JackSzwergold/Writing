@@ -33,8 +33,11 @@ While I was looking at the poster without the requisite glow of a blacklight bul
 
 But past any of the superficiality and aesthetics of the image itself, the message of the poster blew my teenage mind: There on the poster was Iron Maiden’s mascot “Eddie” standing there larger than life. And Eddie in this context was somehow the puppet master of the Devil who was in-turn the puppet master of some dude in the middle of some pile of flames in hell. The message was loud and clear: Eddie was more evil than the Devil himself. So much so Eddie was actually the one who controlled Devil and all of his actions. Whoever that one dude was that the Devil was controlling didn’t actually matter; what was important was Eddie was the one in control of them all.
 
-“I’m gonna get a blacklight next week,” my friend said
-“Let me know!” I said as I stared at the poster again.
+“I’m gonna get a blacklight for it next week,” my friend said.
+
+“Really? Let me know when you get it,” I said as I stared at the poster some more.
+
+
 
 Just then, I heard the sound of someone coming out of a bathroom. It was my friend’s dad. I had no idea he was even there yet taking a shower, but anyway… There he was in the doorway of my friend’s room wearing just a bath towel and some slippers.
 
