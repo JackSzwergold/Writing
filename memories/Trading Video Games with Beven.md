@@ -57,15 +57,17 @@ I looked around and Beven was nervously eyeing his mom while trying to find a bl
 
 “Okay, if that’s what you say, Jack,” she said as she turned to Beven. “You have a disk, Beven?” to which he responded, “I’m looking! I’m looking!”
 
-“I want to play Donkey Kong!” said Douglas as he looked at my pile of disks.
+“I want to play ‘Donkey Kong!’” Douglas whined as he looked at my pile of disks.
 
-“Look, we can play it now while Beven is looking. Is that okay?” I said to which Beven said sure.
+“We can play it now while Beven is looking for a blank disk. Is that okay?” I said to which Beven said “Sure.”
 
-I shifted myself in the rickety chair, powered up the Atari 810 disk drive, stuck the disk in, powered on the Atari 800, powered on the TV set and attempted to get the setup all ready for Douglas to play Donkey Kong on.
+I shifted myself in the rickety kitchen chair, turned on the Atari 810 disk drive, stuck the disk in, turned on the Atari 800, turned on the TV set and attempted to get the setup all ready for Douglas to play “Donkey Kong” on.
 
-“Hello!!! Beven’s got friends over?” said a man’s voice coming from the front of the apartment. It was Beven’s dad carrying some beat up headboard as he came into the apartment.
+“Hello!!!” said a man’s voice coming from the front of the apartment as we heard the door open. ”Beven’s got some friends over?” he added. It was Beven’s dad—sweaty and panting—carrying some beat up headboard as he walked into the apartment.
 
-Beven introduced me to his dad and I shook his hand. He was smiling but sweaty and exhausted; he was wearing a wife-beater t-shirt, wool pants and beat-up dress shoes. After he shook my hand he went over to hug his wife. As she moved towards him me and Matt could see she wasn’t wearing anything underneath her dingy nightie. You could see the silhouette of her body but it was as far from erotic as one could imagine. As she turned to us to ask if we wanted a snack we could now see the huge stain on the front of the crotch of her nightie.
+Beven introduced me to his dad and I shook his hand. He was smiling but very sweaty, red faced and exhausted; he was wearing a wife-beater t-shirt, wool pants and some beat-up leather dress shoes that clearly have seen better days.
+
+After he shook my hand he went over to hug his wife. As she moved towards him my friend and I could clearly see she wasn’t wearing anything underneath her dingy, pink nightie. You could see the silhouette of her body but it was as far from erotic as one could imagine. As she turned to us to ask if we wanted a snack we could see the huge stain on the front of the crotch of her nightie.
 
 “No thank you! We already ate!” I said as the Atari finally loaded Donkey Kong.
 
