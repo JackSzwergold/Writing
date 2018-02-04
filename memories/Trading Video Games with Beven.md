@@ -113,7 +113,7 @@ And with that I started to pack up my stuff. Beven’s dad stopped stripping the
 
 Nobody really seemed to acknowledge we were leaving, so my friend and I slowly walked to the front of the apartment, figured out how to open the front door on our own and said goodbye to the whole family.
 
-Everyone waved and said goodbye including Douglas who was still sitting on top of the washing machine as it shook back and forth as we closed the door and headed outside.
+Everyone waved and said goodbye including Douglas who was still red faced and sitting on top of the washing machine as it shook back and forth as we closed the door and headed outside.
 
 ***
 
