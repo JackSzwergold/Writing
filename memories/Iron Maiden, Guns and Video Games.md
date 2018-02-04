@@ -37,9 +37,7 @@ But past any of the superficiality and aesthetics of the image itself, the messa
 
 “Really? Let me know when you get it,” I said as I stared at the poster some more.
 
-
-
-Just then, I heard the sound of someone coming out of a bathroom. It was my friend’s dad. I had no idea he was even there yet taking a shower, but anyway… There he was in the doorway of my friend’s room wearing just a bath towel and some slippers.
+Just then—as if on cue—I heard the sound of someone coming out of a nearby bathroom. It was my friend’s dad. I had no idea he was even there yet taking a shower, but anyway… There he was in the doorway of my friend’s room wearing just a bath towel and some slippers.
 
 “Jack,” he said, “Come here… I want to show you something…” he said.
 
