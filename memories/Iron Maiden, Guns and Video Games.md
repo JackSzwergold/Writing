@@ -7,9 +7,7 @@ I was hanging out at a neighborhood friend’s house in the early 1980s. We both
 
 You see, if you pirated a video game back then—in the pre-Internet age—you didn’t necessarily get an instruction manual telling you how the game worked or even what the basic contols were. Were there keys on the keyboard you had to use? What happened if you did this thing during this screen and that thing during another screen? All that kind of basic stuff you would know if you actually purchased the game outright.
 
-So part of the process of pirating—at least for me and my small circle of software pirating friends—was to do some primitive, improvised version of digital “forensics” with friends to share notes and ideas on how certain games worked.
-
-This often just meant just smashing your hand across the keyboard and paying attention.
+So part of the process of video game pirating—at least for me and my small circle of software pirating friends—was to do some primitive, improvised version of digital “forensics” with friends to figure out how these games worked. And when I say “digital” I don’t mean just 1s and 0s and bits and bytes. Often the hacking method we used was to just smash our hands across the keyboard to see what happened. It was a simple and effective method of figuring out how software worked without having to do things like decompile a binary and wade through raw, undocumented code.
 
 Anyway, I was over at my friend’s home copying, playing and goofing around with some video games. Copying was a tedious process so while tapes and diskettes copied, we’d often do other things: Like listen to music and talk about shit.
 
