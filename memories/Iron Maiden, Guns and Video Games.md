@@ -9,7 +9,13 @@ You see, if you pirated a video game back then—in the pre-Internet age—you d
 
 So part of the process of video game pirating—at least for me and my small circle of software pirating friends—was to do some primitive, improvised version of digital “forensics” with friends to figure out how these games worked. And when I say “digital” I don’t mean just 1s and 0s and bits and bytes. Often the hacking method we used was to just smash our hands across the keyboard to see what happened. It was a simple and effective method of figuring out how software worked without having to do things like decompile a binary and wade through raw, undocumented code.
 
-Anyway, I was over at my friend’s home copying, playing and goofing around with some video games. Copying was a tedious process so while tapes and diskettes copied, we’d often do other things: Like listen to music and talk about shit.
+Anyway, I was over at my friend’s place playing and copying some video games we each had.
+
+Copying any data back then was a tedious process at best since storage media was slow and tedious. Especially when you’re a poor kid like me who only had a cassete tape drive to use.
+
+
+
+so while tapes and diskettes copied, we’d often do other things: Like listen to music and talk about shit.
 
 “What do you think about the guitar?” my friend asked. The guitar in question was a black and white Fender stratocaster he just got. He was no pro or expert, but he was definitely into the guitar.
 
