@@ -105,13 +105,13 @@ I poked Bradley to get him to stop playing and before you knew it I had copied �
 
 “Deal!!!” he said enthusiastically as he took the disk from me and put it back into his pile of seemingly randomly labelled disks.
 
-His mom came back into the kitchen as the sun was setting and turned on the light. With the bright light of a bare, circular florescent light shining you could clearly see the whole kitchen scene: Douglas—red faced and sobbing—sitting on the crappy washing machine, his young ass apparently the only thing preventing the piece of junk from exploding all over the place. And next to him his mom standing there in a dingy pink nightie with a big stain right over her crotch.
+His mom came back into the kitchen as the sun was setting and turned on the light. With the bright light of a bare, circular florescent light shining you could clearly see the whole kitchen scene: Douglas—red faced and sobbing—sitting on the crappy washing machine, his young ass apparently the only thing preventing the piece of junk from exploding all over the place. And next to him his mom standing there in a dingy pink nightie; seemingly the only piece of “around the house” clothes she owned.
 
-“You want some dinner, Jack?” she said as she opened up the cupboard. “Nah,” I said, “I gotta go home!” 
+“You want some dinner, Jack?” she said as she opened up the cupboard. “Nah,” I said, “It’s getting late and I gotta go home!” 
 
-And with that I started t pack up my stuff. Beven’s dad came up to us and looked on the screen, “You get some good stuff today, Beven?” to which he responded, “Yeah!”
+And with that I started to pack up my stuff. Beven’s dad stopped stripping the furniture, came up to us and looked on the screen, “You get some good stuff today, Beven?” to which he responded, “Yeah!”
 
-Nobody really seemed to acknowledge we were leaving, so Matt and I slowly walked to the front of the apartment, figured out how to open the front door and said goodbye to the whole family.
+Nobody really seemed to acknowledge we were leaving, so my friend and I slowly walked to the front of the apartment, figured out how to open the front door on our own and said goodbye to the whole family.
 
 Everyone waved and said goodbye including Douglas who was still sitting on top of the washing machine as it shook back and forth as we closed the door and headed outside.
 
