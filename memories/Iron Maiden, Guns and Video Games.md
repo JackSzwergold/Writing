@@ -13,14 +13,11 @@ Anyway, I was over at my friend’s place playing and copying some video games w
 
 So while we were waiting for games to copy, we’d often do other things teenagers did: Like listen to pop music and talk about nonsense and other bullshit. Like my friend’s new guitar.
 
-“So what do you think about the guitar?” he asked while holding it, and strumming it, in his lap. The guitar in question was a classic black and white Fender Stratocaster. He just got it and a basic amp a week or so ago. He wasn’t pro musician or expert
+“So what do you think about the guitar?” he asked while holding it, and strumming it, in his lap. The guitar in question was a classic black and white Fender Stratocaster. He just got it and a basic amp a week or so ago. He wasn’t pro musician or expert or anything like that—in all honesty I don’t recall him ever really studying music in the formal sense—but he was definitely into the guitar.
 
+“Seems cool,” I said as I looked it over. “What can you play?” I asked.
 
-—in all honesty I don’t recall him ever being into but he was definitely into the guitar.
-
-“Seems cool,” I said, “What can you play?” I asked.
-
-He then stood up a bit and proceeded to play the opening riff to Deep Purple’s “Smoke on the Water.” Sounded cool, but it was pretty basic.
+He then compose himself a bit, plugged the guitar into the amp and proceeded to play that classic of novice guitarists worldwide:  The opening riff to *Deep Purple*’s “Smoke on the Water.” It sounded cool, but it was pretty basic.
 
 “Here,” he said, “Let me show you.” he added as he gave me the guitar and showed me which strings to hit and hold. Gotta admit… It was basic, but fun. Then I got bored and looked around the room and there I saw it: A flocked, blacklight poster of the cover of Iron Maiden’s “Number of the Beast.”
 
