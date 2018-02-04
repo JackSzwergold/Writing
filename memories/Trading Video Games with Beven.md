@@ -33,9 +33,9 @@ Beven’s family lived in a pre-War tenement apartment building—similar to the
 
 “Sorry,” Beven said as we made ourselves into the partment, “My dad refinishes old furniture,” he added. “Just walk over there,” he said while pointing to an improvised desk made out of a dining table that was near the entrance to the kitchen at the far end of the living room.
 
-We made our way through the piles of crap, got closer to the table and saw a small TV set connected to an Atari 800 and 810 disk drive sitting unceremoniously on the table. The chairs near the computer setup were a mishmash of junky dining room tables. We each picked a chair and sat down.
+We made our way through the piles of crap, got closer to the table and saw a small TV set connected to an Atari 800 and 810 disk drive sitting unceremoniously on the table. The chairs near the computer setup were a mishmash of junky dining room tables and other non-office chairs. We each picked a chair and sat down.
 
-“Who is that!” said some voice from deeper in the apartment. It was Beven’s younger brother Douglas.
+“Who’s that?” said some kid’s voice coming from deeper in the apartment. It was Beven’s younger brother Douglas.
 
 “That’s Jack and Matt. We’re going to trade games,” Beven said as Douglas checked us out. If Beven was disheveled and scrappy, Douglas was worse with visible dirt on his face, snot on his nose, and a huge ripped hole on his stained white t-shirt.
 
