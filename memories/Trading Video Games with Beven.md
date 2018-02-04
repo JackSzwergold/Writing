@@ -79,9 +79,9 @@ He was clearly stripping paint from the wood since the fumes were pretty intense
 
 She reached over to open the window and a few seconds later the air cooled up a bit, the fumes became less intense and it was easier to breathe. “Thank you,” I said as she looked over towards the washing machine.
 
-“Hey! I forgot to start the wash!” she said as she opened and closed the lid to the machine, turned a knob and started it up.
+“Hey! I forgot to start the wash!” she said as she opened and closed the lid to the machine, turned a knob and started it up. The kitchen lights dimmed briefly as she turned on the machine but the computer was still running as expected.
 
-I turned back to Beven, Douglas and Bradley. Beven seemed to had finally found a disk, but Douglas was still playing the game. All three of them stared at the screen as Douglas incompetently—but enthusiastically—played the game.
+I turned back to Beven, Douglas and Bradley to see what was up in our little video game world. Beven seemed to had finally found a blank floppy disk, but Douglas was still playing the game. All three of them stared at the screen as Douglas incompetently—but enthusiastically—played the game. 
 
 Some more time passed and we all played for a bit until the washing machine started to knock back and forth. The lid was starting to open and everyone seemed to be ignoring it.
 
