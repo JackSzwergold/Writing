@@ -11,9 +11,7 @@ So part of the process of video game pirating—at least for me and my small cir
 
 Anyway, I was over at my friend’s place playing and copying some video games which was a tedious process back then since storage media and devices were slow, tedious and unreliable at best. Even moreso for a poor kid like me who couln’t afford a disk drive at the time and only had a measely, slow data cassette tape drive to use.
 
-
-
-so while tapes and diskettes copied, we’d often do other things: Like listen to music and talk about shit.
+So while we were waiting for games to copy, we’d often do other things teenagers did: Like listen to music and talk about nonsense and other bullshit.
 
 “What do you think about the guitar?” my friend asked. The guitar in question was a black and white Fender stratocaster he just got. He was no pro or expert, but he was definitely into the guitar.
 
