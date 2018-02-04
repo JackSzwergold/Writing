@@ -7,7 +7,9 @@ Beven was a new kid in Junior High School. I didn’t really know him much past 
 
 While the rest of us had some of basic kid backpack—like a Jansport or an Eastpack or some generic olive drab Musette bag—this guy came to class with a beat-up, dark brown leather briefcase that looked like it was discarded on a pile of trash. It was beat to hell—and the frayed seams made you wonder if the leather was real or some kind fake crap—but he liked it and used it. Whenever he came to class he’d non-chalantly just place it on a desk, pop the clasps and open it up to reveal… A pile of papers and realted school supply crap. He also liked to use beat-up legal pads instead of regular notebooks but that’s another story entirely.
 
-Anyway, I barely knew him but one day me and a friend were talking about trading video games in class. Mainly Atari video games. Some new stuff was out that I wanted but didn’t know where to get it from. Maybe “Caverns of Mars” or “Defender?” I don’t know. Anyway, Beven came over to our desk, said hi to my friend, was introduced to me and then opened up his beat up crappy briefcase to show off some games he had on flopp.
+Anyway, I barely knew Beven but one day me and a friend were talking about trading video games in class. I was really into getting some new stuff I read about in magazines, stuff like “Caverns of Mars” or “Defender” or other cool stuff, but I didn’t know where to get them from so I was asking around. 
+
+Anyway, Beven came over to our desk, said hi to my friend who he knew better than me, and before you knew it I was introduced to him and then opened up his beat up crappy briefcase to show off some games he had on flopp.
 
 
 
