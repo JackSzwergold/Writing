@@ -63,7 +63,7 @@ I backed off a bit shook my head no, laughing and smiling a bit and headed back 
 
 As I walked away from the bedroom, I turned around, walked into my friend’s room and sat down on the edge of the bed, picked up the guitar and dawdled with it a bit. I would occassionally peer into the other bedroom to see what was happening: I could see my friends dad push the drawer of the nightstand where he kept the gun closed and climb into bed. All the while his son was talking to him in Russian in increasingly hushed tones.
 
-Eventually, my friend left the master bedroom, closed the door and came back into his room. He looked at me, but didn’t said anything. I shifted himself so he could squeeze into the room and dicked around a bit on the guitar while staring at the poster of Eddie on the wall.
+Eventually, my friend left his father in the bedroom, closed the door and came back into his room. He looked at me, but didn’t say a word. I shifted myself  the bed so he could squeeze into the room and dicked around a bit on the guitar while staring at the poster of Eddie on the wall.
 
 It was dusk and the sun was setting. I put the guitar down, stood up and asked, “So let me know when get that blacklight, okay?” “Sure,” he said as I gathered my stuff and headed out the front door.
 
