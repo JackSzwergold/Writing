@@ -21,15 +21,15 @@ I was kinda thrown for a loop about that. I had some cool stuff, but I was by no
 
 ***
 
-A week or so passed and I was at a friend’s house playing and copying some games when my friend asked me, “Hey! Did you ever trade with Beven?” “Nope,” I replied. “I don’t even know where he lives.” My friend told me he lived around the block so we should go over that afternoon. I kinda sheepishly agreed and before I knew it he was on the phone to Beven.
+A week or so passed and I was at my friend’s house—playing and copying some games—when my friend asked me, “Hey! Did you ever trade games with Beven?” “Nope,” I replied. “I don’t even know where he lives.” My friend told me he lived around the block so we should go over that afternoon. I kinda sheepishly agreed to go but before I knew it he was on the phone to Beven.
 
-Beven actually came over to my friends house with his beat up briefcase and—yet again—tried to sell us games. “Dude, we’re not buying games. You can just copy them. Just get some blank disks and all is good.” Beven opened his briefcase, looked around and said, “But I don’t have any blank disks here. But I have some at home. I can go back and…” and before you knew it my friend said we should just go over to Beven’s place.
+While I packed my stuff up ready to head over to Beven’s place, Beven actually came over to my friend’s house with his beat up briefcase filled with floppy disks and—yet again—tried to sell us video games. “Dude, we’re not buying games. You can just copy them. Just get some blank disks and all is good.” Beven flipped through his disks, looked through his briefcase, looked around and said, “I don’t have any blank disks here. But I have some at home. I can go back and…” and before you knew it my friend said we should just go over to Beven’s place.
 
 “I guess that would be cool,” said Beven and before you knew it we were over at Beven’s place.
 
 ***
 
-Beven’s family lived in a pre-War tenement apartment building but his apartment was weird. It was really dark and filled with busted or dismantled furniture.
+Beven’s family lived in a pre-War tenement apartment building—similar to the ones pretty much everyone in the neighborhood lived it—but his apartment was weird. It was really dark and filled with busted or dismantled furniture. It‘s as if they just landed in the apartment and dumped all the stuff they owned there and that was that.
 
 “Sorry, my dad refinishes old furniture.” Beven said as we walked in. “Just walk over there,” he said while pointing to an improvised desk made out of a dining table that was near the entrance to the kitchen.
 
