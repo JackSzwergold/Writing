@@ -3,9 +3,9 @@
 
 By Jack Szwergold
 
-I was hanging out a friend’s house in the early 1980s. We both had Atari computers—I had an Atari 400 and he had an Atari 800—and we spent time copying games and trying to figure out games.
+I was hanging out at a neighborhood friend’s house in the early 1980s. We both had Atari computers—I had an Atari 400 and he had an Atari 800—and we spent time copying games and trying to figure out how to play games we copied.
 
-You see, if you pirated a video game back then—in the pre-Internet age—you didn’t necessarily get an instruction manual telling you how the game worked or even what keys on your keyboard you could use to do things.
+You see, if you pirated a video game back then—in the pre-Internet age—you didn’t necessarily get an instruction manual telling you how the game worked or even what the basic contols were. keys on your keyboard you could use to do things.
 
 So part of the process of pirating—at least for me—was to do some primitive “forensics” with friends to share notes and ideas on how certain games worked. This often just meant just smashing your hand across the keyboard and paying attention.
 
