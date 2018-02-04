@@ -83,9 +83,9 @@ She reached over to open the window and a few seconds later the air cooled up a 
 
 I turned back to Beven, Douglas and Bradley to see what was up in our little video game world. Beven seemed to had finally found a blank floppy disk, but Douglas was still playing the game. All three of them stared at the screen as Douglas incompetently—but enthusiastically—played the game. 
 
-Some more time passed and we all played for a bit until the washing machine started to knock back and forth. The lid was starting to open and everyone seemed to be ignoring it.
+Some more time passed and we all played for a bit. Things were actually calm, cool and collegial until the washing machine started to suddenly knock back and forth. The lid was even starting to open up a bit and everyone seemed to be ignoring it.
 
-“Douglas!” Beven’s mom shouted from the hallway, “Go and sit on the washing machine before it spills!” What? Spills? Anyway, I looked at Douglas. He was happily playing the game, but you could watch his face prune up.
+“Douglas!!!” Beven’s mom shouted from the hallway, “Go and sit on the washing machine before it spills!!” What? Spills? My family had a similar washing machine but I don’t recall it ever spilling. Anyway, I looked at Douglas and he was happily playing the game, but you could watch his face wince up and get tense.
 
 “Douglas!!!” she shouted.
 
