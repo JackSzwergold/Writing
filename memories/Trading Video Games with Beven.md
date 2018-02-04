@@ -99,7 +99,7 @@ Turning back to the computer, I watched as Bradley tried to play “Donkey Kong�
 
 “Here!” Beven said as he gave me a beat up floppy disk. “Copy it on this one.”
 
-I poked Bradley to get him to stop playing and before you knew it I had copied the games for him and passed it back to him.
+I poked Bradley to get him to stop playing and before you knew it I had copied “Donkey Kong”—and a few other games—for him and passed it back to him.
 
 “Thanks! You want stuff? I can give you new games when I get them,” he said, “And then we can sell them to the other kids.” He still didn’t get it. It was simple enough for me to copy the games so who cares. But I responded, “Okay, when you get some new games, okay?”
 
