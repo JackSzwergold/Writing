@@ -67,9 +67,9 @@ I shifted myself in the rickety kitchen chair, turned on the Atari 810 disk driv
 
 Beven introduced me to his dad and I shook his hand. He was smiling but very sweaty, red faced and exhausted; he was wearing a wife-beater t-shirt, wool pants and some beat-up leather dress shoes that clearly have seen better days.
 
-After he shook my hand he went over to hug his wife. As she moved towards him my friend and I could clearly see she wasn’t wearing anything underneath her dingy, pink nightie as she passed in front of a table lamp. You could see the silhouette of her body through the light but it was as far from an erotic experience as one could imagine. As she turned to us to ask if we wanted a snack we could see the huge stain on the front of the crotch of her nightie.
+After he shook my hand he went over to hug his wife. As she moved towards him my friend and I could clearly see she wasn’t wearing anything underneath her dingy, pink nightie as she passed in front of a table lamp. You could see the silhouette of her body through the light but it was as far from an erotic as one could imagine. Then—as she turned to us to ask if we wanted a snack—we could see the huge discolored stain on the front of her nightie near her waist.
 
-“No thank you! We already ate!” I said as the Atari finally loaded Donkey Kong.
+“No thank you! We already ate!” I said as the computer finally loaded “Donkey Kong.”
 
 “Here!” I said to Douglas as I gave him a joystick to play.
 
