@@ -29,7 +29,8 @@ About 4-5 minutes into dicking around with that riff,  I got bored and looked ar
 
 Cool was an understatement.
 
-While I was looking at the poster without the requisite glow of a blacklight bulb, the poster itself was amazing in the normal incandescent daylight of the sun: The flocked blacks were so deep and black and the yellows and other requisite fluorescent colors were still vibrant and full of life in the non-blacklight of the afternoon sun.
+While I was looking at the poster without the requisite glow of a blacklight bulb, the poster itself was amazing in the normal incandescent daylight of the sun: The flocked blacks were so deep and black and the yellows and other requisite fluorescent colors were still vibrant and full in the light of the afternoo sun.
+
 
 
 But more importantly, the message of the poster was amazing: There was Eddie—Iron Maiden’s mascot—writ large, the puppet master of the devil who was in-turn the puppet master of some dude in the middle of some pile of flames in hell. The more you think of it, it makes no sense: Who is the devil the puppet master of? But if you think about it just hard enough, that poster can blow your mind.
