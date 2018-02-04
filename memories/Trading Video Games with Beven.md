@@ -45,11 +45,11 @@ We made our way through the piles of crap, got closer to the table and saw a sma
 
 “Hey Bradley!” Matt and I said. We actually have met Bradley before in the neighborhood playground and he was cool, but he was always a bit uncomfortable in a way that seemed to imply “You believe I was born into this shit?”
 
-“So what do you got?” Douglas said as I opened up my crammed carrying case of disks. “I’ve got ‘Caverns of Mars,’ ‘Pac-Man’ and ‘Donkey Kong’…” and then without any hesitation Douglas shouted “DONKEY KONG!!!”
+“So what do you got?” Douglas said as I opened up my crammed carrying case of disks. “I’ve got ‘Caverns of Mars,’ ‘Pac-Man’ and ‘Donkey Kon…” and then without any hesitation Douglas shouted “DONKEY KONG!!!”
 
-“Wow! Donkey Kong?” said a woman’s voice out of the kitchen. It was Beven’s mother who looked like she just got up from a nap, “That sounds cool. You want that Douglas?” “Yeah,” he responded.
+“Wow! Donkey Kong?” said a woman’s voice coming out of the kitchen. It was Beven’s mother who looked like she just got up from a nap, “That sounds cool. You want that Douglas?” “Yeah,” he said.
 
-“Okay, no problem… You got it…” I said. And everyone stopped talking and stared at me. Apparently the whole family expected some negotiation to this. “You’re just gonna give it to us for free?” she said to which I responded, “Yeah… Why not? Just give me a blank disk.”
+“Okay, no problem… You got it!” I said. And everyone stopped talking and stared at me. Apparently the whole family expected some extended negotiation connected to this. “You’re just gonna give it to us for free?” she said to which I responded, “Yeah… Why not? Just give me a blank disk and it’s yours.”
 
 I looked around and Beven was eyeing his mom while trying to find a blank disk somewhere in the pile of crap on the kitchen table.
 
