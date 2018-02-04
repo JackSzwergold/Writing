@@ -77,7 +77,7 @@ After he shook my hand he went over to hug his wife. As she moved towards him my
 
 He was clearly stripping paint from the wood since the fumes were pretty intense. Intense enough that  started to feel dizzy. Nobody else seemed to be affected by the fumes so I spoke up and asked Beven’s mom if she could open up the kitchen window. “Oh, okay Jack,” she said again using my name as if it was a stick she was poking me with.
 
-She reached over to open the window and in a few seconds the air cooled up a bit and was easier to breathe. “Thank you,” I said as she looked down on the washing machine.
+She reached over to open the window and a few seconds later the air cooled up a bit, the fumes became less intense and it was easier to breathe. “Thank you,” I said as she looked over towards the washing machine.
 
 “Hey! I forgot to start the wash!” she said as she opened and closed the lid to the machine, turned a knob and started it up.
 
