@@ -59,10 +59,7 @@ I looked at his dad again and again trying to find a clean way out of this when 
 
 “Here, let me show you,” he said as he leaned forward.
 
-I backed off a bit shook my head no, laughing and smiling a bit and headed back to my friend’s room. As I backed out of the room, my friend looked at me and moved into the bedroom.
-
-
-then looked at his dad and started talking to him in Russian.
+I backed off a bit shook my head no, laughing and smiling a bit and headed back to my friend’s room. As I backed out of the room, my friend looked at me and slowly walked into the bedroom. He put his hand on his dad’s shoulder, started to talk to him in Russian and made his dad put the gun away.
 
 
 
