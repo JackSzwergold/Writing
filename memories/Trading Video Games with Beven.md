@@ -11,7 +11,10 @@ Anyway, I barely knew Beven but one day me and a friend were talking about tradi
 
 Beven overheard the conversation, came over to our desk and said “Hi!” to my friend—who he knew better than me—and before you knew it I was introduced to him. “If you are looking for games, I have some,” he said as he opened up his beat up briefcase to show off an oddball pile of seemingly randomly ordered floppy disks he had with him.
 
-“Check this out!” he said as he passed me a fairly beat up 5 1/4 inch diskette. The label had some messy scribbles that seemd handwriting on it and he clearly used a hole punch on the left side of the disk to be able to use the flip side of the disk for extra storage. “See!” he said and then rifled off a list of games and said, “I can sell them to you, three for $10.”
+“Check this out!” he said as he passed me a fairly beat up 5 1/4 inch diskette. The label had some messy scribbles that seemd handwriting on it but I could barely make out what it said. 
+
+
+And he clearly used a hole punch on the left side of the disk to be able to use the flip side of the disk for extra storage which meant he was smart and cheap. “See!” he said and then rifled off a list of games that was on that disk and said, “I can sell them to you… Three games for $10.”
 
 I winced up my face and said, “Bullshit. We should just trade.” His face was stoic but smiling in what I would grow up to know was a shit eating grin followed by a simple laugh. “You want to trade? What do you have?” he said, and before I could say anything my friend interrupted and said, “Jack’s got lots of stuff. You should invite him over to trade!”
 
