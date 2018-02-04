@@ -19,10 +19,7 @@ So while we were waiting for games to copy, we’d often do other things teenage
 
 He then composed himself a bit, plugged the guitar into the amp and proceeded to play that classic of novice guitarists worldwide:  The opening riff to *Deep Purple*’s “Smoke on the Water.” It sounded cool, but it was pretty basic.
 
-“Here,” he said lifting the guitar off his lap and passing it to me, “Let me show you.”
-
-
-he added as he gave me the guitar and showed me which strings to hit and hold. Gotta admit… It was basic, but fun. Then I got bored and looked around the room and there I saw it: A flocked, blacklight poster of the cover of Iron Maiden’s “Number of the Beast.”
+“Here,” he said as he lifted the guitar off his lap and passed it to me, “Let me show you.” He gave me the guitar and showed me which strings to hold and which strings to hit and I gotta admit… That riff is basic, but playing it was fun. At least for the 2-3 minutes I was playing it. About 4-5 minutes in I got bored and looked around the room and that is when I saw it on the wall: A flocked, blacklight poster of the cover of Iron Maiden’s “Number of the Beast.”
 
 “Whoa! When did you get that!” I asked.
 
