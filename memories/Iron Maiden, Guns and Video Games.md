@@ -45,7 +45,7 @@ Just then—as if on cue—I heard the sound of someone coming out of a nearby b
 
 “Don’t worry! Done’t worry!” he said, “Jack come here let me show you something,” he said as he walked into the bedroom next door.
 
-I followed and as I walked in, I saw him rummage through a nightstand next to the bed. The room itself was basic Russian gaudy: While the apartment itself wasn’t big, the master bedroom was tricked out, ornate and over-decorated. Lots of mirrors and details that made you feel like you lived in a playhouse, but for real.
+I followed and as I walked in, I saw him rummage through a nightstand next to the bed. The room itself was decorated in what could only be described as basic Russian gaudy: While the apartment itself wasn’t big, the master bedroom was all tricked out with all kinds of ornate and over-decorated flourishes. Lots of mirrors and details that made you feel like you lived in a playhouse, but for real.
 
 “Here!” he said, “I have it now!” he said as he stood up, turned around and showed me what he had in his hand. It was a small sliver plated handgun. Had never seen an actual gun before in my life, but the gun looked legit.
 
