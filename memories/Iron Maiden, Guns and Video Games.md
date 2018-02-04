@@ -21,11 +21,13 @@ He then composed himself a bit, plugged the guitar into the amp and proceeded to
 
 “Here,” he said as he lifted the guitar off his lap and passed it to me, “Let me show you.” He gave me the guitar and showed me which strings to hold and which strings to hit and I gotta admit… The “Smoke on the Water” riff is basic, but playing it was fun. At least it was fun for the 2-3 minutes I was playing it.
 
-About 4-5 minutes in I got bored and looked around the room and that is when I saw it on the wall: A brand spanking new blacklight poster of the cover of Iron Maiden’s “Number of the Beast” freshly pinned right behind me.
+About 4-5 minutes into dicking around with that riff,  I got bored and looked around the room and that is when I saw it on the wall: A brand spanking new blacklight poster of the cover of Iron Maiden’s “Number of the Beast” freshly pinned right behind me.
 
-“Whoa! When did you get that!” I asked.
+“Whoa! When did you get that!” I asked as I turned around and put the guitar down.
 
 “About a week ago,” my friend said. “Pretty cool, right?”
+
+
 
 Indeed it was. While I was looking at it without the glow of blacklight, the poster was amazing: The blacks were so deep and black. The yellows and other fluorescent colors still glowed even in the non-blacklight of the afternoon sun. But more importantly, the message of the poster was amazing: There was Eddie—Iron Maiden’s mascot—writ large, the puppet master of the devil who was in-turn the puppet master of some dude in the middle of some pile of flames in hell. The more you think of it, it makes no sense: Who is the devil the puppet master of? But if you think about it just hard enough, that poster can blow your mind.
 
