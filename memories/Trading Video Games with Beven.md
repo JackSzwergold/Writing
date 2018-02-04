@@ -35,15 +35,15 @@ Beven’s family lived in a pre-War tenement apartment building—similar to the
 
 We made our way through the piles of crap, got closer to the table and saw a small TV set connected to an Atari 800 and 810 disk drive sitting unceremoniously on the table. The chairs near the computer setup were a mishmash of junky dining room tables and other non-office chairs. We each picked a chair and sat down.
 
-“Who’s that?” said some kid’s voice coming from deeper in the apartment. It was Beven’s younger brother Douglas.
+“Who’s that?” said some young kid’s voice coming from deeper in the apartment. It was Beven’s younger brother Douglas.
 
-“That’s Jack and Matt. We’re going to trade games,” Beven said as Douglas checked us out. If Beven was disheveled and scrappy, Douglas was worse with visible dirt on his face, snot on his nose, and a huge ripped hole on his stained white t-shirt.
+“That’s Jack and Matt,” Beven said. “We’re going to trade games.” Douglas slowly came over and checked us out. If Beven was a disheveled and scrappy pre-teen peer, Douglas was a bit messier with some visible dirt on his face, dried up snot on his nose, and a huge ripped hole on his stained white t-shirt.
 
-“Oh!” Douglass said.
+“Oh!” Douglass said in a way that was neither judgemental or glib.
 
-“Hey!” said another voice coming out of the kitchen. It was Bradley, the middle kid in the family. Unlike Beven or Douglas, Bradley looked somewhat presentable with a flannel button down shirt tucked neatly into his pants.
+“Hey!” said another voice coming out of the kitchen. It was Bradley, the middle kid in the family. Unlike Beven or Douglas, Bradley looked somewhat presentable with a flannel button down shirt tucked neatly into his pants. But was still twitchy in his own way.
 
-“Hey Bradley!” Matt and I said. We actually have met Bradley before and he was cool, but he was always a bit shaky in a way that seemed to imply “You believe I was born into this shit?”
+“Hey Bradley!” Matt and I said. We actually have met Bradley before in the neighborhood playground and he was cool, but he was always a bit uncomfortable in a way that seemed to imply “You believe I was born into this shit?”
 
 “So what do you go?” Douglas said as I opened up my carrying case of disks. “I’ve got Caverns of Mars and Pac-Man and Donkey Kong…” and then without any hesitation Douglas shouted “DONKEY KONG!!!”
 
