@@ -15,9 +15,9 @@ Beven overheard the conversation, came over to our desk and said “Hi!” to my
 
 I looked at the disk in my hand, looked at Beven, looked at my friend, winced my face and simply said, “Bullshit. We should just trade.” His face was stoic but smiling in a forced “shit eating grin” smile to which he added a simple disarming salesman laugh to.
 
-“So you want to trade? Well, what do you have?” he said, and before I could say anything my friend interrupted and said, “Jack’s got lots of stuff. You should invite him over to trade!”
+“So you want to trade? Well, what do you have?” he said, and before I could say anything my friend interrupted and said, “Jack’s got lots of stuff! You should invite him over to trade!”
 
-I was kinda quizzical about that. I had some stuff. But I was by no means an “elite” pirate or anything. I just had lots of the basic stuff: Crappy Pac-Man clones, some text adventure games and other stuff. But anyway, I agreed to come over “Sometime…” and we left it at that.
+I was kinda thrown for a loop about that. I had some cool stuff, but I was by no means an “elite” pirate or anything. I just had lots of the basic cool stuff most everyone had or wanted at the time: Crappy “Pac-Man” clones, some Adventure Internationl text adventure games and other sundry stuff. But anyway, I agreed to come over “Sometime…” and we left it at that.
 
 ***
 
