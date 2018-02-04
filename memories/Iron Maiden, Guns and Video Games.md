@@ -61,7 +61,7 @@ I looked at his dad again and again trying to find a clean way out of this when 
 
 I backed off a bit shook my head no, laughing and smiling a bit and headed back to my friend’s room. As I backed out of the room, my friend looked at me and slowly walked into the bedroom. As he got closer to his dad, he put his hand on his dad’s shoulder, started to talk to him in Russian and made him put the gun away.
 
-I sat down on the edge of the bed in my friend’s room, picked up the guitar and dawdled with it a bit as I peered into the master bedroom: I could see my friends dad push the drawer of the nightstand closed and climb into bed. My friend still talked to him in Russian as his father laid down.
+As I walked away from the bedroom, I turned around, walked into my friend’s room and sat down on the edge of the bed, picked up the guitar and dawdled with it a bit. I would occassionally peer into the other bedroom to see what was happening: I could see my friends dad push the drawer of the nightstand where he kept the gun closed and climb into bed. All the while his son was talking to him in Russian in increasingly hushed tones.
 
 Eventually, my friend left the master bedroom, closed the door and came back into his room. He looked at me, but didn’t said anything. I shifted himself so he could squeeze into the room and dicked around a bit on the guitar while staring at the poster of Eddie on the wall.
 
