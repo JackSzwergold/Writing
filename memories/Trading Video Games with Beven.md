@@ -73,7 +73,9 @@ After he shook my hand he went over to hug his wife. As she moved towards him my
 
 “Here!” I said to Douglas as I gave him a joystick to play.
 
-“Wow! Look at that!” Beven’s dad said as Douglas played the game. “You have fun now, I gotta do some work…” he said as he moved towards the front of the apartment, grabbed some rags and a bottle and started to rub stuff on the furniture. He was clearly stripping paint from the wood. The fumes were strong and I started to feel dizzy. Nobody else seemed to be affected so I spoke up and asked Beven’s mom if she could open up the kitchen window. “Oh, okay Jack,” she said again using my name as if it was a stick she was poking me with.
+“Wow! Look at that!” Beven’s dad said as he peered at Douglas playing the game. “You have fun now, I gotta do some work…” he said as he moved towards the front of the apartment, grabbed some rags and a bottle of something and started to rub the stuff on to the furniture.
+
+He was clearly stripping paint from the wood since the fumes were pretty intense. Intense enough that  started to feel dizzy. Nobody else seemed to be affected by the fumes so I spoke up and asked Beven’s mom if she could open up the kitchen window. “Oh, okay Jack,” she said again using my name as if it was a stick she was poking me with.
 
 She reached over to open the window and in a few seconds the air cooled up a bit and was easier to breathe. “Thank you,” I said as she looked down on the washing machine.
 
