@@ -5,7 +5,7 @@ By Jack Szwergold
 
 Beven was a new kid in Junior High School. I didn’t really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky. Like the basic way he carried and composed himself, stains on his clothes and—most notably—the odd, beat up briefcase he carried around with him at all times.
 
-While the rest of us had some of basic kid backpack—like a Jansport or an Eastpack or some generic olive drab Musette bag—this guy came to class with a beat-up, dark brown leather briefcase that looked like it was discarded on a pile of trash. It was beat to hell—and the frayed seams made you wonder if the leather was real or some kind fake crap—but he liked it and used it. Whenever he came to class he’d non-chalantly just place it on a desk, pop the clasps and open it up to reveal… A pile of papers and realted school supply crap. He also liked to use beat-up legal pads instead of regular notebooks but that’s another story entirely.
+While the rest of us had some of basic kid backpack—like a Jansport or an Eastpack or some generic olive drab Musette bag—this guy came to class with a beat-up, dark brown leather briefcase that looked like it was discarded on a pile of trash. It was beat to hell—and the frayed seams made you wonder if the leather was real or some kind fake crap—but he liked it and used it. Whenever he came to class he’d nonchalantly just place it on a desk, pop the clasps and open it up to reveal… A pile of papers and related school supply crap. He also liked to use beat-up legal pads instead of regular notebooks but that’s another story entirely.
 
 Anyway, I barely knew Beven but one day me and a friend were talking about trading video games in class. I was really into getting some new stuff I read about in magazines, stuff like “Caverns of Mars” or “Defender” or other cool stuff, but I didn’t know where to get them from so I was asking around. 
 
@@ -17,7 +17,7 @@ I looked at the disk in my hand, looked at Beven, looked at my friend, winced my
 
 “So you want to trade? Well, what do you have?” he said, and before I could say anything my friend interrupted and said, “Jack’s got lots of stuff! You should invite him over to trade!”
 
-I was kinda thrown for a loop about that. I had some cool stuff, but I was by no means an “elite” pirate or anything. I just had lots of the basic cool stuff most everyone had or wanted at the time: Crappy “Pac-Man” clones, some Adventure Internationl text adventure games and other sundry stuff. But anyway, I agreed to come over “Sometime…” and we left it at that.
+I was kinda thrown for a loop about that. I had some cool stuff, but I was by no means an “elite” pirate or anything. I just had lots of the basic cool stuff most everyone had or wanted at the time: Crappy “Pac-Man” clones, some Adventure International text adventure games and other sundry stuff. But anyway, I agreed to come over “Sometime…” and we left it at that.
 
 ***
 
@@ -31,7 +31,7 @@ While I packed my stuff up ready to head over to Beven’s place, Beven actually
 
 Beven’s family lived in a pre-War tenement apartment building—similar to the ones pretty much everyone in the neighborhood lived it—but his apartment was weird. It was really dark and filled with busted or dismantled furniture. It‘s as if they just landed in the apartment and dumped all the stuff they owned there and that was that.
 
-“Sorry,” Beven said as we made ourselves into the partment, “My dad refinishes old furniture,” he added. “Just walk over there,” he said while pointing to an improvised desk made out of a dining table that was near the entrance to the kitchen at the far end of the living room.
+“Sorry,” Beven said as we made ourselves into the apartment, “My dad refinishes old furniture,” he added. “Just walk over there,” he said while pointing to an improvised desk made out of a dining table that was near the entrance to the kitchen at the far end of the living room.
 
 We made our way through the piles of crap, got closer to the table and saw a small TV set connected to an Atari 800 and 810 disk drive sitting unceremoniously on the table. The chairs near the computer setup were a mishmash of junky dining room tables and other non-office chairs. We each picked a chair and sat down.
 
@@ -39,7 +39,7 @@ We made our way through the piles of crap, got closer to the table and saw a sma
 
 “That’s Jack and Matt,” Beven said. “We’re going to trade games.” Douglas slowly came over and checked us out. If Beven was a disheveled and scrappy pre-teen peer, Douglas was a bit messier with some visible dirt on his face, dried up snot on his nose, and a huge ripped hole on his stained white t-shirt.
 
-“Oh!” Douglass said in a way that was neither judgemental or glib.
+“Oh!” Douglass said in a way that was neither judgmental or glib.
 
 “Hey!” said another voice coming out of the kitchen. It was Bradley, the middle kid in the family. Unlike Beven or Douglas, Bradley looked somewhat presentable with a flannel button down shirt tucked neatly into his pants. But was still twitchy in his own way.
 
@@ -89,7 +89,7 @@ Some more time passed and we all played for a bit. Things were actually calm, co
 
 “Douglas!!!” she shouted yet again.
 
-And with that Bradley uncermoniously grabbed the joystick out of Douglas’s hand. Douglas sat catatonically for a second, but his face grew redder and redder as each second passed. Before you knew it Douglas stood up, started crying and climbed onto the top of the washing machine just sat there as his mother demanded.
+And with that Bradley unceremoniously grabbed the joystick out of Douglas’s hand. Douglas sat catatonically for a second, but his face grew redder and redder as each second passed. Before you knew it Douglas stood up, started crying and climbed onto the top of the washing machine just sat there as his mother demanded.
 
 “Douglas!!!” she shouted again to which Douglas shouted “I’m sitting on it mom!!!”
 
