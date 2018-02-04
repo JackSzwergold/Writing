@@ -41,9 +41,9 @@ Just then—as if on cue—I heard the sound of someone coming out of a nearby b
 
 “Jack!” he shouted entusiastically, “Come here! I want to show you something!” he added.
 
-“Pa!” my friend said, “Come on?” he said.
+“Pa!” my friend said, “Come on?” he added a bit frantically.
 
-“Don’t worry! Done’t worry!” he said, “Jack come here let me show you something…” he said as he walked into the master bedroom next door. I followed.
+“Don’t worry! Done’t worry!” he said, “Jack come here let me show you something,” he said as he walked into the master bedroom next door. I followed.
 
 As I walked in, I saw him rummage through a nightstand next to the bed. The room itself was basic Russian gaudy: While the apartment itself wasn’t big, the master bedroom was tricked out, ornate and over-decorated. Lots of mirrors and details that made you feel like you lived in a playhouse, but for real.
 
