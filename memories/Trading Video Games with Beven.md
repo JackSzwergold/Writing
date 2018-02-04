@@ -51,11 +51,11 @@ We made our way through the piles of crap, got closer to the table and saw a sma
 
 “Okay, no problem… You got it!” I said. And everyone stopped talking and stared at me. Apparently the whole family expected some extended negotiation connected to this. “You’re just gonna give it to us for free?” she said to which I responded, “Yeah… Why not? Just give me a blank disk and it’s yours.”
 
-I looked around and Beven was eyeing his mom while trying to find a blank disk somewhere in the pile of crap on the kitchen table.
+I looked around and Beven was nervously eyeing his mom while trying to find a blank disk somewhere in the pile of crap on the kitchen table to give me to copy “Donkey Kong” onto.
 
-“Really? Just like that Jack,” she said in a semi-intimidating way, standing there with her arms on her hips. It was really a strange scene. Everyone’s silent and here is the family matriarch just standing there and giving a 14 year old kid (aka: me) the 3rd degree because I was willing to give her son a copy of the game for free.
+“Really? Just like that Jack,” she said in a semi-intimidating way, standing there with her arms on her hips. It was really a strange and awkward scene. Everyone was silent and here is the family matriarch just standing there and giving a 14 year old kid (aka: me) the 3rd degree because I was willing to give her son a copy of the game for free.
 
-“Okay, if that’s what you say, Jack…” she said turning to Beven. “You have a disk, Beven?” to which he responded, “I’m looking! I’m looking!”
+“Okay, if that’s what you say, Jack,” she said as she turned to Beven. “You have a disk, Beven?” to which he responded, “I’m looking! I’m looking!”
 
 “I want to play Donkey Kong!” said Douglas as he looked at my pile of disks.
 
