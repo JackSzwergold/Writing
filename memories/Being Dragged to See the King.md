@@ -51,8 +51,6 @@ As my dad closed our apartment’s door, I ran towards the staircase with my han
 
 As I walked out of the building and into the afternoon sunlight I saw a typical neighborhood day playing out in front of the buildings: Yentas sitting in front of their respective buildings while kids played out in the street as cars and pedestrians walked by.
 
-As I got closer to where my borther parked his card, I saw some neighborhood kids invite me over to play, but I told them I had to go somewhere. I walked past them, into my brothers car and closed the door.
-
 Pretty much immediately from the moment the door closed to barely the moment my brother pulled out of the parking space I was inundated with him venting—seemingly endlessly—about our parents. I had no problem with them, but he seemed to be perpetually angry at them.
 
 And that was on a good day. Today was anything but good.
