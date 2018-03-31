@@ -73,7 +73,7 @@ I remember getting out of the car as my brother went to park the car and meeting
 
 All I remember of the momement was me having to wait in line with her and her asking me tons of nonsense questions and me trying to answer them in any way to make her seem happy. I was never happy in the scenarios but always seemed to need to make these two self-important adults happy.
 
-We were approaching the front of the line as she started to complain about where my brother was when he finally showed up. He was breathless and said something to the effect of I was worried about where he was when he ran off. Never actually cared. Never understood why I need to be there for this thing. I mean if he wants to go on a date with his wife to the Met, go for it… But why was I—a kid—dragged along as if I would enjoy being a third wheel on a shitty date?
+We were approaching the front of the line as she started to complain about where my brother was when he finally showed up. He was breathless and said something to the effect of implying that somehow I was worried about where he was when he ran off. I never actually cared since I never understood why I need to be there for this thing. I mean if he wants to go on a date with his wife to a museum, go for it… But why was I—a kid—dragged along as if I would enjoy being a third wheel on a shitty date between two people who hated each other?
 
 Anyway, before you knew it we were in the museum. I liked the little tin museum tag they gave me and rubbed it as we walked around.
 
