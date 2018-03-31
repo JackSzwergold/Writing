@@ -5,33 +5,33 @@ By Jack Szwergold
 
 I was about 14 years old and wanted a summer job. Every other friend of mine had a summer job doing something somewhere, and I wanted one too. I wanted the independence, the freedom but—most of all—I wanted the money a job would give me.
 
-So around the time of my 14th birthday I started to look for jobs but really had no idea where to start. I told my parents I wanted a job and my mom said she would ask someone at her factory if I could get a job. I was kind of excited, but not sure what that meant. My mom got up early each day, worked long hours and usually came home and collapsed in bed. Maybe there was some summer job for a teenager at the factory I could handle? Who knows.
+So around the time of my 14th birthday I started to look for jobs but really had no idea where to start. I told my parents I wanted a job and my mom said she would ask someone at her factory if I could get a job. I was kind of excited, but not sure what that meant. My mom got up really early each day—like at around 5:00am—andworked long hours and usually came home and collapsed in bed. Maybe there was some summer job for a teenager at the factory I could handle? Who knows.
 
 Anyway, during one of my brother’s visits to the family home, he got wind of me wanting a job while sitting at the kitchen table, Before he could say anything our mom would say, “Yes! I will get a Jack a job in the factory. A good job!” to which my brother started shouting and screaming about.
 
 I have no idea what the shouting and screaming was about—why should my brother care about me wanting a job—but I finished my food, excused myself and headed back to my room.
 
-The fighting persisted for some time until it stoped. I knew something was up since—while my mom and dad weren’t fighting—they were worriedly talking to each other. I could hear some hushed tones as the TV went on in the living room and then I heard a knock on my door.
+The fighting persisted for some time until it stopped. I knew something was up since—while my mom and dad weren’t fighting—I could hear them worriedly talking to each other. The hushed tones continued and then died off as the TV went on in the living room.
 
-It was my dad who peeked into my room and said, “I don’t know… Working at mom’s place might not be a good idea… Ben knows…” and then he went away.
+Then I heard a knock on my door.
 
-Soon after Ben came into my room and sat down on the floor in front of me and calmly said, “If you want a job I have a very good job for you at Columbia University.”
+It was my dad who peeked into my room and said, “I don’t know… Working at mom’s factory might not be a good idea… Ben knows…” and then he went away.
+
+Soon afterwards Ben came into my room and sat down on the floor in front of me and calmly said, “If you want a job I have a very good job for you at Columbia University.”
 
 “Really?” I said, “Doing what?” I asked.
 
 “Don’t worry, it’s very good… Just come to me on Monday and I will show you…”
 
-With that he left me room and I waited for Monday.
+With that he left my room and I waited for Monday to happen.
 
-I took the train up to Columbia University. Did it by myself. D to 59th Street to the A to 168h Street.
+I took the train up to Columbia University by myself. D to 59th Street to the A to 168h Street. Got off of the train and walked to the building my brother’s lab was in.
 
-Got off of the train and walked to the building my brother’s lab was in.
-
-He was outside waiting for me and waved. I imagined he would show me someone—or bring me someplace—where I could get a real job. I imaged for a place like Columbia University I would need working papers—since I was only 14 at the time—but my brother said not too worry.
+He was outside waiting for me and waved. I imagined he would show me someone—or bring me someplace—where I could get a real job. I imagined that for a place like Columbia University I would need working papers—since I was only 14 at the time—but my brother said not too worry.
 
 We went into the building and headed up the the elevator. Where I did not know?
 
-“What kind of job is this again?” I asked and he said, “You will see… Don’t worry…”
+“What kind of job is this again?” I asked and he said, “You will see…” he said, “Don’t worry…”
 
 And soon enough we got off at some nondescript floor, walked into a nondescript room and my brother said, “Here is where you will work!” I was confused… I saw nobody else… Just me and my brother in this miscellaneous lab.
 
