@@ -33,9 +33,9 @@ Then I went into the kitchen and saw my dad warming up latkes or blintzes or som
 
 By the time I got back to my room I could hear the sounds of my broter finishing up their business in a bathroom; it didn’t seem like a lot of time passed but then agian perhaps the stress of the moment was screwing around with my sense of time.
 
-Anyway, I am in my room and was on the floor doing whatever when my brother showed, pushed open the door without asking and then blurted out some stream of anger. Something about how much time and effort he spent getting tickets to the King Tut exhibit at the Met and how our parents did not care. Somehow I was supposed to commiserate and “care” about this so I did what I always did: I shrugged and made some minor noises that acknowledged I went along with it.
+Anyway, I’m in my room, playing around on the floor, doing whatever I was doing to entertain myself when my brother showed up, pushed open the door without warning and then blurted out some stream of anger. He was rambling ceaslessly to me—a 9 year old kid—something about how much time and effort he spent getting tickets to the King Tut exhibit at the Metropolitan Museum of Art and how our parents didn’t care. For some odd reason me—as a 9 year old kid—was supposed to commiserate about this with him and “care” about his being upset so I did what I always did when faced with his behavior: I just shrugged, squeezed out some minor words and noises that I hoped would make him feel good and—generally—just went along with it.
 
-“Come! We are going to go!” my brother said to me as if I had no choice. “Where are we going?” I asked. “To see the King Tut exhibit!” I’m not too sure what made him think I would want to see this, but in his mind bullying into doing something good was intrinsically a good thing.
+“Come! We are going to go!” my brother said to me as if I had no choice. “Where are we going?” I asked. “To see the King Tut exhibit!” I’m not too sure what made him think I would want to see this, but in his mind bullying into doing something good was intrinsically a good thing. His behavior was scary and I dodn’t want to make him any more upset than he already was.
 
 He sensed a pause from me and reacted, “You know who King Tut is, right?”
 
