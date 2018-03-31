@@ -19,7 +19,9 @@ After the initial bustle of his magical arrival subsided, I carefully closed the
 
 I played around, futzed around and did whatever fun bullshit 9 year old a kid does to kill time on the weekend when suddenly  it happened yet again: An argument broke out between my brother and whichever of our parents said something that upset him. I wasn’t exactly too sure what the fight was about because fights with my brother tended to never be in English; it was always in Polish, Yiddish, Hebrew or some mix of them all. To my 9 year old ears it just sounded like endless, intelligible human barking.
 
-The fight was bad enough that my dad showed up at the doorway to me room and asked, “Do you want anything to eat?” Which was his way of saying, “Do you believe this shit?” but many times he would just say, “I don’t understand what he wants!” and then walk away. This time I said, “No…” to indicate I was not hungry and when my dad stated, “I don’t understand what he wants!” I just shrugged my shoulders.
+But this time the argument was really bad. So bad that my dad showed up at the doorway to my room, cracked open the door and calmly asked, “Do you want anything to eat?” Which was his passive way of saying, “Do you believe this shit?”
+
+I simply responded “No…” to indicate I was not hungry and when my dad then exasperatedly stated, “I don’t understand what he wants!” I just shrugged my shoulders.
 
 I was still 9 years old at the time.
 
