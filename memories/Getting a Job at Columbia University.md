@@ -43,7 +43,7 @@ And with that I felt my mind twist and contort itself into a knot. This is not w
 
 And with that I had no idea what to do. If I left at that moment, my brother would cut me off and corner me; there was no way I could get away. In his dysfunctional mind it was perfectly normal that he would lure me into a situation like this, pay me out of his own pocket for a “job” that he just arbitrarilly made up so there was no simple escape. So I decided to stay and make the best of it.
 
-I ran some small errands for him around his lab, but for the most part my supposed “job” was to simply sit there and listen to my brother endlessly bather on about his work.
+I ran some small errands for him around his lab, but for the most part my supposed “job” was to simply sit there and listen to my brother endlessly bather on about his work as if I cared. And lord knows I did not care at all.
 
 You see, when I was 14 I was in some required science classes in Junior High School. I didn’t particularly like them or hate them; they were simply required classes. But in his mind the fact I was—for example—studying biochemistry meant I actually had a passion for the subject. Thus somehow I would care to listen to him blather on and on about whatever grad student class bullshit he was doing as if I cared.
 
