@@ -45,9 +45,9 @@ Anyway, my brother was rambling on and on about how he’s going to take me to s
 
 I really didn’t want to go to see King Tut, but the thing  I learned in my short life at the time was that saying “No!” to my brother was a very risky thing to do. He was—and is—a very violent person and giving him a sacrifice of agreeing to do what he asked to do was somewhat better than the other option which would often result in him simply violently verbally abusing me—and other members of his own family—for the rest of whatever amount of time he decided to spend with us.
 
-“Come on!” my brother said, “Let’s go!” as he stormed out of the apartment and into the hallway. “I’ll be downstairs!” I shouted. I turned to my dad who made sure to bundle me up a bit. He gave me a kiss on the head and I said, “See ya later!”
+“Come on!” my brother shouted, “Let’s go!” he added as he stormed out of the apartment and into the hallway. “I’ll be downstairs!” I shouted yet again as if I didn’t hear him shouting before. As I walked to the front door, I turned to my dad to say goodbye. He bundled me up a bit, gave me a small kiss on the head and I said, “Bye!” as I walked out the door.
 
-I walked out the door and ran to the staircase with my hand in my jacket pocket holding my Micronaut in place.
+As my dad closed our apartment’s door, I ran towards the staircase with my hand in my jacket pocket holding my Micronaut in place. A good luck and comfort charm I carried with me at the time to help me deal with all kinds of different stress… Like the stress I was about to walk into.
 
 As I walked out of the building and into the afternoon sunlight I saw what was a typical neighborhood day playing out: Yentas sitting in front of the building and kids playing in the street.
 
