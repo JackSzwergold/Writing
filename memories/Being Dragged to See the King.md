@@ -83,10 +83,7 @@ Before you knew it, a wonderful thing happened… We were ready to leave! I reme
 
 I remember at that moment, one of my brother’s friends knelt down near me and started talking about the hieroglyphics. I looked at him and heard him speak, but I didn’t care about what he was saying. I wasn’t dissociated, but just didn’t care and just waited for him to stop talking.
 
-And when he did, I looked past him and saw some sign on the wall that had a street number on it. I belive it was the 81st Street exit or something like that. I made a mental note of the street number since I wanted to look it up on a map to figure out what subway station was nearby.
-
-
-when I got home so the next time I was in this place, I could just sneak out and take the train back home.
+And when he did, I looked past him and saw some sign on the wall that had a street number on it. I belive it was the 81st Street exit or something like that. I made a mental note of the street number since I wanted to look it up on a map to figure out what subway station was nearby so—in the case I was dragged to this place again—I could just sneak out while my brother wasn’t looking and take the subway back home.
 
 Before you knew it, whoever was in the bathroom was out and we’re all headed outside.
 
