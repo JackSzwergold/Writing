@@ -75,15 +75,18 @@ All I remember of the momement was me having to wait in line with her and her as
 
 We were approaching the front of the line as she started to complain about where my brother was when he finally showed up. He was breathless and said something to the effect of implying that somehow I was worried about where he was when he ran off. I never actually cared since I never understood why I need to be there for this thing. I mean if he wants to go on a date with his wife to a museum, go for it… But why was I—a kid—dragged along as if I would enjoy being a third wheel on a shitty date between two people who hated each other?
 
-Anyway, before you knew it we were in the museum. I liked the little tin museum tag they gave me and rubbed it as we walked around.
+Anyway, before you knew it we were in the museum. I liked the little tin admission tag they gave me and rubbed it as we walked around. But I have literally no memory of ever seeing King Tut, but apparently I did. All I remember is being whisked around like a dog on a leash from room to room, and having my brother and his wife lean over to overbearingly explain things to me, and me nodding politely to push things along. Every once in a while someone my brother and his wife knew—who apparently tagged along on the trip—would lean in to talk to me this way as well as if it was some game and I went along with them as well.
 
-I have no literal memory of ever seeing King Tut, but apparently I did. All I remember is being whisked around from room to room, having my brother and his wife lean into me to explain things to me, and me nodding politely to push things along. Every once in a while someone my brother and his wife knew would lean in and talk to me this way as well.
+Where did they come from? Were they in line with us? Did they meet us inside? I have no clue. The whole experience was so disjointed, dissociated and unpleasant that I didn’t keep track of who was who and didn’t care; a helpful sparrow could have landed on my shoulder at that moment to tell me about how they mummified King Tut and I would not care.
 
-Where did they come from? Were they in line with us? Did they meet us inside? I have no clue. The whole experience was disjointed and unpleasant that I didn’t keep track and didn’t care; a sparrow could have landed on my shoulder at that moment and talk to me and I would not care.
+Before you knew it, a wonderful thing happened… We were ready to leave! I remember this moment because we were waiting near some bathrooms and I was looking at the wall at some hieroglyphics. They were not original hieroglyphics, but some wall text blowups of real hieroglyphics. I was fascinated by the shapes and how they looked similar to the characters on the case for the Pharoid Micronaut I was carrying in my pocket, but that’s about it.
 
-Before you knew it we were ready to leave. I remember this moment because we were waiting near some bathrooms and I was looking at the wall at some hieroglyphics. They were not original hieroglyphics, but some wall text blowups of real hieroglyphics. I was fascinated by the shapes and how they looked like the stuff on my Micronaut Pharoid case, but that’s about it.
+I remember at that moment, one of my brother’s friends knelt down near me and started talking about the hieroglyphics. I looked at him and heard him speak, but I didn’t care about what he was saying. I wasn’t dissociated, but just didn’t care and just waited for him to stop talking.
 
-I remember at that moment, one of my brother’s friends kneeling down to me and talking about the hieroglyphics. I looked at him and heard him speak, but I didn’t care about what he was saying. I saw some sign on the wall that had a street number exit. 81st Street exit I believe. I made a mental note of it. I wanted to look up that street on a map when I got home so the next time I was in this place, I could just sneak out and take the train back home.
+And when he did, I looked past him and saw some sign on the wall that had a street number on it. I belive it was the 81st Street exit or something like that. I made a mental note of the street number since I wanted to look it up on a map to figure out what subway station was nearby.
+
+
+when I got home so the next time I was in this place, I could just sneak out and take the train back home.
 
 Before you knew it, whoever was in the bathroom was out and we’re all headed outside.
 
