@@ -39,9 +39,9 @@ And soon enough we got off at some nondescript floor, walked into a nondescript 
 
 “Me! You can be my assistant!” he said proudly.
 
-And with that I felt my mind twist inside of itself. This is not what I wanted. I wanted a real job where I would be paid. I asked my brother who would pay me—assuming there was some kind of arrangement with the university and this was normal—and he responded, “I will! Do not worry!“
+And with that I felt my mind twist and contort itself into a knot. This is not what I wanted. I wanted a real job where I would be paid. I asked my brother who would pay me—assuming there was some kind of arrangement with the university and this was normal arrangement—and he responded, “I will! Don’t worry!“
 
-And with that I had no idea what to do. If I left at that moment, my brother would cut me off and corner me. In his mind it was perfectly normal that he would pay me out of his own pocket for a “job” like this so there was no simple escape. So I decided to stay and make the best of it.
+And with that I had no idea what to do. If I left at that moment, my brother would cut me off and corner me; there was no way I could get away. In his dysfunctional mind it was perfectly normal that he would lure me into a situation like this, pay me out of his own pocket for a “job” that he just arbitrarilly made up so there was no simple escape. So I decided to stay and make the best of it.
 
 I ran some small errands for him around his lab, but for the most part my supposed “job” was to simply sit there and listen to my brother endlessly bather on about his work.
 
