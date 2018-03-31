@@ -93,7 +93,7 @@ We neared the car, he opened up the passenger door and I got in.
 
 As I sat in the passenger seat my brother turned to me and said, “Shhh… This is a big surprise!” I have no idea what he was talking about, but then he pulled out some steering wheel cover/grip he had bought from some store. When? I don’t know. Why? No clue. But apparently this was some big secret suprise he was sharing with me as if I gave a shit.
 
-It was a basic steering wheel grip. He was putting it on the steering wheel itself as he talked to me and explained how I should not talk to his wife about this. I said quietly, “Okay…” while trying to understand how I was supposed to keep something that visually obvious a “secret” from his wife. I mean, he just put it on in his car, right?
+It was a basic steering wheel grip but to him it was a big deal. He pulled it out of its packaging and putting it on the steering wheel itself as he talked to me and explained how I should not talk to his wife about this. I quietly said, “Okay…” while trying to understand how I—a 9 year old kid—was supposed to keep something that was visually obvious as a steering wheel cover a “secret” from his wife. I mean, he just put it on in their car, right? And she would surely notice it right away if not later on when she was driving it?
 
 As he continued to talk to me about how his wife wouldn’t like it, she suddenly showed up and stuck her head into the driver’s side window, condescendingly pushed her finger on the steering wheel cover and started to argue with him in Hebrew.
 
