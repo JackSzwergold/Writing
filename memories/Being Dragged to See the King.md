@@ -41,7 +41,9 @@ At some point between his ramblings and my passive responses he blurted out, “
 
 I immediately said, “Yes…” despite the fact that all I knew about King Tut at the time was that there was Steve Martin song about King Tut and he was mentioned in some crappy history lessons I was taught in elementary school. Oh and I also know that one of the Micronaut action figures I had was named “Pharoid” which I knew was somehow connected the word “Pharoah” and that King Tut was a Pharoah of some kind. But that was about it because I was just a 9 year old kid at the time.
 
-Anyway, my brother insists on dragging me along, and my father comes out and states, “Why are you making such a big deal about this?” I go to put on my jacket to join my brother. I really didn’t want to go, but I learned from my experience at the time that it was better if I went along with Ben and his plans than say no. He was—and is—very violent, and giving him a sacrifice of some time was somewhat better than him sitting around and verbally abusing me—and his own family—for the rest of the afternoon.
+Anyway, my brother rambling on and on about how he’s going to take me to see King Tut, and my father comes out and states, “Why are you making such a big deal about this?” I go to put on my jacket to join my brother.
+
+I really didn’t want to go, but I learned from my experience at the time that it was better if I went along with Ben and his plans than say no. He was—and is—very violent, and giving him a sacrifice of some time was somewhat better than him sitting around and verbally abusing me—and his own family—for the rest of the afternoon.
 
 “Come on!” my brother said, “Let’s go!” as he stormed out of the apartment and into the hallway. “I’ll be downstairs!” I shouted. I turned to my dad who made sure to bundle me up a bit. He gave me a kiss on the head and I said, “See ya later!”
 
