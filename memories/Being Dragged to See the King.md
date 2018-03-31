@@ -3,9 +3,9 @@
 
 By Jack Szwergold
 
-My first memory of this event was my brother showing up on the weekend for a “surprise” visit like he usually did. To be fair, sometimes he would tell us he would show up, but this time he showed up out of nowhere.
+My first memory of what happendd was my brother showing up on the weekend for a “surprise” unannounced visit like he usually did. To be fair, sometimes he would tell us he would show up, but many times he simply showed up out of nowhere without warning.
 
-I knew he was coming because he would buzz into the front door of the building, my dad would answer that and then my my dad would come to the front door—that was near my room—to open it up.
+I knew when he was coming because he would buzz the front door of the building, my dad would answer that and then my my dad would come to the front door—that was near my room—to open it up.
 
 “Ben is coming,” my dad would say to me in my room as he waited for Ben to come upstairs. I nodded politely, got back to doing what I doing and waited…
 
