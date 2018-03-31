@@ -5,17 +5,19 @@ By Jack Szwergold
 
 My first memory of what happendd was my brother showing up on the weekend for a “surprise” unannounced visit like he usually did. To be fair, sometimes he would tell us he would show up, but many times he simply showed up out of nowhere without warning.
 
-I knew when he was coming because he would buzz the front door of the building, my dad would answer that and then my my dad would come to the front door—that was near my room—to open it up.
+I knew when he was coming because he would buzz the front door of the building, my dad would run over to answer buzzer and then my dad would come to the front door of the apartment—that was situated near my room—to open it up.
 
-“Ben is coming,” my dad would say to me in my room as he waited for Ben to come upstairs. I nodded politely, got back to doing what I doing and waited…
+“Ben is coming,” my dad would say to me matter of factly in my room as he waited for Ben to come upstairs. I nodded politely, got back to doing whatever I was doing and waited…
 
-Ben arrived and he was very happy. He said hello to me, and then walked into the apartment and plopped himself in the living room.
+Ben arrived and was very happy. He said hello to me, and then walked into the living room and plopped himself onto the couch.
 
-That day seemed like a good visit since my brother didn’t insist on forcing himself into my room or dragging me to the living room to have “fun.” What that fun usually consisted of was simply dragging me—like some pet or toy—to the living room so he could see me and ask me horseshit questions.
+That visit seemed to be a good visit since my brother didn’t insist on forcing himself into my room or dragging me to the living room to have “fun” with him. What that fun usually consisted of was simply dragging me—as if I was some some pet, toy or inanimate object—to the living room so he could simply see me and ask me tons of horseshit questions to form what he believed was a conversation.
 
-This day was a good day since I was left alone in my room.
+So I considered that day a good day since I was left alone in my room to do whatever I wanted.
 
-After the bustle of the initial arrival subsided, I carefully closed the door… Not completely closed since that would make it seem that I wanted to block him out, but rather partially closed with just enough opening to let sounds in and out. Just closed enough to say I wanted to be left alone, but I am giving you some leeway so you can have the illusion I am open to speaking with you.
+After the initial bustle of his magical arrival subsided, I carefully closed the door to blockh him out… But I didn’t completely close the door since that would make it seem obvious that I wanted to block him out
+
+but rather partially closed with just enough opening to let sounds in and out. Just closed enough to say I wanted to be left alone, but I am giving you some leeway so you can have the illusion I am open to speaking with you.
 
 I was 9 years old at the time and really did not want to deal with Ben who was—and is—20 years older than me.
 
