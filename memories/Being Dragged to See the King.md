@@ -85,7 +85,7 @@ I remember at that moment, one of my brother’s friends knelt down near me and 
 
 And when he did, I looked past him and saw some sign on the wall that had a street number on it. I belive it was the 81st Street exit or something like that. I made a mental note of the street number since I wanted to look it up on a map to figure out what subway station was nearby so—in the case I was dragged to this place again—I could just sneak out while my brother wasn’t looking and take the subway back home.
 
-Before you knew it, whoever was in the bathroom was out and we’re all headed outside.
+Before you knew it, whoever was in the bathroom was out and we were all headed outside.
 
 My brother said we would get the car while his wife—and those random friends of theirs—waved goodbye to me. Have no idea who they were and have no idea why they were there.
 
