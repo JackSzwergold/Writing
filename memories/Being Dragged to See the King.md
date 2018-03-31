@@ -51,11 +51,11 @@ As my dad closed our apartment’s door, I ran towards the staircase with my han
 
 As I walked out of the building and into the afternoon sunlight I saw a typical neighborhood day playing out in front of the buildings: Yentas sitting in front of their respective buildings while kids played out in the street as cars and pedestrians walked by.
 
-Pretty much immediately from the moment the door closed to barely the moment my brother pulled out of the parking space I was inundated with him venting—seemingly endlessly—about our parents. I had no problem with them, but he seemed to be perpetually angry at them.
+Pretty much immediately from the moment I got in the car and buckled myself in, I was inundated with a seemingly endless stream of bile and rants from my brother about our parents. I had no problem with my parents, but he seemed to be perpetually at war with them.
 
-And that was on a good day. Today was anything but good.
+And that kind of behavior was typically on a good day. Today was anything but a good day.
 
-We drove down Ocean Parkway, to the Belt Parkway, to the Gowanus Expressway, to the Brooklyn-Queens Expressway to the Brooklyn Bridge. All along the way, endless negativity from my brother.
+We drove down Ocean Parkway, to the Belt Parkway, to the Gowanus Expressway, to the Brooklyn-Queens Expressway to the Brooklyn Bridge. And all along the way, I was exposed to an endless stream of negativity from my brother.
 
 I was 9 years old at the time. He was 20 years older. And in his mind this was acceptable.
 
