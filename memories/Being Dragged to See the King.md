@@ -49,9 +49,9 @@ I really didn’t want to go to see King Tut, but the thing  I learned in my sho
 
 As my dad closed our apartment’s door, I ran towards the staircase with my hand in my jacket pocket holding my Micronaut in place. A good luck and comfort charm I carried with me at the time to help me deal with all kinds of different stress… Like the stress I was about to walk into.
 
-As I walked out of the building and into the afternoon sunlight I saw what was a typical neighborhood day playing out: Yentas sitting in front of the building and kids playing in the street.
+As I walked out of the building and into the afternoon sunlight I saw a typical neighborhood day playing out in front of the buildings: Yentas sitting in front of their respective buildings while kids played out in the street as cars and pedestrians walked by.
 
-I saw some neighborhood kids invite me over to play, but I told them I had to go somewhere. I walked past them, into my brothers car and closed the door.
+As I got closer to where my borther parked his card, I saw some neighborhood kids invite me over to play, but I told them I had to go somewhere. I walked past them, into my brothers car and closed the door.
 
 Pretty much immediately from the moment the door closed to barely the moment my brother pulled out of the parking space I was inundated with him venting—seemingly endlessly—about our parents. I had no problem with them, but he seemed to be perpetually angry at them.
 
