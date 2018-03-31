@@ -67,7 +67,9 @@ While I never knew what the concept of repression—or dissociation—was back a
 
 After some more driving, before I knew it we were somehow on 5th Avenue in right front of the Metropolitan Museum of Art. I had never been to any museum in my life at the time past the Museum of Natural History, so this was technically my first step into a larger world of so-called “culture”…
 
-The thing is I was so numb and detached from it all at the time—thanks to my brother’s abusive behavior—that all this place represented to me was yet another miserable place where my brother—in his seemingly endless quest to make my supposedly bad childhood “better”—would drag me to.
+The thing is—thanks to my brother’s abusive behavior—I was so numb and detached from it all at the time that all that stupid place represented to me was yet another place where my brother—in his seemingly endless quest to “improve” my supposedly bad childhood—would drag me to.
+
+
 
 
 
