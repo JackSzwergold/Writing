@@ -111,9 +111,9 @@ My brother and his wife—who were still in the car—shouted at me to wait, but
 
 I turned on the TV, closed the door and settled in. I finally felt comfortable. 
 
-My brother and his wife came upstairs and for a brief moment there was a little fight. I could feel my brain clench a bit but then my father knocked at the door and said “Ben and Karen want to say goodbye…” They both peeked their heads into my room and said goodbye. So did I.
+My brother and his wife came upstairs and—for a brief, stressful moment—there was a little fight. I could feel my brain clench a bit but then my father knocked at the door and said “Ben and Karen want to say goodbye…” They both peeked their heads into my room and said goodbye. So I said goodbye to them.
 
-The door was closed and they left. And I soon fell into a comfortable deep sleep knowing they were both gone.
+The door was closed and they left. While I wasn’t exactly ready for bed yet, I laid down on the floor and started to fall into a short—but comfortable—nap knowing they were both gone and it would be at least a week before I ran the risk f running into them again.
 
 ***
 
