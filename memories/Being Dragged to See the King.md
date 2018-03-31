@@ -61,13 +61,13 @@ Mind you I was 9 years old at the time and he was 20 years older. And in his min
 
 By the time we got to the Brooklyn Bridge I was relieved since the bridge had this metal grating for a roadway that created an endless, white-noise-like hum as cars drove over it. The second the wheels of my brother’s car hit the Brooklyn Bridge that soothing, endless, white noise was calming, soothing and wonderful… While I could see his lips move, I thankfully could not hear a thing he was saying. I smiled as we drove over the bridge and looked out the window since I was able to enjoy the East Rivew view and skyline without having to endure his verbal bullshit.
 
-***
+That all ended when we got to the Manhattan side of the bridge and the peaceful hum ended, yet my brother was still rambling on incessantly at a mile a minute. One could only hope we’d pass some construction site or a guy jack-hammering the sidewalk somewhere.
 
-When we got to the Manhattan side, the hum settled, but my brother was still going at a mile a minute… His mouth was at least.
+While I never knew what the concept of repression—or dissociation—was back as a kid, but I did know at a certain point in dealing with the endless pile of abusive bullshit my brother would dish out, my brain would seemingly become numb and shut down. While I knew I was physically there—wherever that “there” happened to be—my brain would be numb as if I was in a dream.
 
-I never knew what the concept of repression—or dissociation—was back as a kid, but I did know at a certain point in dealing with the endless pile of B.S. my brother would dish out, my brain would seemingly become numb. While I knew I was physically there—wherever that “there” happened to be—my brain would be numb as if I was in a dream.
+After some more driving, before I knew it we were somehow on 5th Avenue in right front of the Metropolitan Museum of Art. I had never been to any museum in my life at the time past the Museum of Natural History, so this was technically my first step into a larger world of so-called “culture”…
 
-The next thing you know we are on 5th Avenue in front of the Metropolitan Museum of Art. I had never been to any museum past the Museum of Natural History as a kid, so this was technically my first step into a larger world of so-called “culture”… The thing is—as mentioned before—I was numb to the experience and all this place was to me was yet another building, and yet another place where my brother—in his quest to make my supposedly bad life “better”—would drag me too.
+The thing is—as mentioned before—I was so numb to the experience and all this place was to me was yet another building, and yet another place where my brother—in his quest to make my supposedly bad life “better”—would drag me too.
 
 I remember getting out of the car as my brother went to park the car and meeting up with his wife at the time. She was a bit of a patronizing hippie feminist. She hated my brother and treated him like crap, and would insist that he drag me to cultural events she approved of in some bizarrely dysfunctional circle of codependency.
 
