@@ -55,9 +55,9 @@ Pretty much immediately from the moment I got in the car and buckled myself in, 
 
 And that kind of behavior was typically on a good day. Today was anything but a good day.
 
-We drove down Ocean Parkway, to the Belt Parkway, to the Gowanus Expressway, to the Brooklyn-Queens Expressway to the Brooklyn Bridge. And all along the way, I was exposed to an endless stream of negativity from my brother.
+We drove down Ocean Parkway, to the Belt Parkway, to the Gowanus Expressway, to the Brooklyn-Queens Expressway to the Brooklyn Bridge. And all along the way, I was exposed to an endless stream of negativity from my brother. Initially about our parents, but then it evolved into bile and hate towards seemingly anything and everything that entered is mind at time.
 
-I was 9 years old at the time. He was 20 years older. And in his mind this was acceptable.
+Mind you I was 9 years old at the time and he was 20 years older. And in his mind somehow this was acceptable and normal behavior.
 
 By the time we got to the Brooklyn Bridge I was relieved. The bridge had this grating for a roadway that made for an endless hum as cars drove over. The second the wheels of my brother’s car hit the Brooklyn Bridge that hum, that white noise was beautiful… I could not hear a thing he was saying, and I smiled as we drove over the bridge and I was able to enjoy the view without the bullshit.
 
