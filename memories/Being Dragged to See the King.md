@@ -105,7 +105,7 @@ As we drove off, both my brother and his wife asked me some generic questions ab
 
 We got back to my home on Ocean Parkway and I ran out of the car and headed upstairs. I could hear the sound of the subway, ocean and seagulls overhead as I approached the building and it all felt like home. Soon enough, the numbing non-pain pain of dissociation and confussion lifted.
 
-My brother and his wife shouted at me to wait, but I didn’t care. I was already at the front door and I just buzzed the buzzer, waited for my dad to answerr it, ran upstairs and headed into my room.
+My brother and his wife—who were still in the car—shouted at me to wait, but I didn’t care. I was already at the front door and I just buzzed the buzzer, waited for my dad to answer it, ran upstairs and headed into my room.
 
 “Where’s Ben?” my dad asked as I took off my jacket. “I don’t know…” I said as I headed to my room.
 
