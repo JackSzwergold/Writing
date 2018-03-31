@@ -87,11 +87,11 @@ And when he did, I looked past him and saw some sign on the wall that had a stre
 
 Before you knew it, whoever was in the bathroom was out and we were all headed outside.
 
-My brother said we would get the car while his wife—and those random friends of theirs—waved goodbye to me. Have no idea who they were and have no idea why they were there.
+My brother said we would both go to get the car while his wife—and those random friends of theirs—waved goodbye to me. Have no idea who they were and have no idea why they were there.
 
-My brother and I headed to his car, and I got in.
+We neared the car, he opened up the passenger door and I got in.
 
-As I sat in the passenger seat my brother turned to me and said, “Shhh… This is a big surprise!” I have no idea what he was talking about, but then he pulled out some steering wheel cover/grip he had bought. When? I don’t know. Why? No clue. But apparently this was some big secret I was privy to.
+As I sat in the passenger seat my brother turned to me and said, “Shhh… This is a big surprise!” I have no idea what he was talking about, but then he pulled out some steering wheel cover/grip he had bought from some store. When? I don’t know. Why? No clue. But apparently this was some big secret suprise he was sharing with me as if I gave a shit.
 
 It was a basic steering wheel grip. He was putting it on the steering wheel itself as he talked to me and explained how I should not talk to his wife about this. I said quietly, “Okay…” while trying to understand how I was supposed to keep something that visually obvious a “secret” from his wife. I mean, he just put it on in his car, right?
 
