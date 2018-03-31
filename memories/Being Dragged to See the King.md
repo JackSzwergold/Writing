@@ -15,11 +15,7 @@ That visit seemed to be a good visit since my brother didn’t insist on forcing
 
 So I considered that day a good day since I was left alone in my room to do whatever I wanted.
 
-After the initial bustle of his magical arrival subsided, I carefully closed the door to blockh him out… But I didn’t completely close the door since that would make it seem obvious that I wanted to block him out
-
-but rather partially closed with just enough opening to let sounds in and out. Just closed enough to say I wanted to be left alone, but I am giving you some leeway so you can have the illusion I am open to speaking with you.
-
-I was 9 years old at the time and really did not want to deal with Ben who was—and is—20 years older than me.
+After the initial bustle of his magical arrival subsided, I carefully closed the door to block him out… But I didn’t completely close the door since that would make it seem obvious that I wanted to block him. So I closed just wide enough so there was a slight gap that would let sounds in and not much else. Just wide enought to send the message that this 9 year old kid had no interest in dealing with the 29 year old, anger-filled entity that was my brother.
 
 I played, futzed and did whatever B.S. a kid does to kill time on the weekend when suddenly a fight broke out. I wasn’t too sure what it was exactly about because fights with Ben tended to never be in English; it was always in Polish, Yiddish, Hebrew or some mix of them all.
 
