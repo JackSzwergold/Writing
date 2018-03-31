@@ -15,9 +15,9 @@ That visit seemed to be a good visit since my brother didn’t insist on forcing
 
 So I considered that day a good day since I was left alone in my room to do whatever I wanted.
 
-After the initial bustle of his magical arrival subsided, I carefully closed the door to block him out… But I didn’t completely close the door since that would make it seem obvious that I wanted to block him. So I closed just wide enough so there was a slight gap that would let sounds in and not much else. Just wide enought to send the message that this 9 year old kid had no interest in dealing with the 29 year old, anger-filled entity that was my brother.
+After the initial bustle of his magical arrival subsided, I carefully closed the door to block him out… But I didn’t completely close the door since that would make it seem obvious that I wanted to block him. So I closed just wide enough so there was a slight gap that would let sounds in and not much else. Just wide enough to send him message that this 9 year old kid had no interest in dealing with the 29 year old, anger-filled entity that was my brother.
 
-I played, futzed and did whatever B.S. a kid does to kill time on the weekend when suddenly a fight broke out. I wasn’t too sure what it was exactly about because fights with Ben tended to never be in English; it was always in Polish, Yiddish, Hebrew or some mix of them all.
+I played around, futzed around and did whatever fun bullshit 9 year old a kid does to kill time on the weekend when suddenly  it happened yet again: An argument broke out between my brother and whichever of our parents said something that upset him. I wasn’t exactly too sure what the fight was about because fights with my brother tended to never be in English; it was always in Polish, Yiddish, Hebrew or some mix of them all. To my 9 year old ears it just sounded like endless, intelligible human barking.
 
 The fight was bad enough that my dad showed up at the doorway to me room and asked, “Do you want anything to eat?” Which was his way of saying, “Do you believe this shit?” but many times he would just say, “I don’t understand what he wants!” and then walk away. This time I said, “No…” to indicate I was not hungry and when my dad stated, “I don’t understand what he wants!” I just shrugged my shoulders.
 
