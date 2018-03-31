@@ -19,17 +19,15 @@ After the initial bustle of his magical arrival subsided, I carefully closed the
 
 I played around, futzed around and did whatever fun bullshit 9 year old a kid does to kill time on the weekend when suddenly  it happened yet again: An argument broke out between my brother and whichever of our parents said something that upset him. I wasn’t exactly too sure what the fight was about because fights with my brother tended to never be in English; it was always in Polish, Yiddish, Hebrew or some mix of them all. To my 9 year old ears it just sounded like endless, intelligible human barking.
 
-But this time the argument was really bad. So bad that my dad showed up at the doorway to my room, cracked open the door and calmly asked, “Do you want anything to eat?” Which was his passive way of saying, “Do you believe this shit?”
+But this time the argument was really bad. So bad that my dad showed up at the doorway to my room, cracked open the door and calmly asked, “Do you want anything to eat?” Which was his passive way of saying, “Do you believe this shit?” I simply shook my head and responded “No…” to indicate I was not hungry and then my dad exasperatedly said, “I don’t understand what he wants!” to which I just shrugged my shoulders as he walked away closing the door behind him.
 
-I simply responded “No…” to indicate I was not hungry and when my dad then exasperatedly stated, “I don’t understand what he wants!” I just shrugged my shoulders.
+Mind you I was still 9 years old at the time.
 
-I was still 9 years old at the time.
+As my dad walked away, I could hear my brother grunt, rumble, walk to the bathroom and lock the door. What a wonderful thing of him to do!
 
-As my dad walked away, I could hear my brother grunt and rumble and head to the bathroom. What a joy!
+When my brother went to the bathroom it would usually take what professionals call “forever” so I was free to walk around the apartment without being dragged by him into some bullshit or nonsense. What a relief!
 
-When my brother went to the bathroom it would usually take what professionals call “Forever” so I was free to walk around the apartment without being snagged by him in some horseshit.
-
-I went to the living room and saw my mom staring blankly towards the TV. She saw me and asked me herself, “What does he want?” And I shrugged again. I went into the kitchen and saw my dad warming up latkes or blintzes. He turned to me and said, “Don’t worry… I’ll bring them to you…” So with that I headed back to my room and made sure the door was closed just enough and open just enough.
+So I went to the living room and saw my mom staring blankly towards the TV. She saw me and asked me herself, “What does he want?” And I shrugged again. I went into the kitchen and saw my dad warming up latkes or blintzes. He turned to me and said, “Don’t worry… I’ll bring them to you…” So with that I headed back to my room and made sure the door was closed just enough and open just enough.
 
 By the time I got back to my room I could hear the sounds of someone finishing up their business in a bathroom; it didn’t seem like a lot of time passed but maybe the stress of the moment was deceiving me.
 
