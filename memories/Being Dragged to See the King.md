@@ -59,7 +59,9 @@ We drove down Ocean Parkway, to the Belt Parkway, to the Gowanus Expressway, to 
 
 Mind you I was 9 years old at the time and he was 20 years older. And in his mind somehow this was acceptable and normal behavior.
 
-By the time we got to the Brooklyn Bridge I was relieved. The bridge had this grating for a roadway that made for an endless hum as cars drove over. The second the wheels of my brother’s car hit the Brooklyn Bridge that hum, that white noise was beautiful… I could not hear a thing he was saying, and I smiled as we drove over the bridge and I was able to enjoy the view without the bullshit.
+By the time we got to the Brooklyn Bridge I was relieved since the bridge had this metal grating for a roadway that created an endless, white-noise-like hum as cars drove over it. The second the wheels of my brother’s car hit the Brooklyn Bridge that soothing, endless, white noise was calming, soothing and wonderful… While I could see his lips move, I thankfully could not hear a thing he was saying. I smiled as we drove over the bridge and looked out the window since I was able to enjoy the East Rivew view and skyline without having to endure his verbal bullshit.
+
+***
 
 When we got to the Manhattan side, the hum settled, but my brother was still going at a mile a minute… His mouth was at least.
 
