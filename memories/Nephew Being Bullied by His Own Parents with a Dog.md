@@ -19,7 +19,7 @@ There, sitting on the edge of the couch like a lifeless doll, was my nephew. He 
 
 “I want to get a nice picture of him!” he said as he stepped back behind the 35mm camera he had on a tripod nearby.
 
-“Come on over and look!” he said to me as he waved me over to look through the view finder of the camera. Not much to say or see; it was just a well groomed–somewhat confussed—kid as seen through the viewfinder of the camera.
+“Come on over and look!” he said to me as he waved me over to look through the view finder of the camera. Not much to say or see; it was just a well groomed–somewhat confused—kid as seen through the viewfinder of the camera.
 
 As I stood up I saw my niece in the corner of the hallway near her room. She was shy and kind of peeking at the action as it unfolded.
 
@@ -35,7 +35,7 @@ Her husband responded, “I’m just telling the kids about how we all wanted to
 
 “And you know what?” he said to his son who was all primed up for a photo—that hasn’t been taken yet—and sitting on the couch. “Guess what! I’m not your dad! Johnny is your dad!” he said referring to our building superintendent who was black. “You’re black, son!” he said dancing around the room like the idiot he was.
 
-I looked around and saw my sister laughing as her husband was laughing and dancing while he smoked his joint. I’m standing there stunned and confussed and not knowing how to react. My niece is standing there seemingly catatonic and looking as if she is about to cry but not actually crying yet. Nobody knew what was happening.
+I looked around and saw my sister laughing as her husband was laughing and dancing while he smoked his joint. I’m standing there stunned and confused and not knowing how to react. My niece is standing there seemingly catatonic and looking as if she is about to cry but not actually crying yet. Nobody knew what was happening.
 
 Then the buzzer rang.
 
@@ -51,17 +51,17 @@ The guy and his dog swung in to the living room and started talking. Me and my n
 
 Suddenly the Akita spotted my nephew, lurched towards him and barked. The barks were loud, aggressive and unfriendly and it looked like if the dog was not on a leash, it would lunge at my nephew at a blink of the eye.
 
-Without batting an eye, the guy loosened the leash but still pulled back the dog. It moved closer and closer to child and kept on barking. My sister and her husband are laughing. I feel paralyzed and can see a tear roll down my nieces face.
+Without batting an eye, instead of pulling back on the leash the guy loosened it while still pulling back on the dog. It moved closer and closer to my nephew, barking all the way. My sister and her husband are now laughing as if this is the funniest thing they have ever seen. I stand and feel paralyzed and when I look at my niece, I can see a tear roll down her face.
 
-“Look at this man!” my sister’s husband says as if allowing a dog on a leash to be near a child was the most normal thing in the world.
+“Look at this man!” my sister’s husband says as if allowing a dog behaving like that near a child was the coolest, most awesome and most normal thing in the world to do.
 
-“Don’t worry!” the father said as the dog barked and lunged at him. “The dog won’t hurt him. Look at him,” he said referring to my nephew, “The kid is tough as nails!”
+“Don’t worry!” he said as the dog barked and lunged at his own son. “The dog won’t hurt him. Look at him,” he said referring to my nephew, “The kid’s tough!”
 
-Suddenly the dog veered a bit and almost knocked over his 35mm camera. “Whoa! Whoa!” he said as he jumped to protect his camera. “Enough already,” he said as he prodded his brother to pull the dog away.
+Suddenly—in the middle of this all—the dog wavered to the side a bit and almost knocked over his 35mm camera. “Whoa! Whoa!” he said as he jumped to protect his camera. “Enough already,” he said as he prodded his brother to pull the dog away.
 
-With that, he adjusted the camera and tripod, put his hand on his son’s head to get him to look at the camera and finally took a portrait of his son. All the while the dog still barking in the background.
+With that, he adjusted the camera and tripod, put his hand on his son’s head to get him to look straight at the camera and finally took a portrait of his son. All the while the dog was still focused on my nephew and barking at him in the background.
 
-I went to leave the apartment and my sister said I was welcome to come and have dinner with them shortly when it was ready. I said, “Okay…” and walked out the door, closed the door, walked down the hallway and headed back to my home.
+I went to leave the apartment and my sister said I was welcome to come and have dinner with them shortly when it was ready. I said, “Okay…” and walked out the door, closed the door, walked down the hallway and headed back to my parent’s apartment.
 
 ***
 
