@@ -31,13 +31,13 @@ He was outside waiting for me and waved. I imagined he would show me someone—o
 
 We went into the building and headed up the the elevator. Where I did not know?
 
-“What kind of job is this again?” I asked and he said, “You will see…” he said, “Don’t worry…”
+“What kind of job is this again?” I asked and he said, “You will see…” he said, “Don’t worry…” he added.
 
-And soon enough we got off at some nondescript floor, walked into a nondescript room and my brother said, “Here is where you will work!” I was confused… I saw nobody else… Just me and my brother in this miscellaneous lab.
+And soon enough we got off at some nondescript floor, walked into a nondescript room and my brother said, “Here is where you will work!” I was confused… I saw nobody else… Just me and my brother in this miscellaneous chemistry lab.
 
 “Here?” I asked. “Who am I working for?” I asked again.
 
-“Me! You can be my assistant!” he said.
+“Me! You can be my assistant!” he said proudly.
 
 And with that I felt my mind twist inside of itself. This is not what I wanted. I wanted a real job where I would be paid. I asked my brother who would pay me—assuming there was some kind of arrangement with the university and this was normal—and he responded, “I will! Do not worry!“
 
