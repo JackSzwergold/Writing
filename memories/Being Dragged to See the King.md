@@ -43,9 +43,7 @@ I immediately said, “Yes…” despite the fact that all I knew about King Tut
 
 Anyway, my brother was rambling on and on about how he’s going to take me to see King Tut and how I should get ready, and my father comes out and states, “Why are you making such a big deal about this?” But despite all of the bullshit, I put on my jacket and got ready to go.
 
-I really didn’t want to go to see this exhibit, but the thing  I learned in my short life at the time was that saying “No!” to my brother was a very risky thing to do. He was—and is—a very violent person and giving him a sacrifice of agreeing to do what he asked to do was somewhat better than him sitting around and verbally abusing me—and his own family—for the rest of the afternoon.
-
-
+I really didn’t want to go to see King Tut, but the thing  I learned in my short life at the time was that saying “No!” to my brother was a very risky thing to do. He was—and is—a very violent person and giving him a sacrifice of agreeing to do what he asked to do was somewhat better than the other option which would often result in him simply violently verbally abusing me—and other members of his own family—for the rest of whatever amount of time he decided to spend with us.
 
 “Come on!” my brother said, “Let’s go!” as he stormed out of the apartment and into the hallway. “I’ll be downstairs!” I shouted. I turned to my dad who made sure to bundle me up a bit. He gave me a kiss on the head and I said, “See ya later!”
 
