@@ -35,13 +35,11 @@ By the time I got back to my room I could hear the sounds of my broter finishing
 
 Anyway, I’m in my room, playing around on the floor, doing whatever I was doing to entertain myself when my brother showed up, pushed open the door without warning and then blurted out some stream of anger. He was rambling ceaslessly to me—a 9 year old kid—something about how much time and effort he spent getting tickets to the King Tut exhibit at the Metropolitan Museum of Art and how our parents didn’t care. For some odd reason me—as a 9 year old kid—was supposed to commiserate about this with him and “care” about his being upset so I did what I always did when faced with his behavior: I just shrugged, squeezed out some minor words and noises that I hoped would make him feel good and—generally—just went along with it.
 
-“Come! We are going to go!” my brother said to me as if I had no choice. “Where are we going?” I asked. “To see the King Tut exhibit!” I’m not too sure what made him think I would want to see this, but in his mind bullying into doing something good was intrinsically a good thing. His behavior was scary and I dodn’t want to make him any more upset than he already was.
+“Come! We are going to go!” my brother said to me as if I had no choice. “Where are we going?” I asked. “To see the King Tut exhibit!” I’m not too sure what made him think I would want to see this, but in his mind bullying into doing something good was intrinsically a good thing. His behavior was scary and I dodn’t want to make him any more upset than he already was. And boy was he upset!
 
-He sensed a pause from me and reacted, “You know who King Tut is, right?”
+At some point between his ramblings and my passive responses he blurted out, “You know who King Tut is, right?”
 
-I immediately said, “Yes…” despite the fact all I knew about King Tut at the time was the Steve Martin song, some vague crappy lessons from elementary school and the fact one of the Micronaut action figures I had was named “Pharoid” which I was smart enough to know was connected to the Pharaoh in Egypt.
-
-I was 9 years old at the time.
+I immediately said, “Yes…” despite the fact that all I knew about King Tut at the time was that there was Steve Martin song about King Tut and he was mentioned in some crappy history lessons I was taught in elementary school. Oh and I also know that one of the Micronaut action figures I had was named “Pharoid” which I knew was somehow connected the word “Pharoah” and that King Tut was a Pharoah of some kind. But that was about it because I was just a 9 year old kid at the time.
 
 Anyway, my brother insists on dragging me along, and my father comes out and states, “Why are you making such a big deal about this?” I go to put on my jacket to join my brother. I really didn’t want to go, but I learned from my experience at the time that it was better if I went along with Ben and his plans than say no. He was—and is—very violent, and giving him a sacrifice of some time was somewhat better than him sitting around and verbally abusing me—and his own family—for the rest of the afternoon.
 
