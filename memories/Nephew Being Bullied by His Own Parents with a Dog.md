@@ -9,19 +9,19 @@ So my father heard about this from her, talked to the superintendent of the buil
 
 Despite the close proximity, each family—for the most part—kept it’s distance… And things were seemingly decent and balanced in some ways. I could go out and play with friends in the neighborhood without the incessant meddling and interference my brother his wife was more apt to do. And my sister and her family were not completely up our collective asses all the time telling us how to live.
 
-One day I was bored and headed up to my sister’s apartment. Her husband had just come back from jogging and was shirtless and smoking a joint as he propped up my nephew on their couch–like a doll—for a picture he wanted to take.
+One day I was bored and headed up to my sister’s apartment. Her husband had just come back from jogging and was shirtless and smoking a joint as he propped up my nephew on their couch for a picture he wanted to take.
 
 “Hey Jack! Check this out!” he said as he waved me into the living room.
 
-There sitting on the edge of the couch like a little doll was my nephew. He was casually—but formally—dressed up in a flannel button down shirt and my sister’s husband was combing his hair while a joint dangled from lips.
+There, sitting on the edge of the couch like a lifeless doll, was my nephew. He was dressed casually—but formally in a flannel button down shirt and my sister’s husband was combing his hair while the joint dangled from lips.
 
 “He looks cool, right?” he said to me, smiling with this big shit eating grin he always had on.
 
 “I want to get a nice picture of him!” he said as he stepped back behind the 35mm camera he had on a tripod nearby.
 
-“Come on over and looked!” he said to me as he waved me over to look through the view finder of the camera. Not much to say or see; it was just a well groomed kid as seen through the viewfinder of the camera.
+“Come on over and look!” he said to me as he waved me over to look through the view finder of the camera. Not much to say or see; it was just a well groomed–somewhat confussed—kid as seen through the viewfinder of the camera.
 
-I stood up and saw my niece in the corner near her room. She was shy and kind of peeking at the action as it unfolded.
+As I stood up I saw my niece in the corner of the hallway near her room. She was shy and kind of peeking at the action as it unfolded.
 
 “Come over!” he said to her. “Look!” he said again. And with that she quietly came over and looked through the viewfinder.
 
@@ -29,27 +29,27 @@ As she looked, he walked over to the stereo and put on some Rolling Stones. The 
 
 “Hey Jack!” he said to me doing an awkward, shirtless dance as the song came on. “You know why they wrote this song?” he asked me. “Well, in the 1960s, everyone wanted to be black so that’s why they wrote a song about it.”
 
-My sister came out of the kitchen holding a pot and asking, “What are you doing?” as she looked at all of us.
+My sister came out of the kitchen holding a pot, smiled and asked, “What are you doing?” as she looked at all of us.
 
-Her husband responded, “I’m just telling the kids about how we all wanted to be black in the 1960s!” She just looked at him with a “You’re crazy!” look and went on with what she was doing.
+Her husband responded, “I’m just telling the kids about how we all wanted to be black in the 1960s!” She just laughed and looked at him with a “You’re crazy!” look and went on with what she was doing.
 
-“And you know what?” he said to his son, all primed for a photo—that hasn’t been taken yet—and sitting on the couch. “Guess what! I’m not your dad! Johnny is your dad!” he said referring to the black building superintendent. “You’re black, son!” he said dancing around.
+“And you know what?” he said to his son who was all primed up for a photo—that hasn’t been taken yet—and sitting on the couch. “Guess what! I’m not your dad! Johnny is your dad!” he said referring to our building superintendent who was black. “You’re black, son!” he said dancing around the room like the idiot he was.
 
-I looked around. My sister was laughing, her husband was laughing as well and dancing while he smoked his joint. I’m standing there stunned. My niece is standing there looking as if she is about to cry but not actually crying yet. Nobody knew what was happening.
+I looked around and saw my sister laughing as her husband was laughing and dancing while he smoked his joint. I’m standing there stunned and confussed and not knowing how to react. My niece is standing there seemingly catatonic and looking as if she is about to cry but not actually crying yet. Nobody knew what was happening.
 
 Then the buzzer rang.
 
-My sister’s husband’s brother was coming up. I heard he had a dog and broke his arm but that is all I knew about it.
+My sister’s husband’s brother was coming up. I heard he had a new dog and broke his arm but that is all I knew about it.
 
-Before long the bell on the door to the apartment rang, my sister opened it and there came what was ostensibly my brother-in-law with a dog that seemed like a wolf pulling him in.
+Before long the bell on the door to the apartment rang, my sister opened it and there came in what was ostensibly my brother-in-law with a dog that seemed like a wolf pulling him in.
 
-The dog was an Akita and I have no idea how long he owned it, but it did not seem to want to be anywhere near him.
+The dog I learned was an Akita. I have no idea how long he owned dog, but the it did not seem to want to be anywhere near him and was consistently growling and pulling against the leash the whole time he was there.
 
-“Hey!” he said, “What’s up?” as the dog pulled him into the apartment.
+“Hey!” he said to me, “What’s up?” he added as the dog pulled him like a sled into the apartment.
 
-The guy and his dog swung in to the living room at a distance and my sister’s husband and the guy started talking. Me and my niece backed off a. bit as the dog started to scope the room; it’s head twitching back and forth. My nephew sat calmly on the couch while this all happened.
+The guy and his dog swung in to the living room and started talking. Me and my niece backed off a bit as the dog stopped growling and scoped out the room; it’s head twitching back and forth as if it was on a hunt. All the while there was my nephew who was still sitting calmly on the edge of the couch, waiting for his picture to be taken.
 
-Suddenly the Akita spotted my nephew and was lurching towards him and started to bark. The barks were aggressive and unfriendly and it looked like if the dog was not on a leash, it would lunch at the child at a blink of the eye.
+Suddenly the Akita spotted my nephew, lurched towards him and barked. The barks were loud, aggressive and unfriendly and it looked like if the dog was not on a leash, it would lunge at my nephew at a blink of the eye.
 
 Without batting an eye, the guy loosened the leash but still pulled back the dog. It moved closer and closer to child and kept on barking. My sister and her husband are laughing. I feel paralyzed and can see a tear roll down my nieces face.
 
