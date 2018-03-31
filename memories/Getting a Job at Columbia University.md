@@ -47,31 +47,31 @@ I ran some small errands for him around his lab, but for the most part my suppos
 
 You see, when I was 14 I was in some required science classes in Junior High School. I didn’t particularly like them or hate them; they were simply required classes. But in his mind the fact I was—for example—studying biochemistry meant I actually had a passion for the subject. Thus somehow I would care to listen to him blather on and on about whatever grad student class bullshit he was doing as if I cared.
 
-In between that bullshit I did things like use pipettes to fill things or use the autoclave to disinfect things. But there was no independence in these tasks. No matter what I did or how I did it, my brother was hovering nearby, micromanaging me.
+In between that bullshit I did things like use pipettes to fill things or use the autoclave to disinfect things. But there was no independence in these tasks. No matter what I did or how I did it, my brother was hovering nearby, micromanaging me. Micromanaging me so much that he might as well have just done the work himself.
 
-It was horrible. But at least he paid. How much, I don’t remember, but I remember at the end of each day he would pull some money out of his pocket and gave it to me. It felt less like a job and more like he was paying me to be his friend.
+Needless to say, this “job” was horrible. But at least he paid. How much, I don’t remember, but I remember at the end of each day he would pull some money out of his pocket and give it to me. It felt less like a job and more like he was paying me to be his friend; which in retrospect is really all the “job” was.
 
-I went along with this for a few weeks. The through is he was able to buy my friendship. I did want the money. But then—at some point—our father got wind of what Ben was doing and was angry. He said I should not take Ben’s money… He would just give me whatever money I needed.
+I went along with this for a few weeks. The thing is he was able to buy my friendship since I was young, naive and stupid and I did want the money. But then—at some point—our father got wind of what Ben was doing and was angry. He said I should not take Ben’s money… He would just give me whatever money I needed.
 
-Superficially this seemed great financially, but it was horrible otherwise: My dysfunctional brother wants to literally buy my friendship and my father is threatened by my brother’s behavior and I did not know what to do.
+Superficially this seemed great financially, but it was horrible otherwise: My dysfunctional brother wants to literally buy my friendship and my father is threatened by my brother’s behavior and this is not a “job” I wanted and I did not know what to do.
 
-I talked to a friend of mine who worked at a local Knish store and asked if he could hook me up with a job. “But don’t you already have one?” he said. “It’s not a real job. It stinks,” I replied. And he said he would ask and see but it wasn’t like it would happen right away. I understood and told him I was cool with that and left it at that.
+So one day I talked to a friend of mine who worked at a local Knish store and asked if he could hook me up with a job. “But don’t you already have one?” he said. “It’s not a real job. It stinks,” I replied. And he said he would ask and see but it wasn’t like it would happen right away. I understood and told him I was cool with that and left it at that.
 
-The week before my friend was going to hook me up with a job at the Knish shop, I was at Columbia University “working” for my brother again.
+A week or so before my friend was going to hook me up with a job at the Knish shop, I was at Columbia University “working” for my brother again just waiting for this bullshit to end.
 
-Something odd was happening on something I was working on for him and I asked for help. “You should just use the stuff in that bottle over there.” he shouted. “Which one?” I replied. “I just don’t understand what is happening.” “You’ve done this before,“ he retorted condescendingly, “You know what you should be doing.” But I didn’t know what I should do nor did ever do this before; he was simply delusional.
+I was tasked with doing something and something was clearly not going right, so I asked him for help. “You should just use the stuff in that bottle over there.” he shouted. “Which one?” I replied. “I just don’t understand what is happening.” “You’ve done this before,“ he retorted condescendingly, “You know what you should be doing.” But I didn’t know what I should do nor did ever do this before; he was simply delusional and projecting his knowledge on me. He somehow believes that because we are biological siblings we are someho psychic and even have the same skills.
 
-So in an effort to fix what was screwed up I grabbed the nearest bottle and carefully put the stuff into the test tubes. Nothing changed. “I need your help,” I asked. “I don’t think I did the right thing.” I said trying to hold back my frustration in trying to communicate with him.
+So in an effort to fix what was screwed up I grabbed the nearest bottle of stuff and carefully put it into the test tubes. Nothing changed. “I need your help,” I asked yetagain. “I don’t think I did the right thing.” I said trying to hold back my frustration in trying to communicate with him.
 
 With that he angrily came over, saw what I did and started to scream at me about how I was “stupid” and ruined this project. I started to stammer and almost cry… I really didn’t know what I was supposed to do or why the thing wasn’t working. I asked for help, right? Anyway, in a huff he took the test tubes and walked out of the lab.
 
-I felt stunned, shocked and assaulted. I looked at the wall at a nearby calendar and tried to calculate how much more of this I had to deal with. At best one week if I could get the job at the Knish place. But that one week seemed like an eternity.
+I felt stunned, shocked and assaulted. I looked at the wall at a nearby calendar and tried to calculate how much more days of this I had to deal with. At best one week if I could get the job at the Knish place. But that one week seemed like an eternity.
 
 I turned to a nearby sink and noticed some dry ice in a box next to it. The dry ice was leftover from some delivery so it was no longer need. I broke off some pieces and dropped them in the sink as the water was running. A carbon dioxide cloud filled the air. I thought about my brother’s yelling, temper and anger and just shoved my head straight into the cloud of carbon dioxide.
 
-I knew I couldn’t breathe it, but at that moment I wanted to feel something new. Have some escape from this bullshit. So for a brief moment I suffocated myself. The pain was gone for. few seconds then a new pain came; the pain of actually not being able to breath.
+I knew I couldn’t breathe it, but at that moment I wanted to feel nothing and feel something different thanthe pain I was feeling. I needed to have some quick escape from this bullshit. So for that brief moment I suffocated myself. The pain was gone a small bit and it felt good. But within a few seconds a new pain came into me; the pain of actually not being able to breathe.
 
-I quickly pulled my head out, grasped my hands at my throat and was gasping for air when my brother came into lab.
+I quickly pulled my head out, grasped my throat with me hands and gasped for air when my brother came into lab.
 
 “What happened?” he said, looking straight at me.
 
