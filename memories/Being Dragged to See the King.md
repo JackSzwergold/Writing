@@ -27,9 +27,11 @@ As my dad walked away, I could hear my brother grunt, rumble, walk to the bathro
 
 When my brother went to the bathroom it would usually take what professionals call “forever” so I was free to walk around the apartment without being dragged by him into some bullshit or nonsense. What a relief!
 
-So I went to the living room and saw my mom staring blankly towards the TV. She saw me and asked me herself, “What does he want?” And I shrugged again. I went into the kitchen and saw my dad warming up latkes or blintzes. He turned to me and said, “Don’t worry… I’ll bring them to you…” So with that I headed back to my room and made sure the door was closed just enough and open just enough.
+So I went to the living room and saw my mom staring blankly towards the TV. She saw me and asked me a similar question to the one my dad asked me moments before, “What does he want?” And I shrugged again.
 
-By the time I got back to my room I could hear the sounds of someone finishing up their business in a bathroom; it didn’t seem like a lot of time passed but maybe the stress of the moment was deceiving me.
+Then I went into the kitchen and saw my dad warming up latkes or blintzes or something along those lines. He turned to me and said, “Don’t worry… I’ll bring them to you…” So with that I headed back to my room and made sure the door was open just enough to let my dad in.
+
+By the time I got back to my room I could hear the sounds of my broter finishing up their business in a bathroom; it didn’t seem like a lot of time passed but then agian perhaps the stress of the moment was screwing around with my sense of time.
 
 Anyway, I am in my room and was on the floor doing whatever when my brother showed, pushed open the door without asking and then blurted out some stream of anger. Something about how much time and effort he spent getting tickets to the King Tut exhibit at the Met and how our parents did not care. Somehow I was supposed to commiserate and “care” about this so I did what I always did: I shrugged and made some minor noises that acknowledged I went along with it.
 
