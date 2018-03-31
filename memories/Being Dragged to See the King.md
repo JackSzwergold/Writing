@@ -97,15 +97,15 @@ It was a basic steering wheel grip but to him it was a big deal. He pulled it ou
 
 As he continued to talk to me about how his wife wouldn’t like it, she suddenly showed up and stuck her head into the driver’s side window, condescendingly pushed her finger on the steering wheel cover and started to argue with him in Hebrew.
 
-I’m sitting there—a 9 year old kid—in this car parked on 86th Street and staring down the road. I knew Central Park was behind me, and it seemed like there might be a subway line in front of me. So if I git out of the car and ran, I could probably figure out which train to take home.
+And there I am, sitting in this car parked on 86th Street and blankly staring down the road. I knew Central Park was behind me, and it seemed like there might be a subway station in front of me. So if I somehow got out of the car and ran quickly down the block, I could probably sneak into the subway station, jump on a train and then figure out how to get home somehow.
 
-But who was I kidding? I had no idea how the trains worked over here. So I sat in the car and waited for their fight to subside. Soon enough it was getting dusky, my brothers wife got into the car and we drove off.
+But who was I kidding? I had no idea how the trains worked over here wherever I was. So I sat in the car, stared blankly out the window and waited for their fight to subside. Soon enough it was getting dark and dusky outside, my brother’s wife got into the car and we drove off.
 
-As we drove off, both my brother and his wife asked me some generic questions about King Tut and whether I liked the exhibit of not. I nodded and said, “Yeah…” and generally went along with it despite the fact I genuinely remembered nothing about the exhibit.
+As we drove off, both my brother and his wife asked me some generic questions about King Tut and whether I liked the exhibit of not. I nodded and said, “Yeah…” and generally went along with it despite the fact I genuinely remembered nothing.
 
-We got back to my home on Ocean Parkway and I ran out of the car to head upstairs. The sound of the train and the ocean; I finally felt like home again. And the cloud of dissociation of the afternoon lifted.
+We got back to my home on Ocean Parkway and I ran out of the car and headed upstairs. I could hear the sound of the subway, ocean and seagulls overhead as I approached the building and it all felt like home. Soon enough, the numbing non-pain pain of dissociation and confussion lifted.
 
-My brother and his wife shouted at me to wait, but I didn’t care. I just buzzed the buzzer, ran upstairs and headed into my room.
+My brother and his wife shouted at me to wait, but I didn’t care. I was already at the front door and I just buzzed the buzzer, waited for my dad to answerr it, ran upstairs and headed into my room.
 
 “Where’s Ben?” my dad asked as I took off my jacket. “I don’t know…” I said as I headed to my room.
 
