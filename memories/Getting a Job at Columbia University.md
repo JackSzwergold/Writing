@@ -89,9 +89,9 @@ After a few minutes I started to feel normal again, while my brother was still h
 
 As I waited on the train platform for the A train to show up, I imagined him running down the staircase and felt paralyzed. When the train finally arrived, I jumped in but worried that when it got to 59th Street he would somehow show up there, but he didn’t.
 
-When the D train finally pulled into 59th Street and he was nowhere to be seen, I started to loosen up a bit.
+When the D train finally pulled into 59th Street and he was nowhere to be seen, I started to relax a bit.
 
-As the D train exited Prospect Park station and was awash with the dusk sunlight I felt better. I was even able to take a nap on the train.
+As the D train exited Prospect Park station and was awash with the afternoon sunlight I felt better. I was even able to take a brief nap on the train since the trip was so long.
 
 When it got to Ocean Parkway, I got off and walked down the block and headed home. When I got upstairs, my father noticed how stressed I looked asked “What happened?” To which I replied, “Nothing…”
 
@@ -101,9 +101,9 @@ What a relief! I finally landed my first job on my own.
 
 When I got home again that night my father was on the phone with my brother as I walked in the door. I’m not too sure my brother told our father the full story, but he seemed to know something was up.
 
-“Jack!” he said. “Ben is on the phone!”
+“Jack!” he said. “Ben is on the phone!” he added as he passed the phone to me.
 
-I grabbed the phone and Ben asked, “How are you doing? What happened?” to which I replied, “I don’t want to work for you anymore. I have a new job!” and as I said that I could hear his breathing get more intense and his tone and anger growing. “What do you mean?!?” he said to which I said, “I have a new job! Goodbye!” and with that I passed the phone back to my dad, ran to my room and collapsed on the sofa.
+I grabbed the phone and Ben asked, “How are you doing? What happened?” to which I replied, “I don’t want to work for you anymore. I have a new job.” and as I said that I could hear his breathing get more intense and his tone and anger growing. “What do you mean?!?” he said to which I said, “I have a new job! Goodbye!” and with that I passed the phone back to my dad, ran to my room and collapsed on the sofa.
 
 I could hear my father and Ben fighting on the phone, but soon enough it calmed down. My father came to my room and asked me if I was hungry. I said I was okay, and with that I got ready to sleep.
 
