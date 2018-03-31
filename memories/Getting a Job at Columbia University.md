@@ -71,17 +71,17 @@ I turned to a nearby sink and noticed some dry ice in a box next to it. The dry 
 
 I knew I couldn’t breathe it, but at that moment I wanted to feel nothing and feel something different thanthe pain I was feeling. I needed to have some quick escape from this bullshit. So for that brief moment I suffocated myself. The pain was gone a small bit and it felt good. But within a few seconds a new pain came into me; the pain of actually not being able to breathe.
 
-I quickly pulled my head out, grasped my throat with me hands and gasped for air when my brother came into lab.
+I quickly pulled my head out, grasped my throat with my hands and gasped for air when my brother came into lab.
 
 “What happened?” he said, looking straight at me.
 
 “Nothing!” I said as I audibly gasped for air.
 
-My brother could clearly see what was happening but I shook it off as an accident. Despite my gasping for air, he did not run over and do anything to help me. He simply placed the test tubes on the table and went back to work undoing the damage I had don’t.
+My brother could clearly see what was happening but shook it off as, “No big deal.” Despite me clearly gasping for air, he did not run over and do anything to help me. He simply placed the test tubes on the table and went back to work undoing the damage to his work I had done.
 
 “You are not stupid? Why did you do this?” he asked me again, oblivious not only to the fact I had no idea what this work entailed but also oblivious to the fact I was still struggling to breathe.
 
-After a few minutes I started to feel normal again, while my brother was still hunched over the test tubes still doing his work when I said, “I am going home…”
+After a few minutes I started to feel normal again, while my brother was still hunched over the test tubes still doing his work when I spontaneously said, “I am going home…”
 
 “No! Wait! I will drive you!” he shouted, which was odd. He occasionally hijacked my attempts to leave on my own in the past, but as long as I had been “working” for him, he knew I would take the train home.
 
