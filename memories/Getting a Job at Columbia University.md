@@ -5,7 +5,7 @@ By Jack Szwergold
 
 I was about 14 years old and wanted a summer job. Every other friend of mine had a summer job doing something somewhere, and I wanted one too. I wanted the independence, the freedom but—most of all—I wanted the money a job would give me.
 
-So around the time of my 14th birthday I started to look for jobs but really had no idea where to start. I told my parents I wanted a job and my mom said she would ask someone at her factory if I could get a job. I was kind of excited, but not sure what that meant. My mom got up really early each day—like at around 5:00am—andworked long hours and usually came home and collapsed in bed. Maybe there was some summer job for a teenager at the factory I could handle? Who knows.
+So around the time of my 14th birthday I started to look for jobs but really had no idea where to start. I told my parents I wanted a job and my mom said she would ask someone at her factory if I could get a job. I was kind of excited, but not sure what that meant. My mom got up really early each day—like at around 5:00am—and worked long hours and usually came home and collapsed in bed. Maybe there was some summer job for a teenager at the factory I could handle? Who knows.
 
 Anyway, during one of my brother’s visits to the family home, he got wind of me wanting a job while sitting at the kitchen table, Before he could say anything our mom would say, “Yes! I will get a Jack a job in the factory. A good job!” to which my brother started shouting and screaming about.
 
@@ -41,7 +41,7 @@ And soon enough we got off at some nondescript floor, walked into a nondescript 
 
 And with that I felt my mind twist and contort itself into a knot. This is not what I wanted. I wanted a real job where I would be paid. I asked my brother who would pay me—assuming there was some kind of arrangement with the university and this was normal arrangement—and he responded, “I will! Don’t worry!“
 
-And with that I had no idea what to do. If I left at that moment, my brother would cut me off and corner me; there was no way I could get away. In his dysfunctional mind it was perfectly normal that he would lure me into a situation like this, pay me out of his own pocket for a “job” that he just arbitrarilly made up so there was no simple escape. So I decided to stay and make the best of it.
+And with that I had no idea what to do. If I left at that moment, my brother would cut me off and corner me; there was no way I could get away. In his dysfunctional mind it was perfectly normal that he would lure me into a situation like this, pay me out of his own pocket for a “job” that he just arbitrarily made up so there was no simple escape. So I decided to stay and make the best of it.
 
 I ran some small errands for him around his lab, but for the most part my supposed “job” was to simply sit there and listen to my brother endlessly bather on about his work as if I cared. And lord knows I did not care at all.
 
@@ -59,9 +59,9 @@ So one day I talked to a friend of mine who worked at a local Knish store and as
 
 A week or so before my friend was going to hook me up with a job at the Knish shop, I was at Columbia University “working” for my brother again just waiting for this bullshit to end.
 
-I was tasked with doing something and something was clearly not going right, so I asked him for help. “You should just use the stuff in that bottle over there.” he shouted. “Which one?” I replied. “I just don’t understand what is happening.” “You’ve done this before,“ he retorted condescendingly, “You know what you should be doing.” But I didn’t know what I should do nor did ever do this before; he was simply delusional and projecting his knowledge on me. He somehow believes that because we are biological siblings we are someho psychic and even have the same skills.
+I was tasked with doing something and something was clearly not going right, so I asked him for help. “You should just use the stuff in that bottle over there.” he shouted. “Which one?” I replied. “I just don’t understand what is happening.” “You’ve done this before,“ he retorted condescendingly, “You know what you should be doing.” But I didn’t know what I should do nor did ever do this before; he was simply delusional and projecting his knowledge on me. He somehow believes that because we are biological siblings we are somehow psychic and even have the same skills.
 
-So in an effort to fix what was screwed up I grabbed the nearest bottle of stuff and carefully put it into the test tubes. Nothing changed. “I need your help,” I asked yetagain. “I don’t think I did the right thing.” I said trying to hold back my frustration in trying to communicate with him.
+So in an effort to fix what was screwed up I grabbed the nearest bottle of stuff and carefully put it into the test tubes. Nothing changed. “I need your help,” I asked yet again. “I don’t think I did the right thing.” I said trying to hold back my frustration in trying to communicate with him.
 
 With that he angrily came over, saw what I did and started to scream at me about how I was “stupid” and ruined this project. I started to stammer and almost cry… I really didn’t know what I was supposed to do or why the thing wasn’t working. I asked for help, right? Anyway, in a huff he took the test tubes and walked out of the lab.
 
@@ -69,7 +69,7 @@ I felt stunned, shocked and assaulted. I looked at the wall at a nearby calendar
 
 I turned to a nearby sink and noticed some dry ice in a box next to it. The dry ice was leftover from some delivery so it was no longer need. I broke off some pieces and dropped them in the sink as the water was running. A carbon dioxide cloud filled the air. I thought about my brother’s yelling, temper and anger and just shoved my head straight into the cloud of carbon dioxide.
 
-I knew I couldn’t breathe it, but at that moment I wanted to feel nothing and feel something different thanthe pain I was feeling. I needed to have some quick escape from this bullshit. So for that brief moment I suffocated myself. The pain was gone a small bit and it felt good. But within a few seconds a new pain came into me; the pain of actually not being able to breathe.
+I knew I couldn’t breathe it, but at that moment I wanted to feel nothing and feel something different than the pain I was feeling. I needed to have some quick escape from this bullshit. So for that brief moment I suffocated myself. The pain was gone a small bit and it felt good. But within a few seconds a new pain came into me; the pain of actually not being able to breathe.
 
 I quickly pulled my head out, grasped my throat with my hands and gasped for air when my brother came into lab.
 
@@ -109,23 +109,23 @@ I could hear my father and Ben fighting on the phone, but soon enough it calmed 
 
 ***
 
-A week later I started my new job. It was filled with all kinds of new challenges. Like needing to wear a clean white t-shirt each day and being careful when making Sanka for some patrons since they were very specific about whether the Sanka gets poured in before the water or not.
+A week later I started my new job. It was filled with all kinds of new challenges. Like needing to wear a clean white t-shirt each day and being careful when making Sanka for some patrons since they were very specific about whether the Sanka gets poured in before the water or not. I also learned how to clean a hot dog roller machine with seltzer and a rag.
 
-Anyway, one Saturday before I was headed ton work my brother called and told my father he wanted to speak to me. I took the phone and asked what he wanted. He wanted to talk to me when he came over that afternoon. I pointed out I couldn’t talk to him since I was working and I could hear him start to get angry again. I said I had to leave to go to work, passed the phone back to my father and left.
+Anyway, one Saturday before I was headed to work my brother called and told my father he wanted to speak to me. I took the phone and asked what he wanted. He wanted to talk to me when he came over that afternoon. I pointed out I couldn’t talk to him since I was working and I could hear him start to get angry again. I said I had to leave to go to work, passed the phone back to my father and left.
 
-A few hours into my shift, my brother showed up at the Knish shop. It was weird. I’ve had friends visit me at the place before and they would just come up to the counter or window and say “Hello!”
+A few hours into my shift, without warning, my brother showed up at the Knish shop. It was weird. I’ve had friends visit me at the place before and they would just come up to the counter or window and say “Hello!”
 
 Not my brother.
 
-He came in and sat at the very end of the counter and just stared at me. I walked over to him and asked him what he wanted. There as no hello and no common courtesy. He just sat at the counter not ordering but looking at me.
+He came in and sat at the very end of the counter and just stared at me. I walked over to him and asked him what he wanted. There was no hello and no common courtesy past an odd head nod. He just sat at the counter not ordering but looking at me.
 
-This made me nervous, but he didn’t seem to care. But then one of my co-workers asked what was up and I shrugged. My brother noticed that and without a word stood up and left.
+This made me nervous, but he didn’t seem to care. Then one of my co-workers asked what was up and I shrugged. My brother noticed that and without a word stood up and left.
 
 “Who was that?” my co-worker asked.
 
-“That’s my brother,” I said as I cleaned the counter with a rag and he walked across Coney Island Avenue to—presumably—head back home.
+“That’s my brother,” I said as I cleaned the counter with a rag and watched as he walked across Coney Island Avenue to—presumably—head back home.
 
-I felt like crying at that moment but didn’t. I had no idea how to react to my brother showing up like a creep at the place I worked. Or how to react to my co-workers after they witnessed this bizarre behavior.
+I felt like crying at that moment but didn’t since I was at work. I had no idea how to react to my brother showing up like a stalker at the place I worked. Or how to react to my co-workers after they witnessed this bizarre behavior. So I just went on with my day and—eventually—headed back home.
 
 ***
 
