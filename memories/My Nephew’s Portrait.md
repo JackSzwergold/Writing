@@ -3,11 +3,11 @@
 
 By Jack Szwergold
 
-It was an odd period in the family in the early 1980s: My sister, her husband and children moved back to Brooklyn a few years before. They lived on Ocean Avenue near Neck Road. The apartment was decent, but one day—while walking back home from running errands—my sister saw a splatter of blood on the sidewalk near a payphone on the corner and flipped out. She desperately needed to move.
+It was an odd period in the family in the mid-1980s: My sister, her husband and children moved back to Brooklyn a few years before. They lived on Ocean Avenue near Neck Road. The apartment was decent, but one day—while walking back home from running errands—my sister saw a splatter of blood on the sidewalk near a payphone on the corner and flipped out. She desperately needed to move.
 
 So my father heard about this from her, talked to the superintendent of the building and was able to hook them up with a decent apartment in our building that was just one floor above us.
 
-Despite the close proximity, each family—for the most part—kept it’s distance… And things were seemingly decent and balanced in some ways. I could go out and play with friends in the neighborhood without the incessant meddling and interference my brother his wife was more apt to do. And my sister and her family were not completely up our collective asses all the time telling us how to live.
+Despite the close proximity, each family—for the most part—kept it’s distance… And things were seemingly decent and balanced in some ways. I was a teenager in high school then—and at least with my sister and her husband—I could go and hang out with friends in the neighborhood without the incessant meddling and interference my brother his wife was more apt to do. And my sister and her family were not completely up our collective asses all the time telling us how to live our lives… But that still didn’t mean things were all happy and fun with them… Far from it.
 
 One day I was bored and headed up to my sister’s apartment. Her husband had just come back from jogging and was shirtless and smoking a joint as he propped up my nephew on their couch for a picture he wanted to take.
 
