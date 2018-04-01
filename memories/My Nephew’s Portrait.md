@@ -1,5 +1,5 @@
-## Nephew Being Bullied by His Own Parents with a Dog
-### About the Time My I Watched as My Nephew’s Uncle Put a Barking Akita Inches Away from the Child’s Face and All the Adults Just Laughed
+## My Nephew’s Portrait
+### About the Time I Watched as a Relative Put a Barking Dog Inches Away from My Nephew’s Face and Everyone Just Stood Back and Laughed
 
 By Jack Szwergold
 
@@ -65,4 +65,4 @@ I went to leave the apartment and my sister said I was welcome to come and have 
 
 ***
 
-*Nephew Being Bullied by His Own Parents with a Dog (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*My Nephew’s Portrait (c) Copyright by Jack Szwergold; written on March 31, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
