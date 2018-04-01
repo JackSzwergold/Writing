@@ -1,5 +1,5 @@
-## Being Dragged to See the King
-### About the Time my Brother Got Tickets to See the King Tut Exhibit at the Met and How He Dragged Me Along
+## Being Dragged to See the Pharaoh
+### About the Time my Brother Got Tickets to See the King Tut Exhibition at the Metropolitan Museum of Art in 1979 and How He Violently Dragged Me Along
 
 By Jack Szwergold
 
@@ -127,4 +127,4 @@ Sometimes I have regrets about destroying this family artifact, but at the end o
 
 ***
 
-*Being Dragged to See the King (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Being Dragged to See the Pharaoh (c) Copyright by Jack Szwergold; written on March 31, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
