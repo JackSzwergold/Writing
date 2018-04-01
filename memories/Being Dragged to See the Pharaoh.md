@@ -1,5 +1,5 @@
 ## Being Dragged to See the Pharaoh
-### About the Time my Brother Got Tickets to See the King Tut Exhibition at the Metropolitan Museum of Art in 1979 and How He 
+### About the Time my Brother Got Tickets to See the King Tut Exhibition at the Metropolitan Museum of Art in 1979 and How He
 By Jack Szwergold
 
 My first memory of what happened was my brother showing up on the weekend for a “surprise” unannounced visit like he usually did. To be fair, sometimes he would tell us he would show up, but many times he simply showed up out of nowhere without warning.
@@ -116,13 +116,13 @@ The door was closed and they left. While I wasn’t exactly ready for bed yet, I
 
 ***
 
-**Epilogue**: Later that year at Hanukkah, Karen’s parents gave me an odd gift: A program from the British museum when they went to see the Rosetta stone. Somehow the fact I was dragged to a King Tut exhibit earlier that year meant that somehow I loved that exhibit and thus I would love to have this family artifact.
+**Epilogue**: Later in 1979 during Hanukkah, my brother’s wife’s parents—technically my in-laws though they never allowed me to call them that since I was some weird “born late in life kid”—gave me an odd holiday gift: A program from the British museum when they went to see the Rosetta stone. Somehow the fact I was dragged to a King Tut exhibit earlier that year meant that somehow I loved that exhibit and thus I would love to have this odd family artifact.
 
-The program was old, musty and nicely printed but I never liked it. I had no idea what to do with it. I did not like being dragged to see King Tut and now I did not like having this odd family heirloom passed onto me. Unlike other gifts I could give to others, break or even just throw in the garbage, this gift was extremely loaded. So my whole life I awkwardly carried it around. Not wanting it but burdened to keep it. Who gives a 9 year old kid something like this?
+The program was old, musty and nicely printed but I never liked it and never felt comfortable with it. I had no idea what to do with it. I did not like being dragged to see King Tut and now I did not like having this odd family heirloom passed onto me. Unlike other gifts I could give to others, break or even just throw in the garbage, this gift was extremely loaded. So for years I awkwardly carried it around; not wanting it but seemingly forever burdened to keep it. Who gives a 9 year old kid something like this?
 
-But then in the late 1990s as news about more and more abuse and dysfunction arose in my family—abuse, delusion, born-again Jewish evangelical nonsense—I looked at this thing and decided it was not my burden. It was given to me as a gift for me to do as I pleased when I was 9 years old, and returning it to my brother’s wife»s parents seemed impossible to do without starting more conflict. So I did the only thing I thought I could do: I ripped it to shreds, put it in a tin coffee can and burned it.
+But then in the late-1990s as news about more and more abuse and dysfunction arose in my family—abuse, delusion, born-again Jewish evangelical nonsense—I looked at this thing and decided it was not my burden. It was given to me as a gift for me to do as I pleased with it when I was 9 years old, and returning it to my brother’s wife’s parents seemed impossible to do without starting more conflict and dysfunction. So I did the only thing I thought I could do: I ripped it to shreds, put it in a tin coffee can and burned it.
 
-Sometimes I have regrets about destroying this family artifact, but at the end of the day these people did not respect my family, our lives, our choices or anything. At the end of the day a piece of paper is a piece of paper. Lives are more important.
+Sometimes I have regrets about destroying this family artifact, but at the end of the day, nobody asked me about it, these people did not respect my family, our lives, our choices or anything. At the end of the day a piece of paper is a piece of paper; lives are more important.
 
 ***
 
