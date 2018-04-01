@@ -109,7 +109,7 @@ I could hear my father and Ben fighting on the phone, but soon enough it calmed 
 
 ***
 
-A week later I started my new job. It was filled with all kinds of new challenges. Like needing to wear a clean white t-shirt each day and being careful when making Sanka for some patrons since they were very specific about whether the Sanka gets poured in before the water or not. I also learned how to clean a hot dog roller machine with seltzer and a rag.
+**Epilogue**: A week later I started my new job. It was filled with all kinds of new challenges. Like needing to wear a clean white t-shirt each day and being careful when making Sanka for some patrons since they were very specific about whether the Sanka gets poured in before the water or not. I also learned how to clean a hot dog roller machine with seltzer and a rag.
 
 Anyway, one Saturday before I was headed to work my brother called and told my father he wanted to speak to me. I took the phone and asked what he wanted. He wanted to talk to me when he came over that afternoon. I pointed out I couldn’t talk to him since I was working and I could hear him start to get angry again. I said I had to leave to go to work, passed the phone back to my father and left.
 
