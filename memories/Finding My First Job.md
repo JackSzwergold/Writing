@@ -1,5 +1,5 @@
-## Getting a Job at Columbia University
-### About the Time My Brother “Helped” Me Get My First Job as a Teenager at Columbia University
+## Finding My First Job
+### About the Time My Brother “Helped” Me Get My First Job as a Teenager at Columbia University… And How I Quit It…
 
 By Jack Szwergold
 
@@ -129,4 +129,4 @@ I felt like crying at that moment but didn’t since I was at work. I had no ide
 
 ***
 
-*Getting a Job at Columbia University (c) Copyright by Jack Szwergold; written on December 26, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Finding My First Job (c) Copyright by Jack Szwergold; written on March 31, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

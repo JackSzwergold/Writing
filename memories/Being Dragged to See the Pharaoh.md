@@ -1,6 +1,5 @@
 ## Being Dragged to See the Pharaoh
-### About the Time my Brother Got Tickets to See the King Tut Exhibition at the Metropolitan Museum of Art in 1979 and How He Violently Dragged Me Along
-
+### About the Time my Brother Got Tickets to See the King Tut Exhibition at the Metropolitan Museum of Art in 1979 and How He 
 By Jack Szwergold
 
 My first memory of what happened was my brother showing up on the weekend for a “surprise” unannounced visit like he usually did. To be fair, sometimes he would tell us he would show up, but many times he simply showed up out of nowhere without warning.
@@ -109,7 +108,7 @@ My brother and his wife—who were still in the car—shouted at me to wait, but
 
 “Where’s Ben?” my dad asked as I took off my jacket. “I don’t know…” I said as I headed to my room.
 
-I turned on the TV, closed the door and settled in. I finally felt comfortable. 
+I turned on the TV, closed the door and settled in. I finally felt comfortable.
 
 My brother and his wife came upstairs and—for a brief, stressful moment—there was a little fight. I could feel my brain clench a bit but then my father knocked at the door and said “Ben and Karen want to say goodbye…” They both peeked their heads into my room and said goodbye. So I said goodbye to them.
 
