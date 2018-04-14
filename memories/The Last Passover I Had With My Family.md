@@ -51,7 +51,7 @@ After a few minutes things started to calm down. His hands were still on her, bu
 
 I walked deeper into the living room and saw the menagerie of supposed “friends” from Temple my sister had. They all sat there motionless like a bunch of brainless cows standing in a field. Not one of them stood up and said or did anything throughout this incident. Not when it started or even now when it ended. They sat their patiently, submissively and obediently all the while; not even asking me how I was doing or even moving an inch to comfort my niece who was still crying on the couch. 
 
-I looked at them, turned my head, found a seat and sat down to wait… To wait for my nephew to finally show up so we could all—as a “family”—celebrate the magic of Passover.
+I looked at them all, turned my head, found a seat and sat down to wait… To wait for my nephew to finally show up so we could all—as a “family”—celebrate the magic of Passover.
 
 Some short time later—after dust had settled—the bell rang and there was my nephew. He was there apologizing and making nice to everyone. The events that just transpired were washed away and the “magic” of this kid showing up changed everyone’s tune.
 
