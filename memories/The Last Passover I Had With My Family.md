@@ -11,7 +11,7 @@ While my parents were Jewish, the home my parents raised me in was secular. My p
 
 In contrast, as my siblings grew older they all started to take their belief in Judaism to deeper and deeper extremes. For example, while our family never really observed Passover, my siblings saw it as some deep obligation to force a “real” Passover experience down the collective throats of our whole immediate family.
 
-Which is all to say: While I saw Passover as simply a unique holiday where Jews got together to meet and greet each other, my siblings took it more seriously than anyone else I knew.
+Which is all to say: While I saw Passover as simply a unique holiday where Jews got together to simply get together—such as a Jewish version of Thanksgiving and such—my brother and sister took it far more seriously than anyone else I knew.
 
 I attended these events not because I too believed in Elijah the Prophet showing up or some nonsense like that, but rather because both of my siblings families have dealt with divorce and abuse over the years so I saw my attendance as something that could add a layer of normalcy to the family’s lives. Especially my nephews and nieces who—despite their obvious lack of deep faith themselves—seemed to need some stability in the midst of familial chaos they were born into.
 
