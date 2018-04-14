@@ -13,9 +13,7 @@ In contrast, as my siblings grew older they all started to take their belief in 
 
 Which is all to say: While I saw Passover as simply a unique holiday where Jews got together to simply get together—such as a Jewish version of Thanksgiving and such—my brother and sister took it far more seriously than anyone else I knew.
 
-So I attended these events way past childhood not because I somehow believed the magical spirit of Elijah the Prophet would show up to drink some goblet of wine set on the table for him or some bullshit lke that
-
- up or some nonsense like that, but rather because both of my siblings families have dealt with divorce and abuse over the years so I saw my attendance as something that could add a layer of normalcy to the family’s lives.
+So I attended these events way past my childhood obligation not because I somehow believed the magical spirit of Elijah the Prophet would show up to drink a goblet of wine set on the table for him or some bullshit lke that. I attended because both of my siblings families have dealt with a lot of sad and violent dysfunction over the years—divorce as well as physical and psychological abuse—so I saw my attendance as something that I could do to add a layer of normalcy to the immediate family’s lives.
 
 
 Especially my nephews and nieces who—despite their obvious lack of deep faith themselves—seemed to need some stability in the midst of familial chaos they were born into.
