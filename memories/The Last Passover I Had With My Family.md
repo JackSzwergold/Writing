@@ -15,11 +15,9 @@ Which is all to say: While I saw Passover as simply a unique holiday where Jews 
 
 So I attended these events—way past my childhood obligation—not because I somehow believed the magical spirit of Elijah the Prophet would show up to drink a goblet of wine set on the table for him or some bullshit lke that. I attended because both of my siblings families have dealt with a lot of sad and violent dysfunction over the years—divorce as well as physical and psychological abuse—so I saw my attendance as something that I could do to add a layer of normalcy to the immediate family’s lives. A layer of normalcy that I especially hoped would help my nephews and nieces who—despite their obvious lack of deep religous faith themselves—seemed to need some stability in the midst of familial chaos and bullshit they were born into.
 
+Anyway, the year was 2005 or 2006. I was prepared as much as I could to participate in my sister’s Passover seder. I showed up as I always did and met the family that was there as well as the small group of friends my sister had at her local Temple.
 
-
-Anyway, the year was 2005 of 2006. I was prepared to participate in my sister’s Passover seder. I showed up as I always did and met the family that was there as well as the small group of friends my sister had at her Temple.
-
-As usual, we waited for my brother and his kids to show up. This was fairly typical: My brother and his kids would show up whenever they wanted and barely apologized for any screwups their lateness caused. “Don’t sweat the small stuff,” my brother would always say, “And it’s all the small stuff.” 
+As usual, we waited for my brother and his kids to show up. This was fairly typical: My brother and his kids would show up whenever they wanted to despite set times and when they showed up they barely apologized for any difficulties or frustrations their lateness caused. “Don’t sweat the small stuff! And it’s all the small stuff.” my brother would always shout. And we all nodded poiltely and tolerated it because there was not much we could do to change it.
 
 When my brother showed up he showed up with my niece—who seemed not into the idea of attending this event at all—but nowhere in sight was his son, my nephew.
 
