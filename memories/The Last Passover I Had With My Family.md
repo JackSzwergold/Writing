@@ -1,11 +1,7 @@
 ## The Last Passover I Had With My Family
-### About the Last Passover I Ever Observed With My Siblings
+### About the Last Passover I Ever Attened With My Brother and Sister
 
 By Jack Szwergold
-
-**QUICK NOTES**: About the last Passover I had at my sister’s home in Bensonhurst. It was 2005 or 2006. My nephew didn’t show up, my sister complained, my brother shouted at her and shoved her against a wall. I saw my niece curled up in a fetal position on a couch. My nephew shows up and like robots, everyone did “Passover.”
-
-***
 
 While my parents were Jewish, the home my parents raised me in was secular. My parents weren’t in denial of our Jewish background, but rather simply aware of the basics and not much else. To his literal death my father would say that religion was “bullshit” and would often ascribe what he defined as “bullshit” to the way God treated the Jewish people during the Holocaust. If there is a God, why would he/she/it ever allow such a tragedy to happen? As a child I often wondered if my parents were somehow faithful before World War II and then suddenly dropped their religion after the war. But as an adult whose learned some more about my own family’s history over the years, I’ve grown to realize there’s no history of religious faith or deep belief in my family past the usual, “This is our community and this is what we do…” mentality. My family is historically secular.
 
@@ -57,12 +53,19 @@ Some short time later—after dust had settled and everyone was a bit more compo
 
 He was apologizing so much that at some point—when he was out of range of my brother—I went over to him and said, “Just sit down and let’s have a meal…”
 
-So as the Seder began, we all read from the Haggadah. We all took turns to read one paragraph like we always did, but when it came to my nephew he read a second paragraph… And then a third… As each obvious paragraph break happened I attempted to speak up and say he should allow others to read, but my brother and sister shushed me. My sister’s dullard friend said nothing; but that isn’t fair to them… The reality is nobody said anything. And I just accepted the reality of the situation and went along with it.
+So as the Seder began, we all read from the Haggadah. The basic tradition was we all took turns to read one paragraph and then let someone else read. But when it came time for my nephew to read he just didn’t stop. First he read one paragraph, then he read a second paragraph… And then a third… It didn’t stop. This was socially awkward and selfish.
 
-Soon enough we were actually eating a meal. But as I ate I looked around and saw abusers, the abused and people who sat back and said nothing. While other Seders had given me headaches in the past, the feeling of death and “Why am I wasting my life?” washed over me.
+As each obvious paragraph break happened I attempted to speak up to say he should allow others to read, but my brother and sister continually shushed me and shut me down. My sister’s friends from the Temple said nothing; but that isn’t fair to them… The reality is nobody said anything. And I just accepted the reality of the situation and went along with it.
 
-When I left my sister insisted I take home some food from the Seder despite my protests that I didn’t want anything. When I got home, I took off my jacket, lifted up the toilet cover and just flushed the food she gave me down the toilet.
+Soon enough, the annual amatuer Biblical bullshit recital known as the reading of the Haggadah ended and we were actually eating a Passover meal of some sort. Everyone was focused on the food in front of them, but as I ate I looked around and saw nothing much else other than abusers, the abused and the people who sat back and said and did nothing while abuse happened.
+
+While other Seders my brother and sister dragged me to in the past had given me headaches, the feeling of emptinessm, dread, death and a general feeling of “Why am I wasting my life?” washed over me.
+
+“Never again,” might have been the two word rallying cry Jews all over would would repeatedly say in reference to the Holocaust, but in my mind—after seeing what happened to my family during this specific Passover—“Never again,” was my own personal rallying cry to finally remove myself from this specific cycle of violence and dysfunction in my own family.
+
+When I left my sister insisted I take home some leftover food from the Seder despite my very clearly stating that I didn’t want anything. So I rode the subway home to my apartment with a few containers of food I did not want. And when I finally got back to my home, I took off my jacket, went to the bathroom, lifted up the toilet seat and just flushed the food she gave me straight down the toilet.
+
 
 ***
 
-*The Last Passover I Had With My Family (c) Copyright by Jack Szwergold; written on December 30, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*The Last Passover I Had With My Family (c) Copyright by Jack Szwergold; written on April 14, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
