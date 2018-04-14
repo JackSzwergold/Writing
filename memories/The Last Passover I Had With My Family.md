@@ -53,7 +53,7 @@ I walked deeper into the living room and saw the menagerie of supposed “friend
 
 I looked at them all, turned my head, found a seat and sat down to wait… To wait for my nephew to finally show up so we could all—as a “family”—celebrate the magic of Passover.
 
-Some short time later—after dust had settled—the bell rang and there was my nephew. He was there apologizing and making nice to everyone. The events that just transpired were washed away and the “magic” of this kid showing up changed everyone’s tune.
+Some short time later—after dust had settled and everyone was a bit more composed—the front door buzzer rang and there was my nephew. He was was immediately apologizing and putting on a charm offenseive to make nice to everyone. It all seemed fake, self-serving and heartless but at least we could start the Passover seder as if nothing had happened, right?
 
 He really went out of his way to apologize for his actions; so much so I even told him, “Just sit down and let’s have a meal…”
 
