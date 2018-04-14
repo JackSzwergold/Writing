@@ -29,7 +29,7 @@ We all waited some more. So much so that sundown had already passed and—techni
 
 Everyone was clearly antsy, but nobody wanted to start the Seder without my nephew. And given his response to my simple question, even less people dared to ask yet again, “Where is he?”
 
-My brother got on the phone with my nephew and it turned out he forgot today was the Seder at all. He was still at home in Prospect Heights after spending some of the day at his grandmother’s home.
+But then my brother got on the phone with my nephew and it turned out he forgot today was the Seder at all. He was still at home in Prospect Heights after spending some of the day at his grandmother’s home completely oblivious to the family he had just blown off.
 
 We found this all out after my brother hung up the phone and told us all about it adding a “This is no big deal!” to the end of the explanation. Easily 8-9 people were sitting there waiting for the Seder to start but it was supposedly “No big deal!” that his son had forgotten it was happening and was leaving us in a lurch.
 
