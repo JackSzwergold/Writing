@@ -19,11 +19,11 @@ Anyway, the year was 2005 or 2006. I was prepared as much as I could to particip
 
 As usual, we waited for my brother and his kids to show up. This was fairly typical: My brother and his kids would show up whenever they wanted to despite set times and when they showed up they barely apologized for any difficulties or frustrations their lateness caused. “Don’t sweat the small stuff! And it’s all the small stuff.” my brother would always shout. And we all nodded poiltely and tolerated it because there was not much we could do to change it.
 
-When my brother showed up he showed up with my niece—who seemed not into the idea of attending this event at all—but nowhere in sight was his son, my nephew.
+So when my brother finally showed up, he showed up with my niece, who seemed not into the idea of attending this event at all. But there was no sign of his son; my nephew.
 
-This seemed odd at the moment. My nephew had just moved to Brooklyn a year or so prior and was going to college here. He lived in Prospect Heights. While he had to get to my sister’s place on his own, there’s little to no reason he had to be late.
+This seemed odd at the moment. My nephew lived in Brooklyn—in Prospect Heights—while he went to school in Manhattan. So while it was his job to get to my sister’s home on his own, there was little to no reason he had to be late like this at all.
 
-“Where is he?” I calmly asked my brother, to which he shouted, “I don’t know!” which was a warning sign already.
+“Where is he?” I calmly asked my brother, to which he shouted, “I don’t know!!!” which was a warning sign already.
 
 We waited some more. Sundown had already passed. Everyone was antsy, but nobody wanted to start the Seder without my nephew and even less people dared to ask yet again, “Where is he?”
 
