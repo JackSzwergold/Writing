@@ -31,11 +31,11 @@ Everyone was clearly antsy, but nobody wanted to start the Seder without my neph
 
 But then my brother got on the phone with my nephew and it turned out he forgot today was the Seder at all. He was still at home in Prospect Heights after spending some of the day at his grandmother’s home completely oblivious to the family he had just blown off.
 
-We found this all out after my brother hung up the phone and told us all about it adding a “This is no big deal!” to the end of the explanation. Easily 8-9 people were sitting there waiting for the Seder to start but it was supposedly “No big deal!” that his son had forgotten it was happening and was leaving us in a lurch.
+We all found out about this after my brother hung up the phone and told us all adding a “This is no big deal!!!” to the end of the explanation to premptively shut us all up. There were 8 to 9 people sitting there, doing nothing, waiting for the Seder to start but it was supposedly “No big deal!!!” that his son had forgotten about it.
 
-Suddenly something odd happened. My sister spoke up and said something to the effect of “If this was his grandmother’s Seder and any of us were late, we would be getting grief!”
+Then, in the middle of the awkward silence something odd happened. My sister, who never really spoke up about anything, suddenly spoke up and said something to the effect of “If this was his grandmother’s Seder and any of us were late, we would be getting grief!”
 
-My sister never spoke up. When she was a in a crappy abusive relationship with her ex—and now dead—husband she said nothing. When her own brother turned a blind eye to the abuse she endured at her ex-husband she said nothing. She was practically a human doormat when it came to power and men in her life who treated her like crap and never spoke up… But today was amazing! She finally spoke up!
+Like I said, my sister never really spoke up so this was all shocking and amazing. When she was a in a shitty abusive relationship with her ex—and now dead—husband she said utterly nothing. When her own brother turned a blind eye to the abuse she endured at the hands of her ex-husband she said nothing. She was practically a human doormat when it came to people in power in her life who treated her like crap and truly never spoke up… But today was amazing! She finally spoke up! This was truly a Passover miracle!
 
 I was thrilled for a second or two… And that quickly passed into being terrified as my brother—like a bulldog—rushed at her, grabbed her by the shoulders and shoved her against the wall. “Don’t talk about my son this way!” he screamed as he pushed her against the wall.
 
