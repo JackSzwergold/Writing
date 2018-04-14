@@ -23,9 +23,11 @@ So when my brother finally showed up, he showed up with my niece, who seemed not
 
 This seemed odd at the moment. My nephew lived in Brooklyn—in Prospect Heights—while he went to school in Manhattan. So while it was his job to get to my sister’s home on his own, there was little to no reason he had to be late like this at all.
 
-“Where is he?” I calmly asked my brother, to which he shouted, “I don’t know!!!” which was a warning sign already.
+“Where is he?” I calmly asked my brother, to which he shouted, “I don’t know!!!” which was a warning of things to come; my brother was getting revved up at the idea of anyone questioning anyone in his direct family for any reason.
 
-We waited some more. Sundown had already passed. Everyone was antsy, but nobody wanted to start the Seder without my nephew and even less people dared to ask yet again, “Where is he?”
+We all waited some more. So much so that sundown had already passed and—technically—we were late for the start of Passover.
+
+Everyone was clearly antsy, but nobody wanted to start the Seder without my nephew. And given his response to my simple question, even less people dared to ask yet again, “Where is he?”
 
 My brother got on the phone with my nephew and it turned out he forgot today was the Seder at all. He was still at home in Prospect Heights after spending some of the day at his grandmother’s home.
 
