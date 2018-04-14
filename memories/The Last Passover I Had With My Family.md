@@ -43,13 +43,13 @@ I ran out into the hallway to see what was happening and he immediately shouted 
 
 Despite his threats, I walked towards him and said, “Leave her alone! She said the right thing! Why do we have to wait for your family all the time?” He turned to me and started barking again. I walked past him, walked into the kitchen and stood near the phone.
 
-As I looked at him holding her against the wall, I looked over at the phone and did not know what to do. My arms were crossed, my fists were clenched and my brain felt like it was about to explode. If I called the police, what would happen? My brother and sister are masochists; it would end up being my word against theirs because my sister would not fight back and would pretty much claim nothing happened.
+As I looked at him holding her against the wall, I looked over at the phone and did not know what to do. My arms were crossed, my fists were clenched and my brain felt like it was about to explode. If I called the police, what would happen? My brother and sister are masochists; it would end up being my word against theirs because my sister would not fight back and would pretty much claim nothing happened. Her friends in attendance would not speak up at all for similar reasons; when power speaks reality takes a back seat.
 
-The I turned and looked at all the the stuff near the sink and saw a huge kitchen knife; maybe if I stabbed him he would stop? But then again, what would happen.
+Then I turned and looked at all the the stuff near the sink and saw a huge kitchen knife; maybe if I stabbed him he would stop? But then again, what would have happened? I would have stabbed my own brother, my sister would most likely blacked out the whole incident and claim she has no idea what would have happened as well. If I stabbed him I might have gone to jail for assault despite the fact I did so to defend my own family because “That’s just the way it is…”
 
-I would have stabbed my own brother, my sister would most likely black out of the whole incident and claim she has no idea what would have happened. If I did that I might have gone to jail for defending my own family from abuse because “That’s just the way it is…”
+After a few minutes things started to calm down. His hands were still on her, but at least was calm enought that I could walk past them and back to the living room. There I saw my niece curled up in a fetal position on the couch. I asked her if she was okay and she lifted her head: While she nodded her head to indicate she was okay, it was prety clear from the glistening of tears and redness in her cheeks she was anything but okay.
 
-As things calmed down, I walked past them and back to the living room. There I saw my niece curled up in a fetal position on the couch. I asked her if she was okay. She lifted her head and you could see the glistening of tears and redness in her cheeks as she nodded that she was okay when she clearly wasn’t.
+
 
 I looked into the living room and saw the menagerie of “friends” my sister had. They sat their motionless like a bunch of dullards. Not one of them stood up and said or did anything throughout this incident. Not when it started nor now when it ended. They sat their patiently and obediently—not even asking me how I was doing or coming to comfort my niece—as violence occurred a room away from them.
 
