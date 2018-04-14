@@ -55,7 +55,7 @@ I looked at them all, turned my head, found a seat and sat down to wait… To wa
 
 Some short time later—after dust had settled and everyone was a bit more composed—the front door buzzer rang and there was my nephew. He was was immediately apologizing and putting on a charm offenseive to make nice to everyone. It all seemed fake, self-serving and heartless but at least we could start the Passover seder as if nothing had happened, right?
 
-He really went out of his way to apologize for his actions; so much so I even told him, “Just sit down and let’s have a meal…”
+He was apologizing so much that at some point—when he was out of range of my brother—I went over to him and said, “Just sit down and let’s have a meal…”
 
 So as the Seder began, we all read from the Haggadah. We all took turns to read one paragraph like we always did, but when it came to my nephew he read a second paragraph… And then a third… As each obvious paragraph break happened I attempted to speak up and say he should allow others to read, but my brother and sister shushed me. My sister’s dullard friend said nothing; but that isn’t fair to them… The reality is nobody said anything. And I just accepted the reality of the situation and went along with it.
 
