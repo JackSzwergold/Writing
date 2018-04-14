@@ -37,15 +37,17 @@ Then, in the middle of the awkward silence something odd happened. My sister, wh
 
 Like I said, my sister never really spoke up so this was all shocking and amazing. When she was a in a shitty abusive relationship with her ex—and now dead—husband she said utterly nothing. When her own brother turned a blind eye to the abuse she endured at the hands of her ex-husband she said nothing. She was practically a human doormat when it came to people in power in her life who treated her like crap and truly never spoke up… But today was amazing! She finally spoke up! This was truly a Passover miracle!
 
-I was thrilled for a second or two… And that quickly passed into being terrified as my brother—like a bulldog—rushed at her, grabbed her by the shoulders and shoved her against the wall. “Don’t talk about my son this way!” he screamed as he pushed her against the wall.
+I was thrilled for a second or two… But that thrill quickly turned into terror as my brother—like a mad animal—instantly rushed at her, grabbed her by the shoulders and shoved her against the wall. “Don’t talk about my son this way!” he screamed as he pushed her against the wall. “Don’t lie!” he added.
 
-I ran out to see what was happening and he immediately barked at me, “Stay out of this!!!” as his hands grasped my sister’s shoulders and she stood there, lifeless like a rag doll.
+I ran out into the hallway to see what was happening and he immediately shouted at me, “Stay out of this!!!” His hands were clenched on my sister’s shoulders as she stood there silent and lifeless; like a rag doll.
 
-I still walked towards him and said, “Leave her alone! She said the right thing! Why do we have to wait for your family all the time?” He turned to me and started barking again. I walked past him and stood near the phone.
+Despite his threats, I walked towards him and said, “Leave her alone! She said the right thing! Why do we have to wait for your family all the time?” He turned to me and started barking again. I walked past him, walked into the kitchen and stood near the phone.
 
-I looked at him holding her, looked at the phone and did not know what to do. My arms were crossed and my brain was about to explode. If I called the police, what would happen? My brother and sister are masochists; it would end up being my word against theirs because my sister would not fight back.
+As I looked at him holding her against the wall, I looked over at the phone and did not know what to do. My arms were crossed, my fists were clenched and my brain felt like it was about to explode. If I called the police, what would happen? My brother and sister are masochists; it would end up being my word against theirs because my sister would not fight back and would pretty much claim nothing happened.
 
-I looked at the stuff near the sink and saw a huge kitchen knife; maybe I could stab him and he would stop? But then again, what would happened. I would have stabbed my own brother, my sister would most likely black out of the whole incident and claim she has no idea what would have happened. If I did that I might have gone to jail for defending my own family from abuse because “That’s just the way it is…”
+The I turned and looked at all the the stuff near the sink and saw a huge kitchen knife; maybe if I stabbed him he would stop? But then again, what would happen.
+
+I would have stabbed my own brother, my sister would most likely black out of the whole incident and claim she has no idea what would have happened. If I did that I might have gone to jail for defending my own family from abuse because “That’s just the way it is…”
 
 As things calmed down, I walked past them and back to the living room. There I saw my niece curled up in a fetal position on the couch. I asked her if she was okay. She lifted her head and you could see the glistening of tears and redness in her cheeks as she nodded that she was okay when she clearly wasn’t.
 
