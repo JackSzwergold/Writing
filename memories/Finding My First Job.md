@@ -15,9 +15,9 @@ The fighting persisted for some time until it stopped. I knew something was up s
 
 Then I heard a knock on my door.
 
-It was my dad who peeked into my room and said, “I don’t know… Working at mom’s factory might not be a good idea… Ben knows…” and then he went away.
+It was my dad who peeked into my room and said, “I don’t know… Working at mom’s factory might not be a good idea… Your brother knows…” and then he went away.
 
-Soon afterwards Ben came into my room and sat down on the floor in front of me and calmly said, “If you want a job I have a very good job for you at Columbia University.”
+Soon afterwards my brother came into my room and sat down on the floor in front of me and calmly said, “If you want a job I have a very good job for you at Columbia University.”
 
 “Really?” I said, “Doing what?” I asked.
 
@@ -51,7 +51,7 @@ In between that bullshit I did things like use pipettes to fill things or use th
 
 Needless to say, this “job” was horrible. But at least he paid. How much, I don’t remember, but I remember at the end of each day he would pull some money out of his pocket and give it to me. It felt less like a job and more like he was paying me to be his friend; which in retrospect is really all the “job” was.
 
-I went along with this for a few weeks. The thing is he was able to buy my friendship since I was young, naive and stupid and I did want the money. But then—at some point—our father got wind of what Ben was doing and was angry. He said I should not take Ben’s money… He would just give me whatever money I needed.
+I went along with this for a few weeks. The thing is he was able to buy my friendship since I was young, naive and stupid and I did want the money. But then—at some point—our father got wind of what my brother was doing and was angry. He said I should not take his money… He would just give me whatever money I needed.
 
 Superficially this seemed great financially, but it was horrible otherwise: My dysfunctional brother wants to literally buy my friendship and my father is threatened by my brother’s behavior and this is not a “job” I wanted and I did not know what to do.
 
@@ -101,11 +101,11 @@ What a relief! I finally landed my first job on my own.
 
 When I got home again that night my father was on the phone with my brother as I walked in the door. I’m not too sure my brother told our father the full story, but he seemed to know something was up.
 
-“Jack!” he said. “Ben is on the phone!” he added as he passed the phone to me.
+“Jack!” he said. “Your brother is on the phone!” he added as he passed the phone to me.
 
-I grabbed the phone and Ben asked, “How are you doing? What happened?” to which I replied, “I don’t want to work for you anymore. I have a new job.” and as I said that I could hear his breathing get more intense and his tone and anger growing. “What do you mean?!?” he said to which I said, “I have a new job! Goodbye!” and with that I passed the phone back to my dad, ran to my room and collapsed on the sofa.
+I grabbed the phone and my brother asked, “How are you doing? What happened?” to which I replied, “I don’t want to work for you anymore. I have a new job.” and as I said that I could hear his breathing get more intense and his tone and anger growing. “What do you mean?!?” he said to which I said, “I have a new job! Goodbye!” and with that I passed the phone back to my dad, ran to my room and collapsed on the sofa.
 
-I could hear my father and Ben fighting on the phone, but soon enough it calmed down. My father came to my room and asked me if I was hungry. I said I was okay, and with that I got ready to sleep.
+I could hear my father and my brother fighting on the phone, but soon enough it calmed down. My father came to my room and asked me if I was hungry. I said I was okay, and with that I got ready to sleep.
 
 ***
 

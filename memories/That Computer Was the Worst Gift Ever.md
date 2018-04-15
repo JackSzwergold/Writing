@@ -7,6 +7,8 @@ By Jack Szwergold
 
 ***
 
+#### Part 1
+
 It was 1980. I was 12 years old. Just headed to Junior High School and boy, was I obsessed with video games. *Space Invaders*, *GORF* and *Bite Monster* were my favorites because they were the only games I had access to in crappy Brighton Beach.
 
 Never heard of *Bite Monster*? Don’t worry… Most people didn’t. *Bite Monster* was the name of some German *Pac-Man* bootleg the local candy store—“40 Thieves”—had. I really liked playing *Bite-Monster*.
@@ -83,7 +85,7 @@ I played these games and enjoyed them, but something felted wrong. While I techn
 
 At that age I didn’t want a computer. I just wanted to play video games. Who else in my neighborhood had a computer? We were all poor.
 
-***
+#### Part 2
 
 Weeks would pass and slowly some of my friends would end up getting computers. In retrospect, Atari was making a big “educational” push so these so-called “computers” were being marketed as a smarter alternative to video games to people. And some of those people were friends of mine.
 
@@ -99,7 +101,7 @@ One game caught my eye: It was called “Baja Buggy.” It basically was an inde
 
 I wanted it, but it cost $29.99. Which was way out of the price-range of my allowance and limited savings at the time. So I looked at the package and tried to figure out how I could afford it.
 
-***
+#### Part 3
 
 The next week my dad wanted to head to “The City” and asked me where I wanted to go. “The Computer Center!” I said. “But we were just there last week? Why again?” he responded. “Because I want to,” I replied. So we made some compromise to check out the deals at Gimbel’s and Macy’s in Herald Square and then go to “The Computer Center” when we had time.
 
