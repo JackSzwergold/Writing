@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-It was 1980, I was 12 years old, and old enough to head off into Junior High School and boy oh boy, was I obsessed with video games. *Space Invaders*, *GORF* and *Bite Monster* were my favorites because they were the only video games I had access to in the scratch and dent storefronts in Brighton Beach.
+It was 1980, I was 12 years old going on 13, and old enough to head off into Junior High School and boy oh boy, was I obsessed with video games. *Space Invaders*, *GORF* and *Bite Monster* were my favorites because they were the only video games I had access to in the scratch and dent storefronts in Brighton Beach.
 
 Never heard of *Bite Monster*? Don’t worry… Most people didn’t. *Bite Monster* was the name of some bootleg German version of *Pac-Man* the local candy store—“40 Thieves”—had. And I really liked playing *Bite-Monster*.
 
@@ -15,13 +15,13 @@ A video game’s scope—on the other hand—was essentially limitless since the
 
 A game like *Pac-Man* could not exist in any other medium.
 
-Anyway, I loved video games and was obsessed with having a video game system at home. And at the time the premier video game system was the classic Atari 2600. Clunky graphics aside, Atari games were fun since—while they might have not had the rich graphics and details of their arcade counterparts—they were far and away more interesting to play and look at than some of the TV game systems at the time.
+Anyway, I loved video games and was obsessed with having a video game system at home. And at the time the premier video game system was the classic Atari 2600. Clunky graphics aside, Atari games were fun since—while they might have not had the rich graphics and details of their arcade counterparts—they were far and away more interesting to play and look at than some of the TV game systems at the time. “TV game” systems at the time only let you play games such as “skeet shoot” or some crappy version of pong or something and not much else.
 
- that let you play games such as skeet shoot or crappy shooting gallery.
 
-Anyway, in 1980 I was 12 years old going on 13 and for a Jewish kid that meant a Bar Mitzvah. I was never religious, but went to Hebrew school at the time and learned the most important thing a Jewish kid could learn about the occasion: Relatives will come out of nowhere to toss tons of cash and expensive gifts at you.
 
-I was a delusional kid at the time. Despite the fact my parents were poor and my extended family treated my family—and me—like utter shit, I had some great fantasy that somehow on this wonderful day, all differences would be put aside. Somehow respect and love would be finally be bestowed on me and my family by that time honored tradition of giving somebody and expensive gift or piles of cash.
+Anyway, it was 1980, I was 12 years old going on 13, and old enough to head off into Junior High School. And for a Jewish kid that meant a Bar Mitzvah. My family was never religious or faithful—and neither was I—but I went to afternoon Hebrew school at the time since everyone did. And through that limited education I learned the most important thing a Jewish kid could learn about their Bar Mitzvah: Chances were good that family members and others might potentially come out of nowhere to toss gifts of cash and expensive gifts at you for no other reason than you were somehow a “man” at the age of 13.
+
+Like most kids on the edge of adolescence, I was a naive and delusional. This was despite the fact that it was obvious my parents were unquestionaly poor and my extended family treated my family—and me—like utter garbage. Yet depsite all of that, I had some grand fantasy that somehow on the wonderful occassion of my 13th birthday, all of those differences would somehow be put aside and somehow my extended family would find it in their hearts to bestow that time honored tradition of giving a 13 year old kid expensive gifts or piles of cash.
 
 So as the date approached I started to flip through the Sunday newspaper advertisements with intent and purpose: May’s, Topp’s, Macy’s, A&S and Korvette’s… Which of these low-brow to mid-brow discount chains would give me the best deal—and most convincing economic argument—that I could use to persuade the adults in my life to toss their well intentioned Bar Mitzvah cash towards so I could finally play video games at home.
 
