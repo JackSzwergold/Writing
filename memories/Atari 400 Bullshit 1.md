@@ -71,15 +71,15 @@ I wasn’t exactly dejected; I mean programming your own games is fine but I gue
 
 He took the cassette tape, stuck it into an odd looking Atari 410 tape deck that sat next to the computer and loaded it. For seemingly an eternity there was a blank blue screen on the TV set with the steady drone of a beep coming through the speaker. How thrilling.
 
-Soon enough the words “Space Invaders” showed up on the screen. But what I was looking at did not look like the “Space Invaders” I remembered from “40 Thieves” looked like. I grabbed. joystick and played. It was fun, but different.
+Soon enough the words “Space Invaders” showed up on the screen. But what I was looking at did not look like the “Space Invaders” arcade game I played at “40 Thieves.” Regardless, I grabbed a joystick and played. It was fun, but different.
 
-Next up was *Star Raiders* which was something else. It was a first person start fighter simulator and while it took some reading to understand how it worked, it was a fun game.
+Next up was *Star Raiders* which was something else. It was a first person start fighter simulator and while it took some reading and learning to understand how it worked, it was a fun first person perspective space game.
 
 “And you know, when we finally get you the BASIC cartridge, you can make your own games,” my brother said.
 
-I played these games and enjoyed them, but something felted wrong. While I technically enjoyed the games, it still felt weird I would own something like this.
+I played these games and enjoyed them, but something felt wrong. While I technically enjoyed the games, it still felt weird I would own something like this.
 
-At that age I didn’t want a computer. I just wanted to play video games. Who else in my neighborhood had a computer? We were all poor.
+At that age I didn’t want a computer. I just wanted to play video games. Who else in my neighborhood had a computer? We were all poor. This was all odd.
 
 ***
 
