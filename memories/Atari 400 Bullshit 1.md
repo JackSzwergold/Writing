@@ -61,15 +61,15 @@ After the somewhat awkward ceremony at the Synagogue on Brighton 4th Stree, we h
 
 So after accepting cards and kisses on the cheek from relatives, I started to rip those boxes open. Soon enough I saw the word “Atari” on the side of silver box. I removed more wrapping and saw it right in front of me: “Atari 400 Personal Computer.” What?
 
-As I looked around the box, some relatives gasped and started to gab and my brother focused on explaining what the computer was.
+As I looked at the box and read the writing on it, some relatives gasped and started to gab and my brother focused on explaining what the computer was.
 
-“This is better than a video game system!” he said. “You can make your own games!” he added.
+“This is better than a video game system!” he said. “With this you can make your own games!” he added.
 
-I wasn’t exactly dejected; I mean programming your own games is fine but I guess I need to play some games to begin with.
+I wasn’t exactly dejected; I mean programming your own games is fine but I guess I need to play some games to begin with. Espcially since I had no idea how to program anything at the time.
 
-“Are there any games?” I bluntly asked, and then and there my brother revealed a small pile of software. “Star Raiders” and “Life” and an audio cassette that said “Space Invaders” on it. I didn’t understand how that tape worked so my brother showed me.
+“Are there any games?” I bluntly asked, and then and there my brother revealed a small pile of software. “Star Raiders” and “Life” and a small cassette tape that said “Space Invaders” on it. I didn’t understand how that tape worked so my brother showed me.
 
-He took the cassette tape, stuck it into an odd looking tape deck that sat next to the computer and loaded it. For seemingly an eternity there was a blank blue screen on the TV set with the steady drone of a beep coming through a speaker.
+He took the cassette tape, stuck it into an odd looking Atari 410 tape deck that sat next to the computer and loaded it. For seemingly an eternity there was a blank blue screen on the TV set with the steady drone of a beep coming through the speaker. How thrilling.
 
 Soon enough the words “Space Invaders” showed up on the screen. But what I was looking at did not look like the “Space Invaders” I remembered from “40 Thieves” looked like. I grabbed. joystick and played. It was fun, but different.
 
