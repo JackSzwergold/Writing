@@ -11,13 +11,13 @@ Anyway, I was really into video games at the time. But I also loved going to the
 
 The playing field on an electromagnetic game was just what you saw in front of you. It as basically like you were playing some game in a tiny diorama. Oh, sometimes it was cool and fun in it’s own kitschy way, but each game only had limited, physical world appeal.
 
-A video game—on the other hand—was potentially limitless since the playing field of a video game was just this flat digital canvas filled withbpixels. And that grid of abstract pixels 
+A video game’s scope—on the other hand—was essentially limitless since the playing field of a video game was just this flat digital canvas filled with pixels. And that grid of pixels could be tweaked, twisted and controlled to create tons of different worlds, fantasies and realms.
 
-on the screen flashed and could recreate tons of different worlds, fantasies and realms.
+A game like *Pac-Man* could not exist in any other medium.
 
-One could not play *Pac-Man* in another medium.
+Anyway, I loved video games and was obsessed with having a video game system at home. And at the time the premier video game system was the classic Atari 2600. Clunky graphics aside, Atari games were fun since—while they might have not had the rich graphics and details of their arcade counterparts—they were far and away more interesting to play and look at than some of the TV game systems at the time.
 
-Anyway, I loved video games and I longed to have a video game system at home. And at the time the premier video game system was the classic Atari 2600. Clunky graphics aside, Atari games were fun since—while they might have not had the graphics and details of their arcade counterparts—they were far and away more interesting to play and look at than some of the TV game systems at the time that let you play games such as skeet shoot or crappy shooting gallery.
+ that let you play games such as skeet shoot or crappy shooting gallery.
 
 Anyway, in 1980 I was 12 years old going on 13 and for a Jewish kid that meant a Bar Mitzvah. I was never religious, but went to Hebrew school at the time and learned the most important thing a Jewish kid could learn about the occasion: Relatives will come out of nowhere to toss tons of cash and expensive gifts at you.
 
