@@ -3,15 +3,17 @@
 
 By Jack Szwergold
 
-It was 1980. I was 12 years old. Just headed to Junior High School and boy, was I obsessed with video games. *Space Invaders*, *GORF* and *Bite Monster* were my favorites because they were the only games I had access to in crappy Brighton Beach.
+It was 1980, I was 12 years old, and old enough to head off into Junior High School and boy oh boy, was I obsessed with video games. *Space Invaders*, *GORF* and *Bite Monster* were my favorites because they were the only video games I had access to in the scratch and dent storefronts in Brighton Beach.
 
-Never heard of *Bite Monster*? Don’t worry… Most people didn’t. *Bite Monster* was the name of some German *Pac-Man* bootleg the local candy store—“40 Thieves”—had. I really liked playing *Bite-Monster*.
+Never heard of *Bite Monster*? Don’t worry… Most people didn’t. *Bite Monster* was the name of some bootleg German version of *Pac-Man* the local candy store—“40 Thieves”—had. And I really liked playing *Bite-Monster*.
 
-Anyway, I was really into video games at the time. I loved going to the arcades in Coney Island and playing some of the old school pinball and electromagnetic games they still had there: Horse racing, target shooting, baseball… But as much fun as they were, they were inherently limited by physical space.
+Anyway, I was really into video games at the time. But I also loved going to the arcades in Coney Island and playing some of the old school pinball and electromagnetic games they still had there: Horse racing games, target shooting games, baseball games… But as much fun as they were, they were inherently limited by physical space.
 
-The playing field on an electromagnetic game was just what you saw in front of you. Oh, sometimes it was cool and fun in it’s own kitschy way, but each game only had limited, physical real world appeal.
+The playing field on an electromagnetic game was just what you saw in front of you. It as basically like you were playing some game in a tiny diorama. Oh, sometimes it was cool and fun in it’s own kitschy way, but each game only had limited, physical world appeal.
 
-A video game—on the other hand—was potentially limitless. A grid of pixels on the screen flashed and could recreate tons of different worlds, fantasies and realms.
+A video game—on the other hand—was potentially limitless since the playing field of a video game was just this flat digital canvas filled withbpixels. And that grid of abstract pixels 
+
+on the screen flashed and could recreate tons of different worlds, fantasies and realms.
 
 One could not play *Pac-Man* in another medium.
 
