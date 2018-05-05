@@ -35,13 +35,13 @@ While those dreams floated in my head, the most tangible reality of them I could
 
 ***
 
-One weekend, as I was daydreaming on the floor of my room—toys, comics and that supplement near me—my brother showed up.
+One weekend a few weeks later—as I was daydreaming on the floor of my room with some toys, comics and that supplement near me—my brother showed up seemingly out of nowhere.
 
-He acted odd… Almost strange… There was no shouting or fighting as he walked into my room, kneeled down and started to talk to me.
+He was acting odd… Almost strange… There was no shouting or fighting as he walked into my room—which was strange for him—kneeled down and started to talk to me in some patronizing sing-songy voice.
 
 “What are you reading?” he asked.
 
-I showed him what I was reading: It was the Radio Shack supplement with the two dinosaurs fighting on it.
+I said “This!” and showed him what I was reading: It was the Radio Shack supplement with the two dinosaurs fighting on the cover of it.
 
 “Do you want to play this game?” he asked.
 
