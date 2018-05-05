@@ -45,21 +45,21 @@ I said “This!” and showed him what I was reading: It was the Radio Shack sup
 
 “Do you want to play this game?” he asked.
 
-I nodded, “Yes…” as I started to explain what the game was and what a Radio Shack TRS-80 computer was.
+I nodded, “Yes…” as I started to explain what the game was and what a Radio Shack TRS-80 color computer was.
 
 “That’s very nice,” he said. “Maybe you can get that for your Bar Mitzvah!” he added.
 
-I nodded, but was confused. While my brother wasn’t mean all the time, the kind of “nice” he was now was somewhat creepy. His tone of voice sounded a bit off as well; as if he was forcing himself to be nice.
+I nodded, but was confused. While my brother wasn’t mean all the time, the kind of niceness he was was expressing during this interaction was smewhat creepy. His tone of voice sounded a bit off as well; as if he was forcing himself to be nice in that way that people who weren’t nice did when they tried to be nice.
 
-But I accepted it for what it was worth.
+But I accepted it for what it was worth and soon he was gone.
 
 ***
 
-A few months later—in June—my Bar Mitzvah came and it happened and that is the absolute best that can be said about. My family wasn’t religious so the actual event was cursory rather than anything spectacular; in retrospect it should have never have happened and perhaps a basic birthday party with some pizza and ice cream would have been more honest.
+A few months later—in June—my Bar Mitzvah came and it happened and that is the absolute best that can be said about. My family wasn’t religious so the actual Bar Mitzvah itself was cursory “paint by numbers” exercise at best rather than anything memorable. In retrospect that Bar Mitzvah should not have ever have happened and maybe a basic birthday party with some pizza and ice cream would have been a more honest reflection of who I was and how my family approached religious affairs at the time.
 
-After the somewhat awkward ceremony, we ended up at back at the family home on Ocean Parkway. I saw boxes on the table in the living room and as ready to go at them.
+After the somewhat awkward ceremony at the Synagogue on Brighton 4th Stree, we headed bakc to the family home on Ocean Parkway. I saw gift boxes on the table in the living room and as ready to go at them.
 
-So after accepting cards from relatives and kisses on the cheek, I started to rip things open. Soon enough I saw the word “Atari” on a silver box. I removed more wrapping and saw it right in front of me: “Atari 400 Personal Computer.” What?
+So after accepting cards and kisses on the cheek from relatives, I started to rip those boxes open. Soon enough I saw the word “Atari” on the side of silver box. I removed more wrapping and saw it right in front of me: “Atari 400 Personal Computer.” What?
 
 As I looked around the box, some relatives gasped and started to gab and my brother focused on explaining what the computer was.
 
