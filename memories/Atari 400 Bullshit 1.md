@@ -27,11 +27,11 @@ So as the date approached I started to flip through the Sunday newspaper adverti
 
 One Saturday night, after my dad picked up the Sunday Daily News, I rummaged through the non-news detritus on the living room table. And there between the “Parade Magazine” and the Sunday comics was a sight to be seen: Two digitally rendered dinosaurs facing off to fight each other in some digital landscape on the cover of the current Radio Shack discount supplement.
 
-I held onto that supplement with intent and soaked in all the details: The game was called xxx and if I wanted to play it I needed to own a TRS-80 color computer. Just those words, “Color Computer” screamed humblebrag to me: “Other computers might be computers, but this computer was in full color!”
+I held onto that supplement with obsessesive intented and soaked up all the details: The game was called “Dino Wars” and if I wanted to play it I needed to own a TRS-80 color computer. Just those words, “Color Computer” screamed humblebrag to me: “Other computers might be computers, but this computer was in full color!” But in all seriousness it was a big deal at the time since most “TV games” at the time were simply black and white affairs… Even when you used a color TV with them.
 
-The idea of such a thing boggled my mind. And better yet… There was a Radio Shack right nearby us in the Trump Village shopping center. I imagined myself wandering those aisles and getting the inside skinny on hot new TRS-80 games before anybody else knew.
+So the idea of a “Color Computer” boggled my mind. And better yet… There was a Radio Shack right nearby us in the Trump Village shopping center. I imagined myself owning a TRS-80 and wandering into the store on the weekend to get the inside scoop on hot new TRS-80 games before anybody else knew.
 
-I took the Radio Shack supplement and carefully stored it in my desk drawer and would pull it out once in a while.
+While those dreams floated in my head, the most tangible reality of them I could hold onto was that Radio Shack supplent. And I carefully kept that supplement in my desk drawer to look at and reference every now and then.
 
 ***
 
