@@ -25,13 +25,13 @@ So we negotiated some kind of a compromise to check out the deals at Gimbel’s 
 
 When the weekend came, we headed to Herald Square on the D train and—as we were travelling—my father said we were going to *The Computer Center* first. “Why?” I asked. “Because Ben wants to see the place,” he said.
 
-I didn’t know what to make of it. Ben never really joined us on trips like this. But if Ben was showing up, he was showing up and that’s that.
+I didn’t know what to make of it since Ben never really joined us on trips like this. But if Ben was showing up, he was showing up and that’s that.
 
-So we headed to *The Computer Center* again and I stared at the packing on “Baja Buggies” again. But this time my brother Ben leaned in and asked me about it.
+So we headed to *The Computer Center* again and I immediately made a bee line straight to the rack that had *Baja Buggies* and stared at the packaging again. The price was still $29.99 but my desire to own it as no less. Only this time my brother Ben leaned in and asked me about it.
 
 After explaining what the game was to him he simply said loudly and audibly, “That’s stupid! You can program a better game!”
 
-I was stunned and frozen. Ben had still not gotten me the magical BASIC cartridge he promised, but yet somehow was judging the games I liked and somehow thought I could somehow magically program games.
+I was stunned and frozen. Ben had still not gotten me this “magical” BASIC cartridge he and his wife would not shut up about, but yet somehow was judging the games I liked and somehow thought I could somehow magically program games.
 
 Our father showed up and started to talk to Ben in Hebrew, Polish or Yiddish… I don’t remember… I just know it was not English… But he managed to calm him down a bit.
 
