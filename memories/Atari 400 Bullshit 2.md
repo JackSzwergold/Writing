@@ -11,7 +11,7 @@ Anyway, some friends of mine told me about stores in “The City” (aka: Manhat
 
 The store was near the Empire State Building and was called “The Computer Center.” The shop was small, but neat and had all kinds of different home computers on display… Including the Atari 400 and Atari 800 as well as Apple computers and other stuff.
 
-Instead of shelves, racks were filled with sturdy zip-lock bags filled with software on cassette and disk. I didn’t know what many of these games were, but I was happy to browse and see what was out there. And as you can tell from the zip-lock bag description, a lot of these early software companies were truly D.I.Y. affairs where one or two programmers would make a game or some other software, dupe disks and cassettes on their own, print out their own instructions, shove them in a bag and call it a day.
+Instead of shelves, racks were filled with sturdy zip-lock bags filled with software on cassette and disk with a little cardboard display illustration on the front of it. I didn’t know what many of these games were, but I was happy to browse and see what was out there. And as you can tell from the zip-lock bag description, a lot of these early software companies were truly D.I.Y. affairs where one or two programmers would make a game or some other software, dupe disks and cassettes on their own, print out their own instructions, shove them in a bag and call it a day.
 
 But amongst all of the games and such on the rack, one specific game caught my eye: It was called *Baja Buggy*. It basically was an independently produced bootleg clone of the Atari arcade game *Pole Position*. But instead of driving a Formula One car around a paved race track, you drove a dirt buggy in some kind of race around a desert landscape.
 
