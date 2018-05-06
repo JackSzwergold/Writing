@@ -17,8 +17,6 @@ A game like *Pac-Man* could not exist in any other medium.
 
 Anyway, I loved video games and was obsessed with having a video game system at home. And at the time the premier video game system was the classic Atari 2600. Clunky graphics aside, Atari games were fun since—while they might have not had the rich graphics and details of their arcade counterparts—they were far and away more interesting to play and look at than some of the TV game systems at the time. “TV game” systems at the time only let you play games such as “skeet shoot” or some crappy version of pong or something and not much else.
 
-
-
 Anyway, it was 1980, I was 12 years old going on 13, and old enough to head off into Junior High School. And for a Jewish kid that meant a Bar Mitzvah. My family was never religious or faithful—and neither was I—but I went to afternoon Hebrew school at the time since everyone did. And through that limited education I learned the most important thing a Jewish kid could learn about their Bar Mitzvah: Chances were good that family members and others might potentially come out of nowhere to toss gifts of cash and expensive gifts at you for no other reason than you were somehow a “man” at the age of 13.
 
 Like most kids on the edge of adolescence, I was a naive and delusional. This was despite the fact that it was obvious my parents were unquestionably poor and my extended family treated my family—and me—like utter garbage. Yet despite all of that, I had some grand fantasy that somehow on the wonderful occasion of my 13th birthday, all of those differences would somehow be put aside and somehow my extended family would find it in their hearts to bestow that time honored tradition of giving a 13 year old kid expensive gifts or piles of cash.
