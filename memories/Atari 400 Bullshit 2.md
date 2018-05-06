@@ -13,7 +13,7 @@ The store was near the Empire State Building and was called “The Computer Cent
 
 Instead of shelves, racks were filled with sturdy zip-lock bags filled with software on cassette and disk. I didn’t know what many of these games were, but I was happy to browse and see what was out there. And as you can tell from the zip-lock bag description, a lot of these early software companies were truly D.I.Y. affairs where one or two programmers would make a game or some other software, dupe disks and cassettes on their own, print out their own instructions, shove them in a bag and call it a day.
 
-But amongst all of the games and such on the rack, one specific game caught my eye: It was called Baja Buggy. It basically was an independently made clone of the Atari arcade game “Pole Position.” You drove a dirt buggy in somewhat first person point of view through a desert in some kind of race.
+But amongst all of the games and such on the rack, one specific game caught my eye: It was called *Baja Buggy*. It basically was an independently produced bootleg clone of the Atari arcade game *Pole Position*. But instead of driving a Formula One car around a paved race track, you drove a dirt buggy in some kind of race around a desert landscape.
 
 I wanted it, but it cost $29.99. Which was way out of the price-range of my allowance and limited savings at the time. So I looked at the package and tried to figure out how I could afford it.
 
