@@ -35,7 +35,7 @@ I was stunned, baffled, confused and frozen. My brother had still not gotten me 
 
 Our father—who was wandering around elsewhere in the store—heard the shouting, ran over to us and started to argue with my brother in one of the family languages that wasn’t English. Was it Hebrew? Was it Polish? Was it Yiddish? I didn’t know. I just knew I couldn’t understand it since it wasn’t English—the only language I knew at the time—and when a language shift like that happened in a family conversation it often meant the discussion happening in front of my face and ears just wasn’t my business… Even if I was somehow the topic of the conversation. Which was all a bit upsetting. But when the dust settled in this case my brother managed to calm him down a bit.
 
-I was feeling a tad better but raw. I was scared. Here I am 14 years old walking around with my older brother—who is 34 years old; 20 years older than me—and being put in this position to defend my desires and feelings to this supposed fully grown man.
+When my the both of them stopped talking, I was feeling a tad better but still felt a painful rawness in my skin. I was scared. Here I am 14 years old walking around with my older brother—who is 34 years old; 20 years older than me—and being put in this position to defend my desires and feelings to this supposed fully grown man. He could never just nod and say something polite and neutral. With my brother it was always polarizing, concscending violence if
 
 I wouldn’t say it was a big scene since maybe only a handful of of other people in the shop noticed this minor, bizarre domestic dust up. But as a kid who simply wanted to share what he enjoyed with a family member who—I believed at the time—respected me, it was awkward and embracing.
 
