@@ -21,7 +21,7 @@ I wanted it, but it cost $29.99. Which was way out of the price range of my $2 w
 
 The next week my dad wanted to head to “The City” and asked me where I wanted to go. *The Computer Center*! I said. “But we were just there last week? Why again?” he responded. “Because I want to,” I replied.
 
-So we negotiated some kind of a compromise to meander around and check out the deals at *Gimbel’s* and *Macy’s* in Herald Square first and then go to *The Computer Center* later if and when we had time.
+So we negotiated some kind of a compromise to meander around and check out the deals at *Gimbel’s* and *Macy’s* in Herald Square first and then go to *The Computer Center* later on if and when we had time.
 
 When the weekend came, we headed to Herald Square on the D train and—as we were traveling—my father said we were going to *The Computer Center* first. “Why?” I asked. “Because your brother wants to see the place,” he said.
 
