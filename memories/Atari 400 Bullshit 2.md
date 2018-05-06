@@ -15,7 +15,7 @@ Instead of shelves, racks were filled with sturdy zip-lock bags filled with soft
 
 But amongst all of the games and such on the rack, one specific game caught my eye: It was called *Baja Buggy*. It basically was an independently produced bootleg clone of the Atari arcade game *Pole Position*. But instead of driving a Formula One car around a paved race track, you drove a dirt buggy in some kind of race around a desert landscape.
 
-I wanted it, but it cost $29.99. Which was way out of the price-range of my allowance and limited savings at the time. So I looked at the package and tried to figure out how I could afford it.
+I wanted it, but it cost $29.99. Which was way out of the price range of my $2 weekly allowance and limited savings at the time. So I looked at the package and tried to figure out how I could get it.
 
 ***
 
