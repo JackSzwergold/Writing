@@ -39,7 +39,7 @@ When my the both of them stopped talking, I was feeling a tad better but still f
 
 I wouldn’t say the violent outbusr was a big scene since maybe only a handful of of other people in the shop noticed this minor, bizarre domestic dust up. But as a 14 year old kid who simply wanted to share what he enjoyed with a family member who—I believed at the time—respected me, it was awkward and embarssing at best.
 
-So we all walked around the store some more—and I took some mental notes on the games and companies that made them—and then we all went our separate ways; my brother headed home and I went shopping with my father at Macy’s, Gimbel’s and whatever discount store caught his eye.
+So we all walked around *The Computer Center* some more—and I took some mental notes on the games and companies that made them—and then we all went our separate ways; my brother headed to his home in Washington Heights and I went window shopping with my father at *Macy’s*, *Gimbel’s* and whatever discount store caught his eye along the way.
 
 ***
 
