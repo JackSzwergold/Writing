@@ -25,9 +25,9 @@ So we negotiated some kind of a compromise to meander around and check out the d
 
 When the weekend came, we headed to Herald Square on the D train and—as we were traveling—my father casually mentioned we were going to *The Computer Center* first. “Why?” I asked. “Because your brother wants to see the place,” he said.
 
-I didn’t know what to make of it since my brother never really joined us on trips like this. But if my brother was showing up, he was showing up and that’s that; he was—and still is—a stubborn pig and saying no to him only meant he would still show up but be more aggresive about it.
+I didn’t know what to make of it since my brother never really joined us on trips like this. But if my brother was showing up, he was showing up and that’s that. My brothe was 20 years older than me and was—and still is—a stubborn pig and saying “No!” to him was never an option since only meant he would still show up but be more aggresive and nasty about it.
 
-So we headed to *The Computer Center* again and I immediately made a bee line straight to the rack that had *Baja Buggies* and stared at the packaging again. The price was still $29.99 but my desire to own it as no less. Only this time my brother Ben leaned in and asked me about it.
+So when we got off at 34th Street, we headed to *The Computer Center*  and when we got there I immediately made a bee line straight to the rack of software that had *Baja Buggies* and stared at the packaging again. The price was still $29.99 but my desire to own it was as strong as ever. Only this time my brother Ben—who had shown up in the store on his own—came over and leaned in to ask me about it.
 
 After explaining what the game was to him he simply shouted, “That’s stupid!” at me and then added, “You can program a better game!”
 
