@@ -23,7 +23,7 @@ The next week my dad wanted to head to “The City” and asked me where I wante
 
 So we negotiated some kind of a compromise to meander around and check out the deals at *Gimbel’s* and *Macy’s* in Herald Square first and then go to *The Computer Center* later on if and when we had time.
 
-When the weekend came, we headed to Herald Square on the D train and—as we were traveling—my father said we were going to *The Computer Center* first. “Why?” I asked. “Because your brother wants to see the place,” he said.
+When the weekend came, we headed to Herald Square on the D train and—as we were traveling—my father casually mentioned we were going to *The Computer Center* first. “Why?” I asked. “Because your brother wants to see the place,” he said.
 
 I didn’t know what to make of it since my brother never really joined us on trips like this. But if my brother was showing up, he was showing up and that’s that; he was—and still is—a stubborn pig and saying no to him only meant he would still show up but be more aggresive about it.
 
