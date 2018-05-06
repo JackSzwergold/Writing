@@ -25,7 +25,7 @@ So we negotiated some kind of a compromise to check out the deals at *Gimbel’s
 
 When the weekend came, we headed to Herald Square on the D train and—as we were traveling—my father said we were going to *The Computer Center* first. “Why?” I asked. “Because your brother wants to see the place,” he said.
 
-I didn’t know what to make of it since my brother never really joined us on trips like this. But if Ben was showing up, he was showing up and that’s that.
+I didn’t know what to make of it since my brother never really joined us on trips like this. But if my brother was showing up, he was showing up and that’s that; he was—and still is—a stubborn pig and saying no to him only meant he would still show up but be more aggresive about it.
 
 So we headed to *The Computer Center* again and I immediately made a bee line straight to the rack that had *Baja Buggies* and stared at the packaging again. The price was still $29.99 but my desire to own it as no less. Only this time my brother Ben leaned in and asked me about it.
 
