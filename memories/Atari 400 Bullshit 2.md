@@ -29,11 +29,11 @@ I didn’t know what to make of it since Ben never really joined us on trips lik
 
 So we headed to *The Computer Center* again and I immediately made a bee line straight to the rack that had *Baja Buggies* and stared at the packaging again. The price was still $29.99 but my desire to own it as no less. Only this time my brother Ben leaned in and asked me about it.
 
-After explaining what the game was to him he simply said loudly and audibly, “That’s stupid! You can program a better game!”
+After explaining what the game was to him he simply shouted, “That’s stupid!” at me and then added, “You can program a better game!”
 
-I was stunned and frozen. Ben had still not gotten me this “magical” BASIC cartridge he and his wife would not shut up about, but yet somehow was judging the games I liked and somehow thought I could somehow magically program games.
+I was stunned, baffled, confussed and frozen. Ben had still not gotten me this “magical” BASIC cartridge he and his wife would not shut up about. Yet somehow he was judging the games I liked and somehow thought I could somehow magically program games despite doing nothing with this “computer” other than play the small handful of games I owned at the time.
 
-Our father showed up and started to talk to Ben in Hebrew, Polish or Yiddish… I don’t remember… I just know it was not English… But he managed to calm him down a bit.
+Our father—who was wandering elsewhere in the store—heard the shouting, showed up and started to talk to Ben in Hebrew, Polish or Yiddish… I don’t remember… I just know it was not English… But he managed to calm him down a bit.
 
 I was feeling a tad better but raw. Here I am 14 years old walking around with my older brother—who is 34 years old—and justifying my desire and curiosity towards games and things I saw in the shop to him.
 
