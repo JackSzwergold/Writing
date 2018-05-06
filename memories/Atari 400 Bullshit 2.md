@@ -19,13 +19,15 @@ I wanted it, but it cost $29.99. Which was way out of the price range of my $2 w
 
 ***
 
-The next week my dad wanted to head to “The City” and asked me where I wanted to go. “The Computer Center!” I said. “But we were just there last week? Why again?” he responded. “Because I want to,” I replied. So we made some compromise to check out the deals at Gimbel’s and Macy’s in Herald Square and then go to “The Computer Center” when we had time.
+The next week my dad wanted to head to “The City” and asked me where I wanted to go. *The Computer Center*! I said. “But we were just there last week? Why again?” he responded. “Because I want to,” I replied.
 
-So the weekend came, and we headed to Herald Square and my father then said we were going to “The Computer Center” first. “Why?” I asked. “Because Ben wants to see the place,” he said.
+So we negotiated some kind of a compromise to check out the deals at Gimbel’s and Macy’s in Herald Square first and then go to *The Computer Center* later if and when we had time.
 
-I didn’t know what to make of it, but if Ben was showing up, he was showing up and that’s that.
+When the weekend came, we headed to Herald Square on the D train and—as we were travelling—my father said we were going to *The Computer Center* first. “Why?” I asked. “Because Ben wants to see the place,” he said.
 
-So we headed to “The Computer Center” again and I stared at the packing on “Baja Buggies” again. But this time my brother Ben leaned in and asked me about it.
+I didn’t know what to make of it. Ben never really joined us on trips like this. But if Ben was showing up, he was showing up and that’s that.
+
+So we headed to *The Computer Center* again and I stared at the packing on “Baja Buggies” again. But this time my brother Ben leaned in and asked me about it.
 
 After explaining what the game was to him he simply said loudly and audibly, “That’s stupid! You can program a better game!”
 
