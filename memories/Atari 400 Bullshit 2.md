@@ -35,7 +35,7 @@ I was stunned, baffled, confussed and frozen. Ben had still not gotten me this �
 
 Our father—who was wandering elsewhere in the store—heard the shouting, ran over to us and started to argue with Ben in one of the family languages that wasn’t English. Was it Hebrew? Was it Polish? Was it Yiddish? I didn’t know. I just knew I couldn’t understand it since it wasn’t English and when a language shift like that happened it often meant the discussion might be happening in front of my face but it wasn’t my business. Which was a bit upsetting. But when the dust settled in this case Ben managed to calm him down a bit.
 
-I was feeling a tad better but raw. Here I am 14 years old walking around with my older brother—who is 34 years old—and justifying my desire and curiosity towards games and things I saw in the shop to him.
+I was feeling a tad better but raw. I was scared. Here I am 14 years old walking around with my older brother—who is 34 years old; 20 years older than me—and justifying my desire and curiosity towards games and things I saw in the shop to him.
 
 I wouldn’t say it was a big scene; maybe only a handful of people noticed the minor domestic dust up. But as a kid who simply wanted to share what he enjoyed with a family member who—I believed at the time—respected me, it was awkward.
 
