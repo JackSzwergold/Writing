@@ -33,7 +33,7 @@ After explaining what the game was to him he simply shouted, “That’s stupid!
 
 I was stunned, baffled, confussed and frozen. Ben had still not gotten me this “magical” BASIC cartridge he and his wife would not shut up about. Yet somehow he was judging the games I liked and somehow thought I could somehow magically program games despite doing nothing with this “computer” other than play the small handful of games I owned at the time.
 
-Our father—who was wandering elsewhere in the store—heard the shouting, showed up and started to talk to Ben in Hebrew, Polish or Yiddish… I don’t remember… I just know it was not English… But he managed to calm him down a bit.
+Our father—who was wandering elsewhere in the store—heard the shouting, ran over to us and started to argue with Ben in one of the family languages that wasn’t English. Was it Hebrew? Was it Polish? Was it Yiddish? I didn’t know. I just knew I couldn’t understand it since it wasn’t English and when a language shift like that happened it often meant the discussion might be happening in front of my face but it wasn’t my business. Which was a bit upsetting. But when the dust settled in this case Ben managed to calm him down a bit.
 
 I was feeling a tad better but raw. Here I am 14 years old walking around with my older brother—who is 34 years old—and justifying my desire and curiosity towards games and things I saw in the shop to him.
 
