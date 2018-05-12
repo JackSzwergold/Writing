@@ -15,7 +15,7 @@ After taking it out of the crushed box and sticking it into the slot of the Atar
 
 And you know, it retrospect this all sounds condescening and mean towards my brother. And maybe it is. At the end of the day he—and his wife at the time who truly initiated the purchase of this thing—did have good intentions with their actions. But the problem wasn’t what their intentions might have been as much as their endlessly stubborn attitude when it came to defining what should be done with gifts they gave to me or anyone else. If they gave me a computer it was to compute; not play games. Only “stupid” people do “stupid” things like enjoy playing games and such.
 
-As I said at the outset, by the time I given this BASIC cartridge I had already become a “Warrior” in *Star Raiders*. And I was damned proud of that acheivement and I tried to show him some of the achievements I had earned. But no sooner than I booted up the game to show him what I could do that he then shut the computer down, swapped out the cartridge and stuck in the BASIC cartridge yet again.
+As I said at the outset, by the time I given this BASIC cartridge I had already become a “Warrior” in *Star Raiders*. And I was damned proud of that acheivement and I tried to show him some of the achievements I had earned. But no sooner than I booted up the game to show him what I could do that he then turned around and shut the computer down, swapped out the cartridge and stuck in the BASIC cartridge yet again to show me more programming tips and tricks.
 
 
 I nodded politely, listened to his self-centered, unwanted computer programming lessons and then pretended to program myself.
