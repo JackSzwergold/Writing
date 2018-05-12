@@ -25,7 +25,7 @@ But like most ideas 13 year olds come up with to deal with dysfunctional adults,
 
 My programming skills at the time stunk and—besides that—I didn’t enjoy it. My ideas of what I wanted to do and what my hamfisted programming skills could achieve was an endless source of pain and frustration to me. At the end of the day, the software and games that the professionals put out in the real-world market were far more satisfying and enjoyable to use than anything I could program.
 
-But one thing
+But one thing stopped me from truly enjoying the world of commerical software at the time: A lack of money and being 14 years old and not being able to really make decent money since I didn’t have a job nor any idea of how to get one.
 
 Slowly I learned about the world of pirated software and slowly—but surely—me and my neighborhood friends would copy and trade games with each other. This was actually fun. It was social. For the price of some blank cassettes I could have a social circle focused on copying and playing games.
 
