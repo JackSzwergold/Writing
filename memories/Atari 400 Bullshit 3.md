@@ -9,9 +9,11 @@ And then one week my brother showed up at our Brighton Beach home with the magic
 
 “Here it is!” he said as he passed it onto me. The packaging had been crushed and was opened since my brother and his wife wanted to try it out on the loaned Atari 800 they had in their home. So it was less than a part of a gift, and more of an aftermarket addition to the Atari 400 system I had.
 
-Ben showed me some basic BASIC programming and I learned such thrilling things such as how to do a GOTO loop. Ben also showed me some sine/cosine function I barely understood past it drawing a few curvy lines on the screen.
+After taking it out of the crushed box and sticking it into the slot of the Atari 400, my brother showed me some litreral “basic” BASIC programming things such as how to crete a GOTO loop. He also showed me some sine/cosine function I barely understood past it drawing a few curvy lines on the screen.
 
-“And now, you can program games!” he said with no awareness of how little I cared.
+“And now, you can program games!” he said with no awareness of how little I cared or even understood.
+
+
 
 By the time he gave me this cartridge I had become an expert at “Star Raiders.” I tried to show him some game level achievements I had made. But no sooner than I booted up the game he then powered the computer up to show me BASIC yet again.
 
