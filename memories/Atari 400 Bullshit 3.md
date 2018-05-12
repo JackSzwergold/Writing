@@ -3,7 +3,11 @@
 
 By Jack Szwergold
 
-A few weeks later Ben showed up with the magical BASIC cartridge. The packaging had been crushed and was opened sine my brother and his wife wanted to try it out on the loaned Atari 800 they had in their home.
+Weeks—possibly months—had passed since I received that Atari 400 for my 13th birthday. While I had not seen hide nor hair of this “magical” BASIC cartridge my brother was endlessly talking about, I had moved up the ranks in *Star Raiders* from “Garbage Scow Captain” to “Warrior.” It was a proud achievement of mine—and even my dad—but not to my brother. He saw games as nothing more than a distraction from the real purpose of a computer: Endlessly looking at lines of code to program something. Which was something I could not do—and didn’t even sound like fun—until I got that confounded BASIC cartridge.
+
+And then one week my brother showed up at our Brighton Beach home with the magical BASIC cartridge. And boy was it an underwhelming experience.
+
+The packaging had been crushed and was opened sine my brother and his wife wanted to try it out on the loaned Atari 800 they had in their home.
 
 Ben showed me some basic BASIC programming and I learned such thrilling things such as how to do a GOTO loop. Ben also showed me some sine/cosine function I barely understood past it drawing a few curvy lines on the screen.
 
@@ -26,6 +30,13 @@ As time passed, my brother begrudgingly accepted I only wanted to play video gam
 If I was only given a video game system at the time all could be peaceful and happy. But instead—like all of my brother’s “gifts” and interactions—I had to get wrapped up in his bullshit to find any enjoyment in what he gave me.
 
 In retrospect I should have done with that computer what I did with virtually all of the “gifts” he and his wife gave me over the years: Just not use it, toss it in the closet and throw it out after a few years.
+
+***
+
+
+Another proud achievement was discovering the early computer magazines of the day and the free programs they published in their pages.
+
+When I say these programs were “free” and “published in their pages” I am being quite literal: In the early days of computer publishing, small programs would literally be printed on the pages of the magazine and you would have to carefully type them in by hand to get them to work.
 
 ***
 
