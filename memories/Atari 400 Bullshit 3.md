@@ -45,9 +45,7 @@ As time passed, and I acquired and played more and more games I scored through m
 
 It’s going to sound whiny and privledged, but if I was only given a video game system at the time all could have been more peaceful and happy in my family. But instead—like all of my brother’s “gifts” and interactions—I had to get wrapped up in his dysfunctuional bullshit.
 
-
-
-In retrospect I should have done with that computer what I did with virtually all of the “gifts” he and his wife gave me over the years: Just not use it, toss it in the closet and throw it out after a few years.
+With hindsight always giving one a clearer perspective of how things should have been handled, I should have done with that computer what I did with virtually all of the “gifts” he and his wife gave me over the years: Just not use it, toss it in the closet and throw it out a few years later. But my family was poor and any gift was welcome because when you have nothing anything is something.
 
 ***
 
