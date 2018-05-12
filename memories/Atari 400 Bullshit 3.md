@@ -11,8 +11,9 @@ And then one week my brother showed up at our Brighton Beach home with the magic
 
 After taking it out of the crushed box and sticking it into the slot of the Atari 400, my brother showed me some litreral “basic” BASIC programming things such as how to crete a GOTO loop. He also showed me some sine/cosine function I barely understood past it drawing a few curvy lines on the screen.
 
-“And now, you can program games!” he said with no awareness of how little I cared or even understood.
+“And now, you can program games!” he said with no awareness of how little I cared or even understood any of what he was showing me.
 
+And you know, it retrospect this all sounds condescening and mean towards my brother. And maybe it is. At the end of the day he—and his wife at the time who truly initiated the purchase of this thing—did have good intentions with their actions. But the problem wasn’t what their intentions might have been as much as their seemingly endless stubborness when it came to defining what should be done with gifts they gave to me or anyone else.
 
 
 By the time he gave me this cartridge I had become an expert at “Star Raiders.” I tried to show him some game level achievements I had made. But no sooner than I booted up the game he then powered the computer up to show me BASIC yet again.
