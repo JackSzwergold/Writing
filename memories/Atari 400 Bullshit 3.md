@@ -33,11 +33,11 @@ Then I learned about pirated software and my whole world changed.
 
 ***
 
-I learned about pirated software from my neighborhood friends who would copy and trade games with each other. You see, since most computer software at that time was available on cassettte tapes, piracy consisted of simply hooking up two cassette decks—one to playback the cassette and the other to record—a
+I learned about pirated software from my neighborhood friends who would copy and trade games with each other. You see, since most computer software at that time was available on cassettte tapes, so simple software piracy at the time consisted of just hooking up two cassette decks—one to playback the cassette and the other to record the bleeps and bloops onto a blank cassette—and copying the cassette. If you knew how to copy music cassette tape, you knew how to copy a computer cassette tape.
 
-Unlike programming, this was actually fun and social. For the price of some blank cassette tapes I could have a small social circle of friends who were focused on copying, sharing and playing games. Who cares about how they were programmed?
+This was a mind-blowing—and liberating—revelation to a 13 year old kid. For the price of some blank cassette tapes—that were cheap and plentiful at the time—I could have a small social circle of friends who were focused on copying, sharing and playing games. Who cares about how they were programmed? We could just all share in the fun of playing games together without draining our allowances.
 
-But whenever my brother visited and saw me playing games some outburst would occur. If I showed him the game I was playing, 9 times out of 10 he would declare it to be stupid. I had no idea how to respond so I let these outbursts pass and keep on playing.
+But while software piracy liberated me to play the games I liked—and use the Atari 400 as a video game system I always wanted—whenever my brother would visit and see me playing games some incredibly indignant and violent outburst would occur. If I showed him the game I was playing, 9 times out of 10 he would declare it to be stupid and a “waste of time.” I had no idea how to respond to being demeaned like this so I let these outbursts pass and keep on playing as if nothing happened.
 
 Soon enough I was able to wrap myself up in these games that when my brother came over, the passive aggressive—or even outright aggressive—violence could be numbed by staring at these games and being immersed in this world.
 
