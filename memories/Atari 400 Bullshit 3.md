@@ -13,7 +13,7 @@ After taking it out of the crushed box and sticking it into the slot of the Atar
 
 “And now, you can program games!” he said with no awareness of how little I cared or even understood any of what he was showing me.
 
-And you know, it retrospect this all sounds condescening and mean towards my brother. And maybe it is. At the end of the day he—and his wife at the time who truly initiated the purchase of this thing—did have good intentions with their actions. But the problem wasn’t what their intentions might have been as much as their seemingly endless stubborness when it came to defining what should be done with gifts they gave to me or anyone else.
+And you know, it retrospect this all sounds condescening and mean towards my brother. And maybe it is. At the end of the day he—and his wife at the time who truly initiated the purchase of this thing—did have good intentions with their actions. But the problem wasn’t what their intentions might have been as much as their endlessly stubborn attitude when it came to defining what should be done with gifts they gave to me or anyone else. 
 
 
 By the time he gave me this cartridge I had become an expert at “Star Raiders.” I tried to show him some game level achievements I had made. But no sooner than I booted up the game he then powered the computer up to show me BASIC yet again.
