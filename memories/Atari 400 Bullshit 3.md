@@ -31,7 +31,11 @@ Young and frustrated with my prospects I pretty much resigned myself of an adole
 
 Then I learned about pirated software and my whole world changed.
 
-Slowly I learned about the world of pirated software and slowly—but surely—me and my neighborhood friends would copy and trade games with each other. This was actually fun. It was social. For the price of some blank cassettes I could have a social circle focused on copying and playing games.
+***
+
+I learned about pirated software from my neighborhood friends who would copy and trade games with each other. You see, since most computer software at that time was available on cassettte tapes, piracy consisted of simply hooking up two cassette decks—one to playback the cassette and the other to record—a
+
+Unlike programming, this was actually fun and social. For the price of some blank cassette tapes I could have a small social circle of friends who were focused on copying, sharing and playing games. Who cares about how they were programmed?
 
 But whenever my brother visited and saw me playing games some outburst would occur. If I showed him the game I was playing, 9 times out of 10 he would declare it to be stupid. I had no idea how to respond so I let these outbursts pass and keep on playing.
 
