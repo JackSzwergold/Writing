@@ -27,6 +27,10 @@ My programming skills at the time stunk and—besides that—I didn’t enjoy it
 
 But one thing stopped me from truly enjoying the world of commerical software at the time: A lack of money and being 14 years old and not being able to really make decent money since I didn’t have a job nor any idea of how to get one.
 
+Young and frustrated with my prospects I pretty much resigned myself of an adolescent life of simply endlessly playing *Star Raiders* and *Space Invaders* while struggling to learn just enough BASIC to get my brother off of my back.
+
+Then I learned about pirated software and my whole world changed.
+
 Slowly I learned about the world of pirated software and slowly—but surely—me and my neighborhood friends would copy and trade games with each other. This was actually fun. It was social. For the price of some blank cassettes I could have a social circle focused on copying and playing games.
 
 But whenever my brother visited and saw me playing games some outburst would occur. If I showed him the game I was playing, 9 times out of 10 he would declare it to be stupid. I had no idea how to respond so I let these outbursts pass and keep on playing.
