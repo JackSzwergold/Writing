@@ -21,9 +21,11 @@ Cornered and powerless, all I could do was nod politely, listen to his seemingly
 
 Programming an Atari 400 was not fun, but at some point I fooled myself into thinking I could program a game. Not for my own benefit, but more for my own self-preservation. If I could program something—anything—in BASIC and show my brother my “progress” as each week went on, I believed I could get him off my back. “See! I can program! Now go away!” was my own dellsional “Stockholm Sydrome”-like way of dealing with this nonsense.
 
+But like most ideas 13 year olds come up with to deal with dysfunctional adults, it didn’t work.
 
+My programming skills at the time stunk and—besides that—I didn’t enjoy it. My ideas of what I wanted to do and what my hamfisted programming skills could achieve was an endless source of pain and frustration to me
 
-But it didn’t work. My programming at the time stunk and I didn’t enjoy it. Slowly I learned about the world of pirated software and slowly—but surely—me and my neighborhood friends would copy and trade games with each other. This was actually fun. It was social. For the price of some blank cassettes I could have a social circle focused on copying and playing games.
+Slowly I learned about the world of pirated software and slowly—but surely—me and my neighborhood friends would copy and trade games with each other. This was actually fun. It was social. For the price of some blank cassettes I could have a social circle focused on copying and playing games.
 
 But whenever my brother visited and saw me playing games some outburst would occur. If I showed him the game I was playing, 9 times out of 10 he would declare it to be stupid. I had no idea how to respond so I let these outbursts pass and keep on playing.
 
