@@ -17,8 +17,7 @@ And you know, it retrospect this all sounds condescening and mean towards my bro
 
 As I said at the outset, by the time I given this BASIC cartridge I had already become a “Warrior” in *Star Raiders*. And I was damned proud of that acheivement and I tried to show him some of the achievements I had earned. But no sooner than I booted up the game to show him what I could do that he then turned around and shut the computer down, swapped out the cartridge and stuck in the BASIC cartridge yet again to show me more programming tips and tricks.
 
-
-I nodded politely, listened to his self-centered, unwanted computer programming lessons and then pretended to program myself.
+Cornered and powerless, all I could do was nod politely, listen to his seemingly endless self-centered, unwanted computer programming lessons and then pretend to program myself to make him happy with his efforts. Monkey see, monkey do… But this 13 year old “monkey” did not understand or care.
 
 It was not fun, but at some point I fooled myself into thinking I could program a game. Not for my own benefit, but for my own self-preservation. If I could do some basic BASIC and show my brother my “progress” as each week went on, I believed I could get him off my back.
 
