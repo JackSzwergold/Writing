@@ -9,23 +9,23 @@ And then one week my brother showed up at our Brighton Beach home with the magic
 
 “Here it is!” he said as he passed it onto me. The packaging had been crushed and was opened since my brother and his wife wanted to try it out on the loaned Atari 800 they had in their home. So it was less than a part of a gift, and more of an aftermarket addition to the Atari 400 system I had.
 
-After taking it out of the crushed box and sticking it into the slot of the Atari 400, my brother showed me some litreral “basic” BASIC programming things such as how to crete a GOTO loop. He also showed me some sine/cosine function I barely understood past it drawing a few curvy lines on the screen.
+After taking it out of the crushed box and sticking it into the slot of the Atari 400, my brother showed me some literal “basic” BASIC programming things such as how to create a GOTO loop. He also showed me some sine/cosine function I barely understood past it drawing a few curvy lines on the screen.
 
 “And now, you can program games!” he said with no awareness of how little I cared or even understood any of what he was showing me.
 
-And you know, it retrospect this all sounds condescening and mean towards my brother. And maybe it is. At the end of the day he—and his wife at the time who truly initiated the purchase of this thing—did have good intentions with their actions. But the problem wasn’t what their intentions might have been as much as their endlessly stubborn attitude when it came to defining what should be done with gifts they gave to me or anyone else. If they gave me a computer it was to compute; not play games. Only “stupid” people do “stupid” things like enjoy playing games and such.
+And you know, it retrospect this all sounds condescending and mean towards my brother. And maybe it is. At the end of the day he—and his wife at the time who truly initiated the purchase of this thing—did have good intentions with their actions. But the problem wasn’t what their intentions might have been as much as their endlessly stubborn attitude when it came to defining what should be done with gifts they gave to me or anyone else. If they gave me a computer it was to compute; not play games. Only “stupid” people do “stupid” things like enjoy playing games and such.
 
-As I said at the outset, by the time I given this BASIC cartridge I had already become a “Warrior” in *Star Raiders*. And I was damned proud of that acheivement and I tried to show him some of the achievements I had earned. But no sooner than I booted up the game to show him what I could do that he then turned around and shut the computer down, swapped out the cartridge and stuck in the BASIC cartridge yet again to show me more programming tips and tricks.
+As I said at the outset, by the time I given this BASIC cartridge I had already become a “Warrior” in *Star Raiders*. And I was damned proud of that achievement and I tried to show him some of the achievements I had earned. But no sooner than I booted up the game to show him what I could do that he then turned around and shut the computer down, swapped out the cartridge and stuck in the BASIC cartridge yet again to show me more programming tips and tricks.
 
 Cornered and powerless, all I could do was nod politely, listen to his seemingly endless self-centered, unwanted computer programming lessons and then pretend to program myself to make him happy with his efforts. Monkey see, monkey do… But this 13 year old “monkey” did not understand or care.
 
-Programming an Atari 400 was not fun, but at some point I fooled myself into thinking I could program a game. Not for my own benefit, but more for my own self-preservation. If I could program something—anything—in BASIC and show my brother my “progress” as each week went on, I believed I could get him off my back. “See! I can program! Now go away!” was my own dellsional “Stockholm Sydrome”-like way of dealing with this nonsense.
+Programming an Atari 400 was not fun, but at some point I fooled myself into thinking I could program a game. Not for my own benefit, but more for my own self-preservation. If I could program something—anything—in BASIC and show my brother my “progress” as each week went on, I believed I could get him off my back. “See! I can program! Now go away!” was my own delusional “Stockholm Syndrome”-like way of dealing with this nonsense.
 
 But like most ideas 13 year olds come up with to deal with dysfunctional adults, it didn’t work.
 
 My programming skills at the time stunk and—besides that—I didn’t enjoy it. My ideas of what I wanted to do and what my hamfisted programming skills could achieve was an endless source of pain and frustration to me. At the end of the day, the software and games that the professionals put out in the real-world market were far more satisfying and enjoyable to use than anything I could program.
 
-But one thing stopped me from truly enjoying the world of commerical software at the time: A lack of money and being 14 years old and not being able to really make decent money since I didn’t have a job nor any idea of how to get one.
+But one thing stopped me from truly enjoying the world of commercial software at the time: A lack of money and being 14 years old and not being able to really make decent money since I didn’t have a job nor any idea of how to get one.
 
 Young and frustrated with my prospects I pretty much resigned myself of an adolescent life of simply endlessly playing *Star Raiders* and *Space Invaders* while struggling to learn just enough BASIC to get my brother off of my back.
 
@@ -33,7 +33,7 @@ Then I learned about pirated software and my whole world changed.
 
 ***
 
-I learned about pirated software from my neighborhood friends who would copy and trade games with each other. You see, since most computer software at that time was available on cassettte tapes, so simple software piracy at the time consisted of just hooking up two cassette decks—one to playback the cassette and the other to record the bleeps and bloops onto a blank cassette—and copying the cassette. If you knew how to copy music cassette tape, you knew how to copy a computer cassette tape.
+I learned about pirated software from my neighborhood friends who would copy and trade games with each other. You see, since most computer software at that time was available on cassette tapes, so simple software piracy at the time consisted of just hooking up two cassette decks—one to playback the cassette and the other to record the bleeps and bloops onto a blank cassette—and copying the cassette. If you knew how to copy music cassette tape, you knew how to copy a computer cassette tape.
 
 This was a mind-blowing—and liberating—revelation to a 13 year old kid. For the price of some blank cassette tapes—that were cheap and plentiful at the time—I could have a small social circle of friends who were focused on copying, sharing and playing games. Who cares about how they were programmed? We could just all share in the fun of playing games together without draining our allowances.
 
@@ -41,14 +41,13 @@ But while software piracy liberated me to play the games I liked—and use the A
 
 Soon enough I was able to wrap myself up in these games that when my brother came over, the passive aggressive—or even outright aggressive—violence could be numbed by staring at these games and being immersed in this world.
 
-As time passed, and I acquired and played more and more games I scored through my small adolescent piracy circle of friends, my brother seemed to begrudgingly accept the fact that I only wanted to play video games and had no interest in programming a game. It felt like I won a victory against him until I realized that I was trapped in something I never wanted and had to endure years of verbal and psychological abuse because of this “gift.” Yes, I was finally able to make “lemonade out of lemons” by using this unwanted computer as a video game system, but I always lived under the fear of violence occuring when my brother saw me playing a video game.
+As time passed, and I acquired and played more and more games I scored through my small adolescent piracy circle of friends, my brother seemed to begrudgingly accept the fact that I only wanted to play video games and had no interest in programming a game. It felt like I won a victory against him until I realized that I was trapped in something I never wanted and had to endure years of verbal and psychological abuse because of this “gift.” Yes, I was finally able to make “lemonade out of lemons” by using this unwanted computer as a video game system, but I always lived under the fear of violence occurring when my brother saw me playing a video game.
 
-It’s going to sound whiny and privledged, but if I was only given a video game system at the time all could have been more peaceful and happy in my family. But instead—like all of my brother’s “gifts” and interactions—I had to get wrapped up in his dysfunctuional bullshit.
+It’s going to sound whiny and privileged, but if I was only given a video game system at the time all could have been more peaceful and happy in my family. But instead—like all of my brother’s “gifts” and interactions—I had to get wrapped up in his dysfunctional bullshit.
 
-With hindsight always giving one a clearer perspective of how things should have been handled, I should have done with that computer what I did with virtually all of the “gifts” he and his wife gave me over the years: Just not use it, toss it in the closet and throw it out a few years later. But my family was poor and any gift was welcome because when you have nothing anything is something.
+Hindsight always gives one a clearer perspective of how things in the past should have been handled. And in this case I should have done with that computer what I did with virtually all of the “gifts” he and his wife gave me over the years: Just not use it, toss it in the closet and throw it out a few years later. But my family was poor and any gift was welcome because when you have nothing anything is something.
 
 ***
-
 
 Another proud achievement was discovering the early computer magazines of the day and the free programs they published in their pages.
 
