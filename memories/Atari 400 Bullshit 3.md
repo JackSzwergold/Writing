@@ -19,7 +19,9 @@ As I said at the outset, by the time I given this BASIC cartridge I had already 
 
 Cornered and powerless, all I could do was nod politely, listen to his seemingly endless self-centered, unwanted computer programming lessons and then pretend to program myself to make him happy with his efforts. Monkey see, monkey do… But this 13 year old “monkey” did not understand or care.
 
-It was not fun, but at some point I fooled myself into thinking I could program a game. Not for my own benefit, but for my own self-preservation. If I could do some basic BASIC and show my brother my “progress” as each week went on, I believed I could get him off my back.
+Programming an Atari 400 was not fun, but at some point I fooled myself into thinking I could program a game. Not for my own benefit, but more for my own self-preservation. If I could program something—anything—in BASIC and show my brother my “progress” as each week went on, I believed I could get him off my back. “See! I can program! Now go away!” was my own dellsional “Stockholm Sydrome”-like way of dealing with this nonsense.
+
+
 
 But it didn’t work. My programming at the time stunk and I didn’t enjoy it. Slowly I learned about the world of pirated software and slowly—but surely—me and my neighborhood friends would copy and trade games with each other. This was actually fun. It was social. For the price of some blank cassettes I could have a social circle focused on copying and playing games.
 
