@@ -7,7 +7,7 @@ Weeks—possibly months—had passed since I received that Atari 400 for my 13th
 
 And then one week my brother showed up at our Brighton Beach home with the magical BASIC cartridge. And boy was it an underwhelming experience.
 
-The packaging had been crushed and was opened sine my brother and his wife wanted to try it out on the loaned Atari 800 they had in their home.
+“Here it is!” he said as he passed it onto me. The packaging had been crushed and was opened since my brother and his wife wanted to try it out on the loaned Atari 800 they had in their home. So it was less than a part of a gift, and more of an aftermarket addition to the Atari 400 system I had.
 
 Ben showed me some basic BASIC programming and I learned such thrilling things such as how to do a GOTO loop. Ben also showed me some sine/cosine function I barely understood past it drawing a few curvy lines on the screen.
 
