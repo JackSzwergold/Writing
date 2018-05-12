@@ -41,9 +41,9 @@ But while software piracy liberated me to play the games I liked—and use the A
 
 Soon enough I was able to wrap myself up in these games that when my brother came over, the passive aggressive—or even outright aggressive—violence could be numbed by staring at these games and being immersed in this world.
 
-As time passed, and I acquired and played more and more games I scored through my small adolescent piracy circle of friends, my brother seemed to begrudgingly accept the fact that I only wanted to play video games and had no interest in programming a game. It felt like I won a victory against him until I realized that I was trapped in something I never wanted and had to endure years of verbal and psychological abuse because of this “gift.”
+As time passed, and I acquired and played more and more games I scored through my small adolescent piracy circle of friends, my brother seemed to begrudgingly accept the fact that I only wanted to play video games and had no interest in programming a game. It felt like I won a victory against him until I realized that I was trapped in something I never wanted and had to endure years of verbal and psychological abuse because of this “gift.” Yes, I was finally able to make “lemonade out of lemons” by using this unwanted computer as a video game system, but I always lived under the fear of violence occuring when my brother saw me playing a video game.
 
-If I was only given a video game system at the time all could be peaceful and happy. But instead—like all of my brother’s “gifts” and interactions—I had to get wrapped up in his bullshit to find any enjoyment in what he gave me.
+It’s going to sound whiny and privledged, but if I was only given a video game system at the time all could have been more peaceful and happy. But instead—like all of my brother’s “gifts” and interactions—I had to get wrapped up in his bullshit to find any enjoyment in what he gave me.
 
 In retrospect I should have done with that computer what I did with virtually all of the “gifts” he and his wife gave me over the years: Just not use it, toss it in the closet and throw it out after a few years.
 
