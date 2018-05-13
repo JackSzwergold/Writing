@@ -1,5 +1,5 @@
-## Atari 400 Bullshit (Part 3)
-### Title says it all.
+## Not Learing How to Program, But Learning How to Pirate
+### About how some family members wanted me to learn how to program a computer but instead I learned how to pirate software.
 
 By Jack Szwergold
 
@@ -49,10 +49,4 @@ Hindsight always gives one a clearer perspective of how things in the past shoul
 
 ***
 
-Another proud achievement was discovering the early computer magazines of the day and the free programs they published in their pages.
-
-When I say these programs were “free” and “published in their pages” I am being quite literal: In the early days of computer publishing, small programs would literally be printed on the pages of the magazine and you would have to carefully type them in by hand to get them to work.
-
-***
-
-*Atari 400 Bullshit (Part 3) (c) Copyright by Jack Szwergold; written on December 27, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Not Learing How to Program, But Learning How to Pirate) (c) Copyright by Jack Szwergold; written on December 27, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
