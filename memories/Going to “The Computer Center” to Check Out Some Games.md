@@ -1,5 +1,5 @@
-## Atari 400 Bullshit (Part 2)
-### Title says it all.
+## Going to “The Computer Center” to Check Out Some Games
+### About how I discovered on of the early consumer computer retailers in Manhattan.
 
 By Jack Szwergold
 
@@ -43,4 +43,4 @@ So we all walked around *The Computer Center* some more—and I took some mental
 
 ***
 
-*Atari 400 Bullshit (Part 2) (c) Copyright by Jack Szwergold; written on December 27, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Going to “The Computer Center” to Check Out Some Games (c) Copyright by Jack Szwergold; written on December 27, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
