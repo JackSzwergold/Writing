@@ -47,6 +47,10 @@ It was an older Russian man who was kinda bulky but built up; looked like a butc
 
 He moved towards us and simply repeatedly said, “Please… Please…” as he closed the hatch and shooed us away from it.
 
+As we emerged from the area under the boardwalk the sun was brighter, but it was still cloudy. We stood back and watched as the guy came out from under the boardwalk, shot us a big smile and say, “No! Don’t go!” as he climbed up the stairs and back up to the boardwalk itself.
+
+Meeting him on the boardwalk were a few other guys who looked like him. One of them a bit cleaner, and a bit slicker. They all looked us over but clear
+
 ***
 
 *Playing on the Beach and Finding a Weird Hatch Under the Boardwalk (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
