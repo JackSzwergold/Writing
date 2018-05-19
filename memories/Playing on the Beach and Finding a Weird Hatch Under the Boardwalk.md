@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-I don’t know if it was a dreary spring day or a dreary fall dy, but I do know the day was dreary. Or “overcast” as they say in polite circles. Whatever the day was it was neither cold enough to stay indoors or warm enough to avoid wearing some jacket of some kind. And I am positive was wearing more of a fall or winter jacket than a windbreaker or anything else.
+I don’t know if it was a dreary spring day or a dreary fall day, but I do know the day was dreary. Or “overcast” as they say in polite circles. Whatever the day was it was neither cold enough to stay indoors or warm enough to avoid wearing some jacket of some kind. And I am positive was wearing more of a fall or winter jacket than a windbreaker or anything else.
 
 All I know it was one of those days I wandered out of my home on Ocean Parkway, headed to the Boardwalk and hooked up with—and played with—whatever neighborhood friends I would bump into.
 
@@ -27,7 +27,7 @@ It wasn’t exactly dark, but not as brightly lit; light mainly came from the sl
 
 As I moved closer and started to notice a few shiny bits of hardware peeking through the sand. So I knelt down and moved some of the sand away with my hand and before you know it, I saw it: A wooden hatch leading to… Something below.
 
-I immediately got excited and called out to my freinds, “Hey! Come here!” And they did.
+I immediately got excited and called out to my friends, “Hey! Come here!” And they did.
 
 “What is it?” Someone said. “It’s some kind of a hatch,” I said as we all gathered around the hatch to gawk at it.
 
@@ -39,7 +39,7 @@ We all leaned over and peered down the hatch. We could see some kind of ladder r
 
 “You go down,” said someone. “No you do it,” said someone else. And this went on for a while. Then someone said, “Maybe we should get a flashlight?” And then someone else who lived nearby said they would. And with that, they were off to get a flashlight.
 
-The rest of us stood around and someone apparently had a book of matches on them. “Let me try this!” they said after they lit a few matches and knealt down to try and light up the hatch opening a bit more but it didn’t help. It just made us all worried that somehow he would drop the matches, set something beneath us in the hatch on fire and then… We would get in trouble. And nobody wanted that.
+The rest of us stood around and someone apparently had a book of matches on them. “Let me try this!” they said after they lit a few matches and knelt down to try and light up the hatch opening a bit more but it didn’t help. It just made us all worried that somehow he would drop the matches, set something beneath us in the hatch on fire and then… We would get in trouble. And nobody wanted that.
 
 After a while the kid who said he would get a flashlight was nowhere to be seen. But we could hear some people talking urgently in Russian as they walked on the boardwalk above us. Soon enough one of the voices made their way down the Boardwalk stairs, into the sand below and headed towards us.
 
@@ -49,9 +49,9 @@ He moved towards us and simply repeatedly said, “Please… Please…” as he 
 
 As we emerged from the area under the boardwalk the sun was brighter, but it was still cloudy. We stood back and watched as the guy came out from under the boardwalk, shot us a big smile and say, “No! Don’t go!” as he climbed up the stairs and back up to the boardwalk itself.
 
-Meeting him on the boardwalk were a few other guys who looked like him. One of them a bit cleaner, and a bit slicker. They all looked us over but clearly knew we were kids. Eventually after a short converstaion, they all walked away and waved at us and also added an occasional “No!” to the mix; wagging their fingers and pointing down under the boardwalk.
+Meeting him on the boardwalk were a few other guys who looked like him. One of them a bit cleaner, and a bit slicker. They all looked us over but clearly knew we were kids. Eventually after a short conversation, they all walked away and waved at us and also added an occasional “No!” to the mix; wagging their fingers and pointing down under the boardwalk.
 
-We all waved back and got back to playing. But tossing a ball wasn’t anywhere as much fun as gossiping and theorizing on what was under that hatch. “What do you think that was there?” one kid asked. And we all had no idea. This went on for a few more minutes until someoene said, “I gotta go home!” and soon enough we all gotta go home.
+We all waved back and got back to playing. But tossing a ball wasn’t anywhere as much fun as gossiping and theorizing on what was under that hatch. “What do you think that was there?” one kid asked. And we all had no idea. This went on for a few more minutes until someone said, “I gotta go home!” and soon enough we all gotta go home.
 
 And before you knew it I was up on the boardwalk headed back to Ocean Parkway with some seagulls squawking overhead and old people sitting around staring at the sea and doing not much of anything else.
 
