@@ -11,7 +11,11 @@ As I wandered, I passed tons of vendors selling silly string and those snap/pop 
 
 The guy who ran the table—and his wife—seemed to be very nice. The table—and area beneath it—was filled with stuff either culled from the garbage or the left over remains of someone’s apartmnent after they passed away. Odd tin cans and an array of tools littered the ground. Occassionally something nice like a small porcelain statuette would pop up, but that was it.
 
-I did eventually found a small array of misfit toys on the table, but nothing that reall interested me. As I was about to take off
+I did eventually found a small array of misfit toys on the table, but nothing that reall interested me. As I was about to take off, I spotted a pile of filled paper bags that were stapled shut near one side of the table. The sign near them said, “Grab Bags $1 Each.”
+
+So I asked the guy what was inside of them and he basiclaly said, “All kinds of stuff! Buy one and see!”
+
+“Yeah, buy one and see!” said a friend of mine who joined me in my wandering. So I gave him a dollar, and slowly moved my hand over the table to see 
 
 ***
 
