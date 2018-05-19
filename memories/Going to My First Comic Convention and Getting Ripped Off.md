@@ -1,0 +1,1 @@
+* and Finding Out I Got Ripped Off on “Battlestar Galactica” #1. Paid $3.25 for it From Phillip. Someone at the Convention Had a Pile of them Selling for 25 Cents
