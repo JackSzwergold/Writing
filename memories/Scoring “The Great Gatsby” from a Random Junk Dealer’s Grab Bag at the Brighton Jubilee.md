@@ -5,7 +5,7 @@ By Jack Szwergold
 
 The Brighton Jubilee was a street fair started by a neighborhood association back in the mid 1970s to help promote the neighborhood. Unlike modern street fairs that seem like cookie cutter afairs filled with the same or similar vendors selling the same or similar stuff, the Brighton Jubilee at the time was truly more of a local affair. Lots of local vendors and shops setup card tables and sold whatever they though they could sell. And if you kept your eyes peeled, you might find a true bargain.
 
-It was sometime in the early 1980s when I was wandering around the Brighton Jubilee looking for some cool stuff to score. While I was already in junior high school, I still had a big soft spot for novelties, pranks and magic. And there was always at least one vendor selling some of that stuff at this street fair.
+It was sometime in August in the early 1980s when I was wandering around the Brighton Jubilee looking for some cool stuff to score. While I was already in junior high school, I still had a big soft spot for novelties, pranks and magic. And there was always at least one vendor selling some of that stuff at this street fair.
 
 As I wandered, I passed tons of vendors selling silly string and those snap/pop things you tossed at the pavement but not much else. Then I stumbled across what could only be described as a small array of tables selling a truly random pile of junk around Brighton 13th Street.
 
@@ -15,7 +15,15 @@ I did eventually found a small array of misfit toys on the table, but nothing th
 
 So I asked the guy what was inside of them and he basiclaly said, “All kinds of stuff! Buy one and see!”
 
-“Yeah, buy one and see!” said a friend of mine who joined me in my wandering. So I gave him a dollar, and slowly moved my hand over the table to see 
+“Yeah, buy one and see!” said a friend of mine who joined me in my wandering. So I gave him a dollar, and slowly moved my hand over the table to see which of the bags would be mine… And soon enough I picked one out and stepped back.
+
+As I ripped open the stappled top of the bag and rolled it’s top open I looked in to see what I could see.
+
+Inside was a veritibale pile of tiny bits of junk: Some marbles, a few toy soldiers, some junky trading card and even a few pieces of hardware like a fuse and maybe even a ballpoint pen. But there looming in plain sight—but bigger than the other crap—was a copy of F. Scott Fitzgerald’s “The Great Gatsby.”
+
+“Wow!” my friend said, “That’s a good book!” he added. The guy who ran the junk table agreed, “You scored a good one!” he said as he looked on at me admiring my score while eyeing other people rummaging through his junk.
+
+“I never read this,” I added. In fact at that point in my young life I hated reading. It was always a chore and seemingly—based on the way that teachers treated it in lessons—some kind of chore or punsihment.
 
 ***
 
