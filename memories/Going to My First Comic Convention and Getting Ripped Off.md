@@ -3,8 +3,9 @@
 
 By Jack Szwergold
 
+**QUICK NOTES**: I paid $3.25 for a copy of “Battlestar Galactica” #1 from Phillip. Someone at the convention was wandering around and had a pile of them selling for 25 Cents
 
-Paid $3.25 for a copy of “Battlestar Galactica” #1 from Phillip. Someone at the convention was wandering around and had a pile of them selling for 25 Cents
+It was the 1970s, I was in elementary school and liked to buy comics. I 
 
 ***
 
