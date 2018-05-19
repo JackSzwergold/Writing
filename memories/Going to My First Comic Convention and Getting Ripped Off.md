@@ -33,6 +33,20 @@ Then—seemingly out of nowhere—Phillip came over to the table, sat down and o
 
 It was in a protective mylar bag and rested on an acid free backing board and we were all impressed. You only really spent the extra money for a bag and backing board for comics that are worth something.
 
+When he pulled the comic out we were a bit less impressed. The cover had some dings and folds and it was clearly already read; this comic was not in mint condition but rather it was “fair” to “good” at best.
+
+He passed it over to me and as I flipped through it he said, “You can have it for $5.” A few kids gasped and looked at each other. “$5?” I said, “This isn’t mint and it sold for 35 cents when you got it,” I added. He then came back at me and said, “Okay, how about $3.50.” To which I retorted, “I’ll give you $3.25 since that’s all I have.”
+
+There was a pause, and he said yes and with that I pulled out $3.25 in a mix of crumbled dollar bills and change from my pocket and paid him for it.
+
+As he took the money and I took the comic, I quickly place it back into the bag.
+
+“You know that’s gonna be worth something someday!” one of my friends said. I nodded and thought I made a good investment. I might have been only 10 years old at the time, but dreams of selling this comic for $15 or maybe $20 when I was 20 years old swam through my head.
+
+For the first time in my life I made a financial plan for the future and I was damned proud of myself.
+
+
+
 ***
 
 *Going to My First Comic Convention and Getting Ripped Off (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
