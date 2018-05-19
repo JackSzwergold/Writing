@@ -23,7 +23,13 @@ Inside was a veritibale pile of tiny bits of junk: Some marbles, a few toy soldi
 
 “Wow!” my friend said, “That’s a good book!” he added. The guy who ran the junk table agreed, “You scored a good one!” he said as he looked on at me admiring my score while eyeing other people rummaging through his junk.
 
-“I never read this,” I added. In fact at that point in my young life I hated reading. It was always a chore and seemingly—based on the way that teachers treated it in lessons—some kind of chore or punsihment.
+“I never read this,” I added. In fact at that point in my young life I hated reading. It was always a chore and seemingly—based on the way that teachers treated it in lessons—some kind of punishment that teachers bestowed upon kids. So I avoided reading whenever I could.
+
+But this time I was excited to read this book. I mean “The Great Gatsby” is a respectable book? And this time around I wasn’t being bullied, pressured or cajoled into reading it by some teacher. But rather I wanted to read it because I magically scored it out of a seemingly random bag of junk being sold by some guy just selling piles of junk. And it was honestly the first book I ever truly enjoyed reading in a few days from cover to cover.
+
+I could write about how Gatsby’s longing for Daisy resonated with me, but that would be a lie. There was little about the book I could relate to other than Gatsby was one level of rich kid living on Long Island longing for the love and attention of another level or rich kid living on Long Island: Daisy. But the core theme of the book is not what drew me in; the flow of the words is really what got to me. The ease of the prose and the seemingly honest expression of ideas—even if they weren’t things I could relate to—is what drew me in.
+
+And I learned all this on my own. Not thanks to any teacher or assignment but rather the pure luck of picking the right grab bag of junk at the right time from the right street vendor during a neighborhood street fair.
 
 ***
 
