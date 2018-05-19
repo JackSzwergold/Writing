@@ -45,7 +45,7 @@ As he took the money and I took the comic, I quickly place it back into the bag.
 
 For the first time in my life I made a financial plan for the future and I was damned proud of myself.
 
-
+When I got home I showed my dad what I bought and he was feigning pride thinking I only paid the 35 cents cover price for it. Then I told him how much I actually paid for it and he exclaimed, “What?!?!” as I blubbered and said it would be worth something someday. “Okay,” he said. “But you have to take care of it,” he added. I nodded yes as I took it back to my room and carefully stored it way at the bottom beneath all of the other comics in my night stand.
 
 ***
 
