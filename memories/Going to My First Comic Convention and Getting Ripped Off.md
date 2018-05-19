@@ -23,7 +23,15 @@ Philip was a cool kid, but didn’t really mingle with our table. He was Philipi
 
 At that moment I just wanted to know if he had a copy, but the idea of getting it was something else. “Well, bring it in and let me see it,” I said.
 
-“Sure,” he said. “I’ll bring it in tomorrow,” he added.
+“Sure,” he said. “I’ll bring it in tomorrow,” he added as the teacher started to talk and we all started to listen.
+
+The next day we all waited at the lunch table for Philip to show up, but he was nowhere to be found. “Did he cut out of class?” someone asked to which we all shrugged and had nothing much else to add.
+
+Then—seemingly out of nowhere—Phillip came over to the table, sat down and opened up his bookbag.
+
+“Okay,” he said as he opened the flap of the olive drab Mussette book bag and pulled the copy of *Battlestar Galactica* #1 out from between some books.
+
+It was in a protective mylar bag and rested on an acid free backing board and we were all impressed. You only really spent the extra money for a bag and backing board for comics that are worth something.
 
 ***
 
