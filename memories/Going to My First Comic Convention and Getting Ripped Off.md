@@ -49,4 +49,8 @@ When I got home I showed my dad what I bought and he was feigning pride thinking
 
 ***
 
+A few weeks passed, and school had ended. While not exactly summer, it was a nice spring day when I got a call from a friend asking if I wanted to go to a comic convention in the city.
+
+***
+
 *Going to My First Comic Convention and Getting Ripped Off (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
