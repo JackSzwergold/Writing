@@ -9,7 +9,9 @@ All I know it was one of those days I wandered out of my home on Ocean Parkway, 
 
 As I headed east, it was clear that nobody was really doing anything at the 2nd Street playground, and the parking lot next to it that was filled with abandoned buses and stray dogs seemed to be closed. At least the small shack of a concession stand that stood in the middle of the place was closed for the day; so no snacks for me until later.
 
-It was around Brighton 6th Street I ran across some neighborhood friends and friends of friends playing ball and running around in the sand.
+But the dogs were barking that day and I always found that plesant, sad and disturbing.
+
+Anyway, I kept on walking and was around Brighton 6th Street when I ran across some neighborhood friends—and friends of friends as well as a few randos—playing ball and running around in the sand. So it seemed to me like it was the place to be.
 
 Playing ball basically consisted of tossing a Spalding ball around and maybe some kind of kickball. It was simple, stupid and social and I jumped in.
 
