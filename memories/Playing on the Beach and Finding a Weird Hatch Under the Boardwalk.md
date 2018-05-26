@@ -11,11 +11,13 @@ As I headed east, it was clear that nobody was really doing anything at the 2nd 
 
 But the dogs were barking that day and I always found that plesant, sad and disturbing.
 
-Anyway, I kept on walking and was around Brighton 6th Street when I ran across some neighborhood friends—and friends of friends as well as a few randos—playing ball and running around in the sand. So it seemed to me like it was the place to be.
+Anyway, I kept on walking and was around Brighton 6th Street when I ran across some neighborhood friends—and friends of friends as well as a few miscellaneous randos—playing ball and running around in the sand. So it seemed to me like it was the place for me to be. So I headed over to the sand and joined them.
 
-Playing ball basically consisted of tossing a Spalding ball around and maybe some kind of kickball. It was simple, stupid and social and I jumped in.
+***
 
-Despite the fact I was getting sand in my sneakers, it was a fun time. The boardwalk was quiet and the beach was quiet. Other than a few random seagulls and old people sitting on benches, we were on our own.
+“Playing ball” is a vague way of describing what we were doing but we were basically just tossing a pink Spalding rubber ball around and maybe some kind of kickball was mixed into the whole thing from time to time. Whatever we did, it was a simple, stupid, social and fun way to kill off some time during an off day as a kid.
+
+And despite the fact I was getting sand in my sneakers—which annoyed me only when I noticed it—it was a fun time. The boardwalk was quiet and the beach was quiet. Other than a few random seagulls and old people sitting on benches, we were on our own.
 
 At some point a ball came flying my way and flew over my head and right into the area under the boardwalk.
 
