@@ -39,9 +39,9 @@ I immediately got excited and called out to the other kids, “Hey! Come here!�
 
 “What is it?” Someone said. “It’s some kind of a hatch,” I said as we all gathered around my new discovery to gawk at—and theorize—about it.
 
-“Well, does it open up?” Someone asked. “I don’t know,” I said as a I leaned down and tried to find some way of opening the hatch up. In a few moments I found some kind of handle and pulled up the hatch.
+“Well, does it open up?” Someone asked. “I don’t know,” I said as a I leaned down, moved my hand across the hatch and tried to find some way of opening the thing. In a few moments I found some kind of handle and—pretty much instantaenously—pulled up and opened the hatch.
 
-It was hinged so the hatch would open towards the ocean, and we could all see some kind of rope on the inside of the hatch that was clearly used to pull the hatch closed when someone was inside. But what was inside? Who knew.
+The thing was hinged so the hatch would open towards the ocean, and we could all see some kind of rope on the inside of the hatch that was clearly used to pull it closed when someone was inside. But what was inside? Who knew.
 
 We all leaned over and peered down the hatch. We could see some kind of ladder running up the side. But what was at the bottom? Who knew. There wasn’t enough sunlight shining for us to seen that deeply and before you knew it, this small group of elementary school kids were debating who should go down.
 
