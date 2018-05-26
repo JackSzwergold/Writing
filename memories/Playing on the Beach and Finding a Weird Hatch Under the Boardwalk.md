@@ -45,9 +45,9 @@ The thing was hinged so the hatch would open towards the ocean, and we could all
 
 We all leaned over and peered down the hatch. Inside we could see some kind of ladder running up the side of the opening. But what was at the bottom? Who knew. There wasn’t enough sunlight shining for us to look down that deeply and before you knew it, this small group of elementary school kids were debating—and daring—each other as to who should go down and explore this new found place.
 
-“You go down,” said someone. “No you do it,” said someone else. And this went on for a while. Then someone said, “Maybe we should get a flashlight?” And then someone else who lived nearby said they would. And with that, they were off to get a flashlight.
+“You go,” said someone. “No you do it,” said someone else. And this went on for a while until someone said, “Maybe we should get a flashlight?” And then someone else who lived nearby said they would. And with that, whoever they were they were off to get a flashlight.
 
-The rest of us stood around and someone apparently had a book of matches on them. “Let me try this!” they said after they lit a few matches and knelt down to try and light up the hatch opening a bit more but it didn’t help. It just made us all worried that somehow he would drop the matches, set something beneath us in the hatch on fire and then… We would get in trouble. And nobody wanted that.
+The rest of us stood around waiting and thinking and then and someone realized they had a book of matches on them. “Let me try this!” they said after they lit a few matches and knelt down to try and light up the hatch opening a bit more but it didn’t help. It just made us all worried that somehow he would drop the matches, set something beneath us in the hatch on fire and then… We would get in trouble. And nobody wanted that.
 
 After a while the kid who said he would get a flashlight was nowhere to be seen. But we could hear some people talking urgently in Russian as they walked on the boardwalk above us. Soon enough one of the voices made their way down the Boardwalk stairs, into the sand below and headed towards us.
 
