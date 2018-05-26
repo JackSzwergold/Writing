@@ -15,9 +15,9 @@ The older guy who ran the table—and his wife—seemed to be very nice. The tab
 
 I poked around the table, and eventually found a small, humble array of misfit toys gathered around one corner of the table. But none of what I saw really interested me. When I was about to give up and move on to another vendor’s table, I spotted a bunch of stuffed paper bags—that were stapled shut—that had lots of hand drawn question marks and “$1” written on the side of them. The sign near them clearly explained: “Grab Bags $1 Each.”
 
-So I asked the guy what was inside of them and he basically said, “All kinds of stuff! Buy one and see!”
+So I asked the guy what was inside of those “Grab Bags” and he simply said, “All kinds of stuff! Buy one and see!”
 
-“Yeah, buy one and see!” said a friend of mine who joined me in my wandering. So I gave him a dollar, and slowly moved my hand over the table to see which of the bags would be mine… And soon enough I picked one out and stepped back.
+“Yeah, buy one and see!” said a friend of mine who joined me in my street fair wandering. So I gave him a dollar, and slowly moved my hand over the table to see which of the bags would be mine… And soon enough I picked one, stepped back and opened it.
 
 As I ripped open the stapled top of the bag and rolled it’s top open I looked in to see what I could see.
 
