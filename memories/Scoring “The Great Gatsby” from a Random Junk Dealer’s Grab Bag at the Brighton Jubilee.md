@@ -11,9 +11,9 @@ It was sometime in August in the early 1980s when I was wandering around the Bri
 
 As I wandered around, I passed tons of vendors selling silly string and those snap/pop things you threw on the sidewalk to make explode but not much else. Then I stumbled across what could only be described as a small array of tables selling a truly random—and questionable—pile of junk somewhere around Brighton 13th Street.
 
-The guy who ran the table—and his wife—seemed to be very nice. The table—and area beneath it—was filled with stuff either culled from the garbage or the left over remains (aka: “estate”) of someone’s apartment after they passed away. An oddball array of tin cans and an whole mess of hardware and related tools littered the ground. Occasionally something nice like a small porcelain statuette would pop up, but that was it.
+The older guy who ran the table—and his wife—seemed to be very nice. The table—and area beneath it, near it and around it—was filled with stuff either culled from the garbage or the left over detritus (aka: “estate”) from someone’s apartment after they passed away. An oddball array of tin cans and an whole mess of hardware and related tools littered the ground. Occasionally something nice like a small porcelain statuette would pop up, but that was about it.
 
-I did eventually found a small array of misfit toys on the table, but nothing that really interested me. As I was about to take off, I spotted a pile of filled paper bags that were stapled shut near one side of the table. The sign near them said, “Grab Bags $1 Each.”
+I poked around the table, and eventually found a small, humble array of misfit toys gathered around one corner of the table. But none of what I saw really interested me. As I was about to give up and move on to another vendor’s table, I spotted a bunch of filled—and stapled closed—paper bags that had lots of hand drawn question marks and “$1” written on the side of them. The sign near them clearly explained: “Grab Bags $1 Each.”
 
 So I asked the guy what was inside of them and he basically said, “All kinds of stuff! Buy one and see!”
 
