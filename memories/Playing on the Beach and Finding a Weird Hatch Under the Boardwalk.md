@@ -59,9 +59,9 @@ The urge to run was strong but it was too late: Soon enough one of the voices ma
 
 It was an older Russian man who was kinda bulky but built up; looked like a butcher or a deli man or someone who could carry a sack of produce on their shoulder without breaking a sweat.
 
-As he moved towards us he simply repeatedly said, “Please… Please…” as he closed the hatch and shooed us away from it.
+He moved towards us slowly, deliberately and repeatedly just said, “Please… Please…” as he git closer, closed the hatch and shooed us away from it and the area under the boardwalk.
 
-As we emerged from the area under the boardwalk the sun was brighter, but it was still cloudy. We stood back and watched as the guy came out from under the boardwalk, shot us a big smile and say, “No! Don’t go!” as he climbed up the stairs and back up to the boardwalk itself.
+Wehn we emerged from the area under the boardwalk the sun was brighter, but it was still cloudy. We stood back and watched as the guy came out from under the boardwalk, shot us a big smile and say, “No! Don’t go!” as he climbed up the stairs and back up to the boardwalk itself.
 
 Meeting him on the boardwalk were a few other guys who looked like him. One of them a bit cleaner, and a bit slicker. They all looked us over but clearly knew we were kids. Eventually after a short conversation, they all walked away and waved at us and also added an occasional “No!” to the mix; wagging their fingers and pointing down under the boardwalk.
 
