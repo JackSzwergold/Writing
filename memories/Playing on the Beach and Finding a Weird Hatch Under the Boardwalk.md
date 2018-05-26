@@ -25,7 +25,7 @@ At some point a ball came flying my way and flew straight over my head and right
 
 “Get it!” someone yelled. And as everyone’s stares confirmed, I missed the catch so I had to go and get it.
 
-The area under the boardwalk as typically dark, quiet and a bit creepy. But despite the day being overcast there was just enough light to make a small slice of the edge of the under boardwalk area bright enough to be approachable. So I approached it.
+The area under the boardwalk was typically dark, quiet and—in all honesty—a bit creepy; no clue where Ben E. King and the Drifters got the inspiration to sing praise to a place like that. But despite the day being overcast and cloudy there was just enough light to make a small area just under the edge of the under boardwalk bright enough to be approachable. So I approached it.
 
 I found the ball pretty quickly, but something else caught my eye. The sand was pretty undisturbed during this time of year, but for some reason there was a slight mound a few feet in. I could barely see what it was, but it seemed interesting. So I tossed the ball back to my playmates, and stepped a bit into the darkness to see what was up.
 
