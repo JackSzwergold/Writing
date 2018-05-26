@@ -3,7 +3,9 @@
 
 By Jack Szwergold
 
-The Brighton Jubilee was a street fair started by a neighborhood association back in the mid 1970s to help promote the neighborhood. Unlike modern street fairs that seem like cookie cutter affairs filled with the same or similar vendors selling the same or similar stuff, the Brighton Jubilee at the time was truly more of a local affair. Lots of local vendors and shops setup card tables and sold whatever they though they could sell. And if you kept your eyes peeled, you might find a true bargain.
+The Brighton Jubilee was a street fair started by a local Brighton Beach neighborhood association back in the mid-1970s to help promote the neighborhood. And the neighborhood needed a good promotional effort—if not a friendly slap on the back and some basic reassurance—at the time since as much as I loved it, it was indeed a depressing craphole in many ways.
+
+And unlike modern street fairs that seem like cookie cutter affairs filled with the same or similar vendors selling the same or similar stuff, the Brighton Jubilee—at the time at least—was truly more of a local neighborhood affair. Lots of local vendors and shops setup card tables and sold whatever they though they could sell. And if you kept your eyes peeled, you might find a true bargain.
 
 It was sometime in August in the early 1980s when I was wandering around the Brighton Jubilee looking for some cool stuff to score. While I was already in junior high school, I still had a big soft spot for novelties, pranks and magic. And there was always at least one vendor selling some of that stuff at this street fair.
 
