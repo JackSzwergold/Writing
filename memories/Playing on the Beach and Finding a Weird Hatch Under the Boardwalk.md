@@ -59,7 +59,7 @@ The urge to run was strong but it was too late: Soon enough one of the voices ma
 
 It was an older Russian man who was kinda bulky but built up; looked like a butcher or a deli man or someone who could carry a sack of produce on their shoulder without breaking a sweat.
 
-He moved towards us and simply repeatedly said, “Please… Please…” as he closed the hatch and shooed us away from it.
+As he moved towards us he simply repeatedly said, “Please… Please…” as he closed the hatch and shooed us away from it.
 
 As we emerged from the area under the boardwalk the sun was brighter, but it was still cloudy. We stood back and watched as the guy came out from under the boardwalk, shot us a big smile and say, “No! Don’t go!” as he climbed up the stairs and back up to the boardwalk itself.
 
