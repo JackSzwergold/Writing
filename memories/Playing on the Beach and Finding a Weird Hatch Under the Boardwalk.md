@@ -27,9 +27,11 @@ At some point a ball came flying my way and flew straight over my head and right
 
 The area under the boardwalk was typically dark, quiet and—in all honesty—a bit creepy; no clue where Ben E. King and the Drifters got the inspiration to sing praise to a place like that. But despite the day being overcast and cloudy there was just enough light to make a small area just under the edge of the boardwalk bright welcoming enough to be approachable. So I approached it.
 
-I found the ball pretty quickly, but something else caught my eye. The sand was pretty undisturbed during this time of year, but for some reason there was a slight mound a few feet in. I could barely see what it was, but it seemed interesting. So I tossed the ball back to my playmates, and stepped a bit into the darkness to see what was up.
+I found the ball pretty quickly, but something else caught my eye. The sand was pretty undisturbed and flattened by the wind during this time of year, but for some reason there was a slight mound a few feet from the beach facing side of the boardwalk. I could barely see what it was, but it seemed intriguing. So I ran out, tossed the ball back to the other kids, and then stepped a bit into the darkness to see what I could see.
 
-It wasn’t exactly dark, but not as brightly lit; light mainly came from the slats between the wooden boardwalk above. I looked at the area behind the mound and it was a bit flatter. Seemed like it was dug out sometime recently and was covered with a slight dusting of sand.
+Like I said earlier, it wasn’t exactly dark, but it definitely was not as brightly lit as where I found the ball; light mainly came down between the wooden slats that made up the boardwalk above. I looked at the area behind the mound and saw it was was a bit flatter, but definitely not windswept. It seemed like someone dug the area out sometime recently and was covered with a slight dusting of sand.
+
+
 
 As I moved closer and started to notice a few shiny bits of hardware peeking through the sand. So I knelt down and moved some of the sand away with my hand and before you know it, I saw it: A wooden hatch leading to… Something below.
 
