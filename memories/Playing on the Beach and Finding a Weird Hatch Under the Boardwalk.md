@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-I don’t know if it was a dreary spring day or a dreary fall day, but I do know the day was dreary. Or “overcast” as they say in polite circles. Whatever the day was it was neither cold enough to stay indoors or warm enough to avoid wearing some jacket of some kind. And I am positive was wearing more of a fall or winter jacket than a windbreaker or anything else.
+I don’t know if it was a dreary spring day or a dreary fall day, but I do know the day was dreary. It was a “blah” day but not completely misserable. Or perhaps it wa “overcast” as they say in polite circles. Whatever adjective you want to use the day was neither cold enough to make you want to stay indoors or warm enough to make you avoid wearing some jacket of some kind. And I am positive I was wearing some kind of fall or winter jacket rather than a windbreaker or anything similar to that.
 
 All I know it was one of those days I wandered out of my home on Ocean Parkway, headed to the Boardwalk and hooked up with—and played with—whatever neighborhood friends I would bump into.
 
