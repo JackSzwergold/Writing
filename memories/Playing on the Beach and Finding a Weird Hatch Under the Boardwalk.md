@@ -17,11 +17,13 @@ Anyway, I kept on walking and was around Brighton 6th Street when I ran across s
 
 “Playing ball” is a vague way of describing what we were doing but we were basically just tossing a pink Spalding rubber ball around and maybe some kind of kickball was mixed into the whole thing from time to time. Whatever we did, it was a simple, stupid, social and fun way to kill off some time during an off day as a kid.
 
-And despite the fact I was getting sand in my sneakers—which annoyed me only when I slowed down enought to notice it—playing around with this motley crew was a fun time. And other than a few random seagulls and old people sitting on benches, we were on our own: The boardwalk and the beach were both calm and quiet. 
+And despite the fact I was getting sand in my sneakers—which annoyed me only when I slowed down enought to notice it—playing around with this motley crew was a fun time. And other than a few random seagulls and old people sitting on benches, we were on our own: The boardwalk and the beach were both calm and quiet and this small bunch of kids was having fun. 
 
-At some point a ball came flying my way and flew over my head and right into the area under the boardwalk.
+***
 
-“Get it!” someone yelled. So I went to get it.
+At some point a ball came flying my way and flew straight over my head and right into the area under the boardwalk.
+
+“Get it!” someone yelled. And as everyone’s stares confirmed, I missed the catch so I had to go and get it.
 
 The area under the boardwalk as typically dark, quiet and a bit creepy. But despite the day being overcast there was just enough light to make a small slice of the edge of the under boardwalk area bright enough to be approachable. So I approached it.
 
