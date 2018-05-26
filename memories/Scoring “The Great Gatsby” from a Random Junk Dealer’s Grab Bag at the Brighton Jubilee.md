@@ -29,7 +29,7 @@ Inside was a humble mix junk: Some marbles, a few toy soldiers, some junky tradi
 
 “I never read this,” I added. In fact at that point in my young life I truly hated reading. It was always a chore and seemingly—based on the way that teachers treated it in lessons—some kind of punishment that teachers bestowed upon kids. So I avoided reading whenever I could.
 
-But this time I was actually excited to have—and read—a book. I mean “The Great Gatsby” is a respectable piece of literature, right? And this time around I wasn’t being bullied, pressured or cajoled into reading it by some miserable teacher. Rather, I wanted to read it because I somehow—via luck, magic or pure randomness—scored it out of a seemingly worthless bag of junk being sold by some guy just selling piles of junk.
+But this time I was actually excited to have—and read—a book. I mean “The Great Gatsby” is a respectable piece of literature, right? And this time around I wasn’t being bullied, pressured or cajoled into reading it by some miserable teacher. Rather, I wanted to read it because somehow—via luck, magic or pure randomness—I scored from a seemingly worthless bag of junk being sold for a $1 by some guy just selling piles of junk on the street.
 
 And it was honestly the first book I ever truly enjoyed reading in a few days from cover to cover.
 
