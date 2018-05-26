@@ -3,11 +3,11 @@
 
 By Jack Szwergold
 
-I don’t know if it was a dreary spring day or a dreary fall day, but I do know the day was dreary. It was a “blah” day but not completely misserable. Or perhaps it wa “overcast” as they say in polite circles. Whatever adjective you want to use the day was neither cold enough to make you want to stay indoors or warm enough to make you avoid wearing some jacket of some kind. And I am positive I was wearing some kind of fall or winter jacket rather than a windbreaker or anything similar to that.
+I don’t know if it was a dreary spring day or a dreary fall day, but I do know the day was dreary in some way. It was a “blah” day but not a completely misserable day. Or perhaps it was “overcast” as they say in polite circles? But whatever adjective you would want to use to describe it, the day was neither cold enough to make you want to stay indoors or warm enough to make you avoid wearing some jacket of some kind. And I am positive I was wearing some kind of fall or winter jacket rather than a windbreaker or anything as lightweight as that when I went outside.
 
-All I know it was one of those days I wandered out of my home on Ocean Parkway, headed to the Boardwalk and hooked up with—and played with—whatever neighborhood friends I would bump into.
+All I know it was one of those days I wandered out of my home on Ocean Parkway, headed to the nearby Boardwalk and hooked up with—and played with—whatever neighborhood friends I would bump into.
 
-Nobody was really doing anything at 2nd Street park, and the parking lot next to it that was filled with abandoned buses and stray dogs seemed to be closed. At least the small shack of a concession stand that stood in the middle of the place was closed for the day; so no snacks for me until later.
+As I headed east, it was clear that nobody was really doing anything at the 2nd Street playground, and the parking lot next to it that was filled with abandoned buses and stray dogs seemed to be closed. At least the small shack of a concession stand that stood in the middle of the place was closed for the day; so no snacks for me until later.
 
 It was around Brighton 6th Street I ran across some neighborhood friends and friends of friends playing ball and running around in the sand.
 
