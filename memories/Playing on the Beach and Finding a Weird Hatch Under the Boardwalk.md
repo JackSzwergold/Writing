@@ -43,7 +43,7 @@ I immediately got excited and called out to the other kids, “Hey! Come here!�
 
 The thing was hinged so the hatch would open towards the ocean, and we could all see some kind of rope on the inside of the hatch that was clearly used to pull it closed when someone was inside. But what was inside? Who knew.
 
-We all leaned over and peered down the hatch. We could see some kind of ladder running up the side. But what was at the bottom? Who knew. There wasn’t enough sunlight shining for us to seen that deeply and before you knew it, this small group of elementary school kids were debating who should go down.
+We all leaned over and peered down the hatch. Inside we could see some kind of ladder running up the side of the opening. But what was at the bottom? Who knew. There wasn’t enough sunlight shining for us to look down that deeply and before you knew it, this small group of elementary school kids were debating—and daring—each other as to who should go down and explore this new found place.
 
 “You go down,” said someone. “No you do it,” said someone else. And this went on for a while. Then someone said, “Maybe we should get a flashlight?” And then someone else who lived nearby said they would. And with that, they were off to get a flashlight.
 
