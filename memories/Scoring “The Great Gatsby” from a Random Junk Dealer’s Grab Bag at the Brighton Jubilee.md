@@ -29,7 +29,9 @@ Inside was a humble mix junk: Some marbles, a few toy soldiers, some junky tradi
 
 “I never read this,” I added. In fact at that point in my young life I truly hated reading. It was always a chore and seemingly—based on the way that teachers treated it in lessons—some kind of punishment that teachers bestowed upon kids. So I avoided reading whenever I could.
 
-But this time I was actually excited to have and read a book. I mean “The Great Gatsby” is a respectable piece of literature, right? And this time around I wasn’t being bullied, pressured or cajoled into reading it by some teacher. But rather I wanted to read it because I magically scored it out of a seemingly random bag of junk being sold by some guy just selling piles of junk. And it was honestly the first book I ever truly enjoyed reading in a few days from cover to cover.
+But this time I was actually excited to have—and read—a book. I mean “The Great Gatsby” is a respectable piece of literature, right? And this time around I wasn’t being bullied, pressured or cajoled into reading it by some miserable teacher. Rather, I wanted to read it because I somehow—via luck, magic or pure randomness—scored it out of a seemingly worthless bag of junk being sold by some guy just selling piles of junk.
+
+And it was honestly the first book I ever truly enjoyed reading in a few days from cover to cover.
 
 I could write about how Gatsby’s longing for Daisy resonated with me, but that would be a lie. There was little about the book I could relate to other than Gatsby was one level of rich kid living on Long Island longing for the love and attention of another level or rich kid living on Long Island: Daisy. But the core theme of the book is not what drew me in; the flow of the words is really what got to me. The ease of the prose and the seemingly honest expression of ideas—even if they weren’t things I could relate to—is what drew me in.
 
