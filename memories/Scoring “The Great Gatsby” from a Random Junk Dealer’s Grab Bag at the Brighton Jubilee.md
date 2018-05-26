@@ -17,11 +17,13 @@ I poked around the table, and eventually found a small, humble array of misfit t
 
 So I asked the guy what was inside of those “Grab Bags” and he simply said, “All kinds of stuff! Buy one and see!”
 
-“Yeah, buy one and see!” said a friend of mine who joined me in my street fair wandering. So I gave him a dollar, and slowly moved my hand over the table to see which of the bags would be mine… And soon enough I picked one, stepped back and opened it.
+“Yeah, buy one and see!” said a friend of mine who joined me in my street fair wandering. So I gave him a dollar, and slowly moved my hand over the table to see which of the bags would be mine… And soon enough I picked one, stepped back and began to open it.
 
-As I ripped open the stapled top of the bag and rolled it’s top open I looked in to see what I could see.
+***
 
-Inside was a veritable pile of tiny bits of junk: Some marbles, a few toy soldiers, some junky trading card and even a few pieces of hardware like a fuse and maybe even a ballpoint pen. But there looming in plain sight—but bigger than the other crap—was a copy of F. Scott Fitzgerald’s “The Great Gatsby.”
+I ripped open the stapled top of the bag and rolled it’s crumbled top open to look inside and see what I could see.
+
+Inside was a humble mix junk: Some marbles, a few toy soldiers, some junky trading cards and even a few pieces of hardware—like a fuse or electrical adapter—and even a semi-usable ballpoint pen. It was like a minature sampling of the items this guy sold at the table… But in a bag! But there mixed in with bthe other stuff—but physically bigger than the other junk—was a copy of F. Scott Fitzgerald’s “The Great Gatsby.”
 
 “Wow!” my friend said, “That’s a good book!” he added. The guy who ran the junk table agreed, “You scored a good one!” he said as he looked on at me admiring my score while eyeing other people rummaging through his junk.
 
