@@ -17,7 +17,7 @@ Anyway, I kept on walking and was around Brighton 6th Street when I ran across s
 
 “Playing ball” is a vague way of describing what we were doing but we were basically just tossing a pink Spalding rubber ball around and maybe some kind of kickball was mixed into the whole thing from time to time. Whatever we did, it was a simple, stupid, social and fun way to kill off some time during an off day as a kid.
 
-And despite the fact I was getting sand in my sneakers—which annoyed me only when I noticed it—it was a fun time. The boardwalk was quiet and the beach was quiet. Other than a few random seagulls and old people sitting on benches, we were on our own.
+And despite the fact I was getting sand in my sneakers—which annoyed me only when I slowed down enought to notice it—playing around with this motley crew was a fun time. And other than a few random seagulls and old people sitting on benches, we were on our own: The boardwalk and the beach were both calm and quiet. 
 
 At some point a ball came flying my way and flew over my head and right into the area under the boardwalk.
 
