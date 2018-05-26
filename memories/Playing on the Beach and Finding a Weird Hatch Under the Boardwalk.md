@@ -29,17 +29,17 @@ The area under the boardwalk was typically dark, quiet and—in all honesty—a 
 
 I found the ball pretty quickly, but something else caught my eye. The sand was pretty undisturbed and flattened by the wind during this time of year, but for some reason there was a slight mound a few feet from the beach facing side of the boardwalk. I could barely see what it was, but it seemed intriguing. So I ran out, tossed the ball back to the other kids, and then stepped a bit into the darkness to see what I could see.
 
-Like I said earlier, it wasn’t exactly dark, but it definitely was not as brightly lit as where I found the ball; light mainly came down between the wooden slats that made up the boardwalk above. I looked at the area behind the mound and saw it was was a bit flatter, but definitely not windswept. It seemed like someone dug the area out sometime recently and was covered with a slight dusting of sand.
+Like I said earlier, it wasn’t exactly dark, but it definitely was not as brightly lit as where I found the ball; light mainly came down between the wooden slats that made up the boardwalk above. I looked at the area behind the mound and saw it was was a bit flatter, but definitely not windswept. It seemed as if someone had recently dug out the area and it simply had a light dusting of sand between now and whenever that was.
 
+As I moved closer to the area, I started to notice a few shiny bits of hardware peeking through the sand. I knelt down and brushed away some of the sand with my hand and before you knew it, I saw it: A wooden hatch leading to… Something below.
 
+I immediately got excited and called out to the other kids, “Hey! Come here!” And they did.
 
-As I moved closer and started to notice a few shiny bits of hardware peeking through the sand. So I knelt down and moved some of the sand away with my hand and before you know it, I saw it: A wooden hatch leading to… Something below.
+***
 
-I immediately got excited and called out to my friends, “Hey! Come here!” And they did.
+“What is it?” Someone said. “It’s some kind of a hatch,” I said as we all gathered around my new discovery to gawk at—and theorize—about it.
 
-“What is it?” Someone said. “It’s some kind of a hatch,” I said as we all gathered around the hatch to gawk at it.
-
-“Well, does it open up?” Someone asked. “I don’t know, ” I said as a I leaned down and tried to find some way of opening the hatch up. In a few moments I found some kind of handle and pulled up the hatch.
+“Well, does it open up?” Someone asked. “I don’t know,” I said as a I leaned down and tried to find some way of opening the hatch up. In a few moments I found some kind of handle and pulled up the hatch.
 
 It was hinged so the hatch would open towards the ocean, and we could all see some kind of rope on the inside of the hatch that was clearly used to pull the hatch closed when someone was inside. But what was inside? Who knew.
 
