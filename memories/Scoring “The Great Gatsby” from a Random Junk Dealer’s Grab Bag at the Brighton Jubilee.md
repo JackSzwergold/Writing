@@ -13,7 +13,7 @@ As I wandered around, I passed tons of vendors selling silly string and those sn
 
 The older guy who ran the table—and his wife—seemed to be very nice. The table—and area beneath it, near it and around it—was filled with stuff either culled from the garbage or the left over detritus (aka: “estate”) from someone’s apartment after they passed away. An oddball array of tin cans and an whole mess of hardware and related tools littered the ground. Occasionally something nice like a small porcelain statuette would pop up, but that was about it.
 
-I poked around the table, and eventually found a small, humble array of misfit toys gathered around one corner of the table. But none of what I saw really interested me. As I was about to give up and move on to another vendor’s table, I spotted a bunch of filled—and stapled closed—paper bags that had lots of hand drawn question marks and “$1” written on the side of them. The sign near them clearly explained: “Grab Bags $1 Each.”
+I poked around the table, and eventually found a small, humble array of misfit toys gathered around one corner of the table. But none of what I saw really interested me. When I was about to give up and move on to another vendor’s table, I spotted a bunch of stuffed paper bags—that were stapled shut—that had lots of hand drawn question marks and “$1” written on the side of them. The sign near them clearly explained: “Grab Bags $1 Each.”
 
 So I asked the guy what was inside of them and he basically said, “All kinds of stuff! Buy one and see!”
 
