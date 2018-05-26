@@ -61,7 +61,7 @@ It was an older Russian man who was kinda bulky but built up; looked like a butc
 
 He moved towards us slowly, deliberately and repeatedly just said, “Please… Please…” as he git closer, closed the hatch and shooed us away from it and the area under the boardwalk.
 
-Wehn we emerged from the area under the boardwalk the sun was brighter, but it was still cloudy. We stood back and watched as the guy came out from under the boardwalk, shot us a big smile and say, “No! Don’t go!” as he climbed up the stairs and back up to the boardwalk itself.
+As we emerged from the area under the boardwalk the sun was brighter, but it was still cloudy and overcase. We stood in the sand and watched as the guy came out from under the boardwalk, shot us a big smile, pointed to the mound near the hatch and said, “No! Don’t go!” as he climbed up the stairs and back up to the boardwalk itself.
 
 Meeting him on the boardwalk were a few other guys who looked like him. One of them a bit cleaner, and a bit slicker. They all looked us over but clearly knew we were kids. Eventually after a short conversation, they all walked away and waved at us and also added an occasional “No!” to the mix; wagging their fingers and pointing down under the boardwalk.
 
