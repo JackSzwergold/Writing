@@ -7,7 +7,7 @@ The Brighton Jubilee was a street fair started by a local Brighton Beach neighbo
 
 And unlike modern street fairs that seem like cookie cutter affairs filled with the same or similar vendors selling the same or similar stuff, the Brighton Jubilee—at least in it’s early years—was truly more of a local neighborhood affair. Lots of local vendors and shops setup card tables and sold whatever they thought they could sell. And if you kept your eyes peeled, you might find a true cool bargain.
 
-It was sometime in August in the early 1980s when I was wandering around the Brighton Jubilee looking for some cool stuff to score. While I was already in junior high school, I still had a big soft spot for novelties, pranks and magic. You know, joy buzzers, invisble ink and trick ice cubes with flies in them and stuff like that. And there was always at least one vendor selling some of that kinda of stuff at this street fair.
+It was sometime in August in the early 1980s when I was wandering around the Brighton Jubilee looking for some cool stuff to score. While I was already in junior high school, I still had a big soft spot for novelties, pranks and magic. You know, joy buzzers, invisible ink and trick ice cubes with flies in them and stuff like that. And there was always at least one vendor selling some of that kinda of stuff at this street fair.
 
 As I wandered around, I passed tons of vendors selling silly string and those snap/pop things you threw on the sidewalk to make explode but not much else. Then I stumbled across what could only be described as a small array of tables selling a truly random—and questionable—pile of junk somewhere around Brighton 13th Street.
 
@@ -23,7 +23,7 @@ So I asked the guy what was inside of those “Grab Bags” and he simply said, 
 
 I ripped open the stapled top of the bag and rolled it’s crumbled top open to look inside and see what I could see.
 
-Inside was a humble mix junk: Some marbles, a few toy soldiers, some junky trading cards and even a few pieces of hardware—like a fuse or electrical adapter—and even a semi-usable ballpoint pen. It was like a minature sampling of the items this guy sold at the table… But in a bag! But there mixed in with bthe other stuff—but physically bigger than the other junk—was a slightly water damaged copy of F. Scott Fitzgerald’s “The Great Gatsby.”
+Inside was a humble mix junk: Some marbles, a few toy soldiers, some junky trading cards and even a few pieces of hardware—like a fuse or electrical adapter—and even a semi-usable ballpoint pen. It was like a miniature sampling of the items this guy sold at the table… But in a bag! But there mixed in with the other stuff—but physically bigger than the other junk—was a slightly water damaged copy of F. Scott Fitzgerald’s “The Great Gatsby.”
 
 “Wow!” my friend said, “That’s a good book!” he added. The guy who ran the junk table agreed, “You scored a good one!” he said as he looked at me admiring my score while simultaneously eyeing other people rummaging through his junk.
 
@@ -31,7 +31,7 @@ Inside was a humble mix junk: Some marbles, a few toy soldiers, some junky tradi
 
 But this time I was actually excited to have—and read—a book. I mean “The Great Gatsby” is a respectable piece of literature, right? And this time around I wasn’t being bullied, pressured or cajoled into reading it by some miserable teacher. Rather, I wanted to read it because somehow—via luck, magic or pure randomness—I scored from a seemingly worthless bag of junk being sold for a $1 by some guy just selling piles of junk on the street.
 
-And it was honestly the first book—other than a random array of children’s books—I ever realy enjoyed reading in any way.
+And it was honestly the first book—other than a random array of children’s books—I ever really enjoyed reading in any way.
 
 I could write a pile of bullshit about how Gatsby’s longing for Daisy—and the themes of social class aspiration—resonated with me, but that would be a lie. There was little about the book I could relate to other than Gatsby was one level of rich kid living on Long Island longing for the love and attention of another level or rich kid living on Long Island: Daisy. But the core theme of the book is not what drew me in; the flow of the words is really what got to me. The ease of the prose and the seemingly honest expression of ideas and imagery—even if they weren’t things I could relate to—is what drew me in.
 
