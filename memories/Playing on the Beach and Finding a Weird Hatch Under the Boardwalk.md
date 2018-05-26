@@ -65,7 +65,7 @@ As we emerged from the area under the boardwalk the sun was brighter, but it was
 
 Up on the boardwalk he regrouped with a few other guys who kinda looked like him but were a lot less friendly. They all looked us over but clearly knew we were just kids. Eventually after a short conversation, they all walked away and waved at us and also added an occasional “No!” to the mix; wagging their fingers and pointing down to the area under the boardwalk.
 
-We all waved back and slowly got back to playing. But by that point tossing a ball around wasn’t anywhere as much fun as yammering away and theorizing on what was under that hatch. “What do you think that was there?” one kid asked. And we all had no idea. This went on for a few more minutes until someone said, “I gotta go home!” and soon enough we all gotta go home.
+We all waved back and slowly got back to playing. But by that point tossing a ball around wasn’t anywhere as much fun as yammering away and theorizing on what was under that hatch. “What do you think that was there?” one kid asked. And we all had no idea. This went on for a few more minutes until someone said, “I gotta go home!” and soon enough we all dispersed and went back home.
 
 And before you knew it I was up on the boardwalk headed back to Ocean Parkway with some seagulls squawking overhead and old people sitting around staring at the sea and doing not much of anything else.
 
