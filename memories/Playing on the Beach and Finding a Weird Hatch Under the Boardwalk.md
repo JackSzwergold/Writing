@@ -53,7 +53,9 @@ But it didn’t help.
 
 While the lit matches were nice and bright, his arms weren’t long enough and he couldn’t reach down deep enough. Not to mention the idea of hanging a flaming object down that hole made us all worried that somehow he would just drop the matches and set something below us on fire. And that would just get is in trouble and nobody wanted that.
 
-After a while the kid who said he would get a flashlight was nowhere to be seen. But we could hear some people talking urgently in Russian as they walked on the boardwalk above us. Soon enough one of the voices made their way down the Boardwalk stairs, into the sand below and headed towards us.
+After a while, someone said we should wait to get a flashlight. But the kid who said he would get a flashlight was nowhere to be seen. But seeing what we could see was not a top priority at that moment because we had a new thing to worry about: We heard some people talking urgently in Russian as they walked on the boardwalk above us.
+
+The urge to run was strong but it was too late: Soon enough one of the voices made their way down the Boardwalk stairs, onto the sand below and headed towards straight us.
 
 It was an older Russian man who was kinda bulky but built up; looked like a butcher or a deli man or someone who could carry a sack of produce on their shoulder without breaking a sweat.
 
