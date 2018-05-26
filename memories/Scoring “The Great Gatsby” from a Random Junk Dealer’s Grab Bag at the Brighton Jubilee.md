@@ -23,9 +23,9 @@ So I asked the guy what was inside of those “Grab Bags” and he simply said, 
 
 I ripped open the stapled top of the bag and rolled it’s crumbled top open to look inside and see what I could see.
 
-Inside was a humble mix junk: Some marbles, a few toy soldiers, some junky trading cards and even a few pieces of hardware—like a fuse or electrical adapter—and even a semi-usable ballpoint pen. It was like a minature sampling of the items this guy sold at the table… But in a bag! But there mixed in with bthe other stuff—but physically bigger than the other junk—was a copy of F. Scott Fitzgerald’s “The Great Gatsby.”
+Inside was a humble mix junk: Some marbles, a few toy soldiers, some junky trading cards and even a few pieces of hardware—like a fuse or electrical adapter—and even a semi-usable ballpoint pen. It was like a minature sampling of the items this guy sold at the table… But in a bag! But there mixed in with bthe other stuff—but physically bigger than the other junk—was a slightly water damaged copy of F. Scott Fitzgerald’s “The Great Gatsby.”
 
-“Wow!” my friend said, “That’s a good book!” he added. The guy who ran the junk table agreed, “You scored a good one!” he said as he looked on at me admiring my score while eyeing other people rummaging through his junk.
+“Wow!” my friend said, “That’s a good book!” he added. The guy who ran the junk table agreed, “You scored a good one!” he said as he looked on at me admiring my score while simultaneously eyeing other people rummaging through his junk.
 
 “I never read this,” I added. In fact at that point in my young life I hated reading. It was always a chore and seemingly—based on the way that teachers treated it in lessons—some kind of punishment that teachers bestowed upon kids. So I avoided reading whenever I could.
 
