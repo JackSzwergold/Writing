@@ -63,9 +63,9 @@ He moved towards us slowly, deliberately and repeatedly just said, “Please… 
 
 As we emerged from the area under the boardwalk the sun was brighter, but it was still cloudy and overcase. We stood in the sand and watched as the guy came out from under the boardwalk, shot us a big smile, pointed to the mound near the hatch and said, “No! Don’t go!” as he climbed up the stairs and back up to the boardwalk itself.
 
-Meeting him on the boardwalk were a few other guys who looked like him. One of them a bit cleaner, and a bit slicker. They all looked us over but clearly knew we were kids. Eventually after a short conversation, they all walked away and waved at us and also added an occasional “No!” to the mix; wagging their fingers and pointing down under the boardwalk.
+Up on the boardwalk he regrouped with a few other guys who kinda looked like him but were a lot less friendly. They all looked us over but clearly knew we were just kids. Eventually after a short conversation, they all walked away and waved at us and also added an occasional “No!” to the mix; wagging their fingers and pointing down to the area under the boardwalk.
 
-We all waved back and got back to playing. But tossing a ball wasn’t anywhere as much fun as gossiping and theorizing on what was under that hatch. “What do you think that was there?” one kid asked. And we all had no idea. This went on for a few more minutes until someone said, “I gotta go home!” and soon enough we all gotta go home.
+We all waved back and slowly got back to playing. But by that point tossing a ball around wasn’t anywhere as much fun as yammering away and theorizing on what was under that hatch. “What do you think that was there?” one kid asked. And we all had no idea. This went on for a few more minutes until someone said, “I gotta go home!” and soon enough we all gotta go home.
 
 And before you knew it I was up on the boardwalk headed back to Ocean Parkway with some seagulls squawking overhead and old people sitting around staring at the sea and doing not much of anything else.
 
