@@ -31,7 +31,13 @@ I ran out of the store and showed the candles to my dad. He looked at the packag
 
 ***
 
-So when I got home I looked at the trick candles in their little plastic bubble, still glued to that cardboard backing paper: They looked just like normal, basic blue tiny birthday cake candles. But just a tad thicker on the wick. I wanted to try one, but was afraid I would burn down the apartment and jusr
+So when I got home I looked at the trick candles in their little plastic bubble, still glued to that cardboard backing paper: They looked just like normal, basic blue tiny birthday cake candles. But just a tad thicker on the wick. I wanted to try one, but was afraid I would burn down the apartment. And nobody wanted that.
+
+Instead I thought about Howie’s birthday, and how I could suprise him with these candles we both wanted to see in action.
+
+***
+
+
 
 ***
 
