@@ -15,6 +15,20 @@ Looking through movie ads in a newspaper like the *Daily News* back then was a w
 
 Generally, most of the films out at the time didn’t really appeal to me at the time. I liked cartoons and other short, ephemeral stuff you could catch on TV so movies seemed like more of an adult thing to me anyway.
 
+But on this Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the plot was, but two things grabbed my attention: One, this was a movie that featured a dog as a lawyer—briefcase and everything—and this particular showing gave me the chance to meet Goofy in person! My mind was blown!
+
+I ran over to my dad and showed him the ad, “I want to see this!” I said as I pointed my newsprint covered fingers to the ad for “The Shaggy D.A.” that had a special appearance by Goofy.
+
+My dad wasn’t incredulous or dismissive, but took my request seriously. “So this is next weekend,” he said. “So we’ll go then, okay?” he added and I nodded.
+
+He circled the ad with a ballpoint pen and gave the movie section back to me.
+
+I was thrilled and happy.
+
+***
+
+A week passed and we were ready to head into “The City” to see “The Shaggy D.A.” It was an overcast
+
 ***
 
 *Going to See the Shaggy DA in Times Square in the 1970s with My Dad (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
