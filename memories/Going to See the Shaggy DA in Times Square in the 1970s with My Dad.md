@@ -39,7 +39,9 @@ It wasn’t clear whether Goofy would come out before or after the film. So we a
 
 And when it ended, I was relieved. The lights came up and someone up front in an official looking usher outfit basically annouced that Goofy was here to greet people. And all the kids were excited.
 
+There, running up the aisle and adjusting his “head” with his big, white Goofy gloves every few seconds was Goofy himself. Goofy didn’t give out anything I remembered, but he would stop and pose for pictures as well as shake hands. My dad didn’t have a camera back then, so we just waited for Goofy to come by and shake our hands.
 
+Goofy came close to me, grabbed my hand and shook it pretty violently. I mean I was a 7 year old kid at the time and felt it all the way up to my shoulder.
 
 ***
 
