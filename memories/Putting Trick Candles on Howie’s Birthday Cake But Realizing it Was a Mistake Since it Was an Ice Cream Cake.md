@@ -65,7 +65,19 @@ It was an ice cream cake. And I had no idea. I never saw the box, but after she 
 
 But then as Howie started to blow at the candles, cracks in my prank plans started to show up. Yeah, Howie was getting frustrated trying to blow out the trick candles. And I carefully watched as seemingly blown out candle wicks would magically—and literally—spark back to life. So it was cool seeing how those things worked. But as Howie got more and more frustrated, the cake below was clearly melting more and more.
 
-Was it the heat from the day? The heat from the candles? The heat from a pile of people stuck in a crammed kitchen in a badly ventilated apartment? Who knew.
+Was it the heat from the day? The heat from the candles? The heat from a pile of people stuck in a crammed kitchen in a badly ventilated apartment? Who knew. All I knew is the fact the candles weren’t blowing out right away on each of the many blows didn’t really help much. So I blurted out, “They’re trick candles! They won’t blow out!” And then added I’m sorry.
+
+And with that his mom rushed over, pulled the candles out of the cake as his dad grabbed the cake to cut it up so we could all have a slice.
+
+The ice cream icing was a bit melted, so the cake was not a complete loss. But Howie wasn’t that happy.
+
+“Here,” I said as I handled him his gift: The pack of remaining trick candles. His face was a bit red and there were some tears near his eyes from getting upset about the candles, but he wiped them away and became focused on the candles.
+
+“Where did you get them?” he asked. “Cameo,” I said. “Sorry about the cake I said.”
+
+He wiped his face a bit and said, “Nah… No big deal. The cake is still good.” as he dipped his fork into the ice cream cake slice he had in front of him and put the unused trick candles back onto the table.
+
+His parents and friends weren’t that upset. But I made note of it since it was the first prank I ever pulled on anyone.
 
 ***
 
