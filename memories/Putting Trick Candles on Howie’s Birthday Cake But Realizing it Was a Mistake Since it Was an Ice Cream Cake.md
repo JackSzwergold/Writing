@@ -59,7 +59,13 @@ As she lit the last candle, we heard the front door locks on the apartment jostl
 
 As his dad put bags of stuff down on the living room couch he shouted, “Howie! Check what mom made for you in the kitchen. And with that he walked in and we all shouted “Happy Birthday!”
 
+Howie was clearly stunned and happy. He sat down at the table and looked at the cake. For all intents and purposes, the cake looked like a normal cake. But then I notcied the icing was slowly getting shinier and smoother as time passed. “Blow out the candles Howie!” his mom said, “The ice cream is going to melt!” she added.
 
+It was an ice cream cake. And I had no idea. I never saw the box, but after she said that I looked in the trash and there it was: An empty Carvel ice cream cake box from the corner. Damn! I liked ice cream, cake and Carvel ice cream so this was going to be good.
+
+But then as Howie started to blow at the candles, cracks in my prank plans started to show up. Yeah, Howie was getting frustrated trying to blow out the trick candles. And I carefully watched as seemingly blown out candle wicks would magically—and literally—spark back to life. So it was cool seeing how those things worked. But as Howie got more and more frustrated, the cake below was clearly melting more and more.
+
+Was it the heat from the day? The heat from the candles? The heat from a pile of people stuck in a crammed kitchen in a badly ventilated apartment? Who knew.
 
 ***
 
