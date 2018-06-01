@@ -21,7 +21,7 @@ So the dream of owning and using trick candles had to be put on hold.
 
 ***
 
-Flash forward a few weeks and while out shopping with my dad around Brighton 6th Street I asked if we could stop inside of a stationery store called “Cameo” so I could see what I could see and he agreed.
+Flash forward a few days and while out shopping with my dad around Brighton 6th Street I asked if we could stop inside of a stationery store called “Cameo” so I could see what I could see and he agreed.
 
 I went inside and poked around to see what I could see. But it seemed like the same batch of the same old same old and such and nothing that interested me… Until I spied something on a rack, right next to piles of number candles: A pack of trick candles. I was shocked! This place had those candles? I had to score some!
 
@@ -30,6 +30,8 @@ So checked the price—which was about $1.50 or so—checked my pocket change an
 I ran out of the store and showed the candles to my dad. He looked at the package and carefully read the writing, “‘Trick Candles?’ Why do you need this?” I just grinned and shrugged and headed back home.
 
 ***
+
+So when I got home I looked at the trick candles in their little plastic bubble, still glued to that cardboard backing paper: They looked just like normal, basic blue tiny birthday cake candles. But just a tad thicker on the wick. I wanted to try one, but was afraid I would burn down the apartment and jusr
 
 ***
 
