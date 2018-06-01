@@ -3,8 +3,7 @@
 
 By Jack Szwergold
 
-
-…
+Howie was a good friend. A neighborhood friend. I didn’t go to school with him like most of the other kids I knew, but we saw each other pretty much every day in that slither of outdoor “play in the streets” time that existed between 3:00pm-ish and 6:00pm-ish each day
 
 ***
 
