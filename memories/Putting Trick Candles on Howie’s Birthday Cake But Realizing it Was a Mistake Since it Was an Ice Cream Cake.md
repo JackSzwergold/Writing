@@ -51,7 +51,15 @@ One of our mutual neighborhood friends, Arthur, noticed me thinking a bit too mu
 
 Within seconds we were done, and I took the swapped out “normal” candles and shoved them into my pocket, making sure to separate them from pack of remaining trick candles I had.
 
-Soon enough Howie and his parents and few other kids
+Soon enough Howie’s mom and few other kids came back into the kitchen. “Shhhh…” his mom said as she started to light the candles, “We want to suprise him,” she added.
+
+As she lit the candles, I watched them wondering how they worked. They seemed the same as regular candles even when lit, so I was extra psyched.
+
+As she lit the last candle, we heard the front door locks on the apartment jostle and—soon enough—the front door was opened. Howie’s dad came in first followed by Howie right behind.
+
+As his dad put bags of stuff down on the living room couch he shouted, “Howie! Check what mom made for you in the kitchen. And with that he walked in and we all shouted “Happy Birthday!”
+
+
 
 ***
 
