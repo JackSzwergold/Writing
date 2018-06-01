@@ -27,7 +27,19 @@ I was thrilled and happy.
 
 ***
 
-A week passed and we were ready to head into “The City” to see “The Shaggy D.A.” It was an overcast
+A week passed and we were ready to head into “The City” to see “The Shaggy D.A.” It was an overcast—and somewhat dreary—winter day and the D train ride to Times Square was kinda quiet and calm.
+
+We got off at Times Square and—as typical—I was entralled an confused by all of the lights, dirt, grime and general disrepair of the area at the time. On the one hand, there was some kind of arcades and entertainment around, but for a small 7 year old kid this was a somewhat scary place. I so I made sure to hold my dad’s hand as we made our way to the movie theater.
+
+The movie theater itself was truly a dumpy black-box grindhouse of a theater. While it was—in some ways—similar to the dumpy theaters I had seen in my then short life in Brooklyn, those were mainly just aging and falling apart. In contrast this Times Square theater seemed beat up and vandalized. But I didn’t feel unsafe in there; just unimpressed that this would be the place where I would meet the legendary Goofy himself in person.
+
+We sat down and got ready to watch the film. The audience consisted of an array of parents and kids all waiting for the same reason: To see the film and to meet Goofy.
+
+It wasn’t clear whether Goofy would come out before or after the film. So we all sat and waited. And then—with little fanfare—the film began. And you know what? It really stunk. I have no idea to this day what the plot was but will say this: The second the dog lawyer showed with his briefcase—and sometimes wearing a hat—I was into that. But past that, I couldn’t wait for the film to end.
+
+And when it ended, I was relieved. The lights came up and someone up front in an official looking usher outfit basically annouced that Goofy was here to greet people. And all the kids were excited.
+
+
 
 ***
 
