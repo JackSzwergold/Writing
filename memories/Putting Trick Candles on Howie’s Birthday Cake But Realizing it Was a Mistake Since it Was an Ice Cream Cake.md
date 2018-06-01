@@ -7,7 +7,7 @@ Howie was a good friend. A neighborhood friend. I didn’t go to school with him
 
 It was the summer and his birthday was coming up and everyone on the block was excited. Nobody on the block ever had a big birthday party but all celebrations were special. And we were all excited to wish him a happy birthday and get am small loot bag of random crap that every parent seemed to give every kid back then.
 
-These gift bags were small, simple and mainly filled with novleties and other junk us kids would typically get from a vending machine on the corner. But now—thanks to the celebration of someone’s something—we got to get a bag of this fun junk for free. And that’s really all us kids wanted: Free, fun junk.
+These gift bags were small, simple and mainly filled with novelties and other junk us kids would typically get from a vending machine on the corner. But now—thanks to the celebration of someone’s something—we got to get a bag of this fun junk for free. And that’s really all us kids wanted: Free, fun junk.
 
 One of the the things Howie and I usually did was compare notes on where we could find fun junk. Back in the 1970s, it wasn’t like you could only get toys at one special store. Tons of the cool stuff would usually be found on the racks of corner stores and delis. And past that, there was mail order.
 
@@ -33,7 +33,7 @@ I ran out of the store and showed the candles to my dad. He looked at the packag
 
 So when I got home I looked at the trick candles in their little plastic bubble, still glued to that cardboard backing paper: They looked just like normal, basic blue tiny birthday cake candles. But just a tad thicker on the wick. I wanted to try one, but was afraid I would burn down the apartment. And nobody wanted that.
 
-Instead I thought about Howie’s birthday, and how I could suprise him with these candles we both wanted to see in action.
+Instead I thought about Howie’s birthday, and how I could surprise him with these candles we both wanted to see in action.
 
 ***
 
@@ -41,7 +41,7 @@ A few days passed and it was time for Howie’s birthday. I almost forgot about 
 
 My plan was to use the candles on Howie’s birthday cake. Watch him struggle to blow the candles out, and then when he was just at the edge of being frustrated, I would pull out my gift for him: The pack of remaining trick candles he wanted! What a perfect plan, right?
 
-Anyway, so I was back outside until Howie’s mom showed up and invited us all upstairs to celbrate Howie’s birthday.
+Anyway, so I was back outside until Howie’s mom showed up and invited us all upstairs to celebrate Howie’s birthday.
 
 We all followed her up the stairs of the tenement up to their family’s apartment. It was like everyone else’s apartment back then: Small dinky and somewhat crammed. The cake was in the kitchen was small, dinky and crammed as well.
 
@@ -51,7 +51,7 @@ One of our mutual neighborhood friends, Arthur, noticed me thinking a bit too mu
 
 Within seconds we were done, and I took the swapped out “normal” candles and shoved them into my pocket, making sure to separate them from pack of remaining trick candles I had.
 
-Soon enough Howie’s mom and few other kids came back into the kitchen. “Shhhh…” his mom said as she started to light the candles, “We want to suprise him,” she added.
+Soon enough Howie’s mom and few other kids came back into the kitchen. “Shhhh…” his mom said as she started to light the candles, “We want to surprise him,” she added.
 
 As she lit the candles, I watched them wondering how they worked. They seemed the same as regular candles even when lit, so I was extra psyched.
 
@@ -59,7 +59,7 @@ As she lit the last candle, we heard the front door locks on the apartment jostl
 
 As his dad put bags of stuff down on the living room couch he shouted, “Howie! Check what mom made for you in the kitchen. And with that he walked in and we all shouted “Happy Birthday!”
 
-Howie was clearly stunned and happy. He sat down at the table and looked at the cake. For all intents and purposes, the cake looked like a normal cake. But then I notcied the icing was slowly getting shinier and smoother as time passed. “Blow out the candles Howie!” his mom said, “The ice cream is going to melt!” she added.
+Howie was clearly stunned and happy. He sat down at the table and looked at the cake. For all intents and purposes, the cake looked like a normal cake. But then I noticed the icing was slowly getting shinier and smoother as time passed. “Blow out the candles Howie!” his mom said, “The ice cream is going to melt!” she added.
 
 It was an ice cream cake. And I had no idea. I never saw the box, but after she said that I looked in the trash and there it was: An empty Carvel ice cream cake box from the corner. Damn! I liked ice cream, cake and Carvel ice cream so this was going to be good.
 
