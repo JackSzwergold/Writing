@@ -45,6 +45,8 @@ Goofy came close to me, grabbed my hand and shook it pretty violently. I mean I 
 
 Soon enough, Goofy disappeared out the front door of the theater and so did the rest of us.
 
+Walking back to the subway after the encounter was just as creepy and odd as it was walking to the theater. We passed Nathan’s and my dad asked if I was hungry and I shook my head “No!” and with that we headed back to the D train and back home to Brighton Beach.
+
 ***
 
 *Going to See the Shaggy DA in Times Square in the 1970s with My Dad (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
