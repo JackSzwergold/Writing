@@ -39,7 +39,9 @@ Instead I thought about Howie’s upcoming birthday, and how I could surprise hi
 
 ***
 
-A few days passed and it was time for Howie’s birthday. I almost forgot about it to be honest with you until someone I was playing outside with mentioned it to me. I rushed up to my apartment, ran into my apartment, grabbed the trick candles out of my desk, shoved them in my pocket and headed outside.
+A few days passed and it was time for Howie’s birthday. I almost forgot about it to be honest with you until someone I was playing outside with mentioned it to me. I rushed up the stairs of my building, ran into my apartment, grabbed the trick candles out of my desk, shoved them in my pocket and headed straight outside.
+
+Today was the day!
 
 My plan was to use the candles on Howie’s birthday cake. Watch him struggle to blow the candles out, and then when he was just at the edge of being frustrated, I would pull out my gift for him: The pack of remaining trick candles he wanted! What a perfect plan, right?
 
