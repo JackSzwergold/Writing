@@ -15,13 +15,13 @@ But sometimes I would flip through the movie section to see what movies were com
 
 ***
 
-While there technically was an MPAA movie ratings system in place at the time, that was mainly to control who could see movies in a theater. It didn’t really cover where ads were actually placed in newspapers. And ads for movies of all kinds seemed to be placed arbitrarilly at best in newspapers back then. Sometimes ads for G rated films were placed right next to more adult oriented PG or R rated films… And sometimes even next to X rated films!
+While there technically was an MPAA movie ratings system in place at the time, that was mainly to control who could see movies in a theater. It didn’t really cover where ads were actually placed in newspapers. And ads for movies of all kinds seemed to be placed arbitrarily at best in newspapers back then. Sometimes ads for G rated films were placed right next to more adult oriented PG or R rated films… And sometimes even next to X rated films!
 
 As a 7 year old kid, most of the films out at the time didn’t really appeal to me. I liked cartoons and other short attention span—and many literally short—ephemeral stuff you could catch on TV. So movies always seemed like more of an adult thing to me anyway.
 
 But on that specific Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the movie was about didn’t care because two key things grabbed my attention: One, this was a movie that featured a dog as a lawyer and two, this particular screening of the movie in Times Square would give me the opportunity to meet Goofy in person! My mind was blown! I had to see this movie!
 
-I ran over to my dad and entusiastically showed him the ad, “I want to see this movie!” I said as I pointed my tiny newsprint covered fingers to the ad for “The Shaggy D.A.” that had a special appearance by Goofy.
+I ran over to my dad and enthusiastically showed him the ad, “I want to see this movie!” I said as I pointed my tiny newsprint covered fingers to the ad for “The Shaggy D.A.” that had a special appearance by Goofy.
 
 My dad wasn’t incredulous, dismissive, exasperated or patronizing but took my request seriously. He lifted up the paper, looked at the ad and said “So this is next weekend, right?” he said. “So we’ll go then, okay?” he added and I nodded.
 
@@ -53,7 +53,7 @@ Soon enough there he was! Goofy himself enthusiastically running up the aisle, a
 
 My dad didn’t have a camera back then, so we just waited patiently near the edge of the aisle for Goofy to come by and shake our hands with his big, white gloved hand.
 
-Without much warning, Goofy came close to me, grabbed my hand and shook it pretty violently. I mean I was a 7 year old kid at the time and felt the heavy wave of the shake all the way up my arm and up to my shoulder. He shook my dad’s hand as well and—to my dad’s credit—he feigned genuine excitement when he exclaimed with kind-hearted, calculatd dad-joy that he had just met Goofy.
+Without much warning, Goofy came close to me, grabbed my hand and shook it pretty violently. I mean I was a 7 year old kid at the time and felt the heavy wave of the shake all the way up my arm and up to my shoulder. He shook my dad’s hand as well and—to my dad’s credit—he feigned genuine excitement when he exclaimed with kind-hearted, calculated dad-joy that he had just met Goofy.
 
 And as quickly and suddenly as he appeared, Goofy ran up the aisle and disappeared out the main doors of the theater. And soon enough the rest of us followed his lead and headed out onto the streets of Times Square.
 
