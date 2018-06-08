@@ -61,9 +61,9 @@ Soon enough Howie’s mom and few other kids came back into the kitchen. “Shhh
 
 As she lit the candles, I looked at their wicks and wondered how they worked. They superfically seemed the same as regular candles even when lit, so I was extra psyched by this whole thing.
 
-As she lit the last candle, we heard the front door locks on the apartment jostle and—soon enough—the front door was opened. Howie’s dad came in first followed by Howie right behind.
+Just as she lit the last candle, we heard the front door locks on the apartment jostle and—soon enough—the front door was opened. Howie’s dad came in first followed by Howie right behind.
 
-As his dad put bags of stuff down on the living room couch he shouted, “Howie! Check what mom made for you in the kitchen. And with that he walked in and we all shouted “Happy Birthday!”
+As his dad put bags of stuff down on the living room couch he shouted, “Howie! Check what mom made for you in the kitchen.” And with that he walked in and we all shouted “Happy Birthday!”
 
 Howie was clearly stunned and happy. He sat down at the table and looked at the cake. For all intents and purposes, the cake looked like a normal cake. But then I noticed the icing was slowly getting shinier and smoother as time passed. “Blow out the candles Howie!” his mom said, “The ice cream is going to melt!” she added.
 
