@@ -41,7 +41,11 @@ While it was in some ways similar to the dumpy neighborhood theaters I had seen 
 
 In contrast this dumpy Times Square theater seemed be actively beat up and vandalized on a regular basis as a part of normal business. But as dumpy and dingy as it was, I didn’t feel unsafe there; just unimpressed that this would be the place where I would meet the legendary Goofy himself in person.
 
-We sat down and got ready to watch the film. The audience consisted of an array of parents and kids all waiting for the same reason: To see the film and to meet Goofy.
+***
+
+After buying tickets at the beat up box office, my dad and I sat down and got ready to watch the film. A quick glance around the place showed that the makeup of the audience was a similar array of parents and kids all 
+
+waiting for the same reason: To see the film and to meet Goofy.
 
 It wasn’t clear whether Goofy would come out before or after the film. So we all sat and waited. And then—with little fanfare—the film began. And you know what? It really stunk. I have no idea to this day what the plot was but will say this: The second the dog lawyer showed with his briefcase—and sometimes wearing a hat—I was into that. But past that, I couldn’t wait for the film to end.
 
