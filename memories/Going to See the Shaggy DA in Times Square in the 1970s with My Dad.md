@@ -17,7 +17,7 @@ While there technically was an MPAA movie ratings system in place at the time, t
 
 As a 7 year old kid, most of the films out at the time didn’t really appeal to me. I liked cartoons and other short attention span—and many literally short—ephemeral stuff you could catch on TV. So movies always seemed like more of an adult thing to me anyway.
 
-But on that Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the movie was about didn’t care becausse two key things grabbed my attention: One, this was a movie that featured a dog as a lawyer and this particular showing gave me the chance to meet Goofy in person! My mind was blown!
+But on that Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the movie was about didn’t care becausse two key things grabbed my attention: One, this was a movie that featured a dog as a lawyer and two, this particular screening of the movie would give me the opportunity to meet Goofy in person! My mind was blown!
 
 I ran over to my dad and showed him the ad, “I want to see this!” I said as I pointed my newsprint covered fingers to the ad for “The Shaggy D.A.” that had a special appearance by Goofy.
 
