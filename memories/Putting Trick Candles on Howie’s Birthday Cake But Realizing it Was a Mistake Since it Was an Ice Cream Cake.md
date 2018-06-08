@@ -5,7 +5,7 @@ By Jack Szwergold
 
 In the 1970s, Howie was a good neighborhood friend. I didn’t go to school with him—like most of the other kids I knew at the time—but we saw each other pretty much every day during that small slide of outdoor “play in the streets” time that existed between 3:00pm-ish and 6:00pm-ish each day.
 
-It was the summer and his birthday was coming up and everyone on the block was excited. Nobody on the block ever had a big, ovetblown birthday party but all celebrations in the neighborhood—big and small—were special. We were all excited to wish him a happy birthday and get a small “loot bag” of random fun crap that every parent seemed to give every kid back then.
+It was the summer and his birthday was coming up and everyone on the block was excited. Nobody on the block ever had a big, overblown birthday party but all celebrations in the neighborhood—big and small—were special. We were all excited to wish him a happy birthday and get a small “loot bag” of random fun crap that every parent seemed to give every kid back then.
 
 These loot bags were small, simple and mainly filled with novelties and other junk us kids would typically get from a vending machine on the corner from anywhere from 5 cents to 25 cents a pop. But now—thanks to the celebration of someone’s something special event—we got to get a small bag of this fun junk for free. And that’s really all us kids wanted: Free and fun junk.
 
@@ -27,11 +27,11 @@ I went inside and poked around to see what I could see. But it seemed like the s
 
 So I checked the price on the pack of trick candles—which was about $1.50 or so—then checked my pocket change and realized had just enough to score them.
 
-I ran out of the store holding a small paper bag that had the candles and proudly showed the candles to my dad. He looked at the package and carefully read the writing, “‘Trick Candles?’ We have candles! Why do you need this? Whatr are trick candles?” I just smiled and shrugged and headed back home.
+I ran out of the store holding a small paper bag that had the candles and proudly showed the candles to my dad. He looked at the package and carefully read the writing, “‘Trick Candles?’ We have candles! Why do you need this? What are trick candles?” I just smiled and shrugged and headed back home.
 
 ***
 
-When I got home—and settled down in my room—I looked at the package of trick candles with awe and wonder. They were still sealed in their little plastic bubble that was glued to the cardboard backing board and—to my young eyes—they seemed just like your everyday, normal, basic, run-of-the-mill tiny blue birthday cake candles. But looking at the wick at the top revealed a small difference: The wick on the trick candles were a little bit thicker—and greyer—than normal candles.
+When I got home—and settled down in my room—I looked at the package of trick candles with awe and wonder. They were still sealed in their little plastic bubble that was glued to the cardboard backing board and—to my young eyes—they seemed just like your everyday, normal, basic, run-of-the-mill tiny blue birthday cake candles. But looking at the wick at the top revealed a small difference: The wick on the trick candles were a little bit thicker—and grayer—than normal candles.
 
 I really wanted to try one of them out to see how they worked, but was genuinely afraid I would burn down the apartment. And nobody wanted that.
 
@@ -59,7 +59,7 @@ Within less than a minute we were done. I took the already swapped out “normal
 
 Soon enough Howie’s mom and few other kids came back into the kitchen. “Shhhh…” his mom said as she started to light the candles, “We want to surprise him,” she added.
 
-As she lit the candles, I looked at their wicks and wondered how they worked. They superfically seemed the same as regular candles even when lit, so I was extra psyched by this whole thing.
+As she lit the candles, I looked at their wicks and wondered how they worked. They superficially seemed the same as regular candles even when lit, so I was extra psyched by this whole thing.
 
 Just as she lit the last candle, we heard the front door locks on the apartment jostle and—soon enough—the front door was opened. Howie’s dad came in first followed by Howie right behind.
 
@@ -69,15 +69,15 @@ Howie was clearly stunned and happy as he walked in, sat down at the table and l
 
 Ice cream? It was an ice cream cake! And I had no idea since I never saw the box it came in and the cake looked like every round, frosted yellow cake I had ever seen. But after she said that I looked in the trash and there it was: An empty Carvel ice cream cake box from around the corner. Damn! I liked cake, ice cream and Carvel ice cream specifically so this was going to be good!
 
-But then—as Howie attemped to blow out the candles— cracks in my brilliant prank/gift plans started to appear. Yeah, Howie was getting visibilty frustrated trying to blow out the trick candles. And I carefully watched as the seemingly blown out candle wicks would magically—and literally—spark back to life. So it was cool seeing how those damned things worked. But as Howie got more and more frustrated, the ice cream cake beneath the candles was clearly melting more and more.
+But then—as Howie attempted to blow out the candles— cracks in my brilliant prank/gift plans started to appear. Yeah, Howie was getting visibility frustrated trying to blow out the trick candles. And I carefully watched as the seemingly blown out candle wicks would magically—and literally—spark back to life. So it was cool seeing how those damned things worked. But as Howie got more and more frustrated, the ice cream cake beneath the candles was clearly melting more and more.
 
-Was it because of the heat generated by the trick candles? Was it because the heat of the hot, New York summer day? Was it because of heat from a pile of people stuck in a crammed kitchen in a badly ventilated tennement apartment?
+Was it because of the heat generated by the trick candles? Was it because the heat of the hot, New York summer day? Was it because of heat from a pile of people stuck in a crammed kitchen in a badly ventilated tenement apartment?
 
 Who knew.
 
-All I knew is the fact those trick candles weren’t blowing out right away on each of the many attempts Howie made to blow them out didn’t really help much. And I was startng to feel guilty about it all. So I blurted out, “They’re trick candles! They won’t blow out!” And then added, “I’m sorry.”
+All I knew is the fact those trick candles weren’t blowing out right away on each of the many attempts Howie made to blow them out didn’t really help much. And I was starting to feel guilty about it all. So I blurted out, “They’re trick candles! They won’t blow out!” And then added, “I’m sorry.”
 
-And with that his mom rushed over to the cake abd pulled out the candles as his dad grabbed the cake to cut it up so we could all have a slice.
+And with that his mom rushed over to the cake and pulled out the candles as his dad grabbed the cake to cut it up so we could all have a slice.
 
 The ice cream icing was a bit melted, but the main core of the ice cream cake was still solid so it was not a complete loss. But Howie clearly wasn’t that happy about what just happened.
 
