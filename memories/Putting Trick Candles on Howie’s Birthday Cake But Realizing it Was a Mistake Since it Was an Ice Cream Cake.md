@@ -49,9 +49,11 @@ Anyway, so I was back outside playing around when Howie’s mom showed up and in
 
 We all followed her up the stairs of the building they lived in and followed her into their family’s apartment. It was like everyone else’s apartment in the neighborhood back then: Small dinky and somewhat crammed. The birthday cake was in the kitchen that was small, dinky and crammed as well.
 
-As everyone jockeyed for position, I was trying to figure out how to swap out the candles; which happily weren’t lit yet. I don’t recall what birthday we were celebrating at the time, but it was a good bet this was his 8th birthday. So I had to quickly swap out 8 candles.
+As everyone jockeyed for position, I was trying to figure out how to swap out the candles; which happily weren’t lit yet. I don’t recall what birthday we were celebrating at the time, but it was a good bet this was his 8th birthday. So I figured I had to somehow quickly swap out 8 candles.
 
-One of our mutual neighborhood friends, Arthur, noticed me thinking a bit too much and asked what was up. I showed him the trick candles and told him what I wanted to do. “Cool!” he said. We both looked around and realized that somehow we were the only ones left alone in the kitchen. So we decided that was a sign and both scrambled to swap out the candles. It was pretty easy to do since they were placed in those small, dinky plastic holders.
+One of our mutual neighborhood friends, Arthur, noticed me thinking a bit too much and asked what was up. I showed him the trick candles and told him what I wanted to do. “Cool!” he said.
+
+With that we both looked around and realized that somehow we were the only ones left alone in the kitchen. So we decided that was our chance and we both scrambled to swap out the candles before anyone came back. It was pretty easy to do since they were placed in those small, dinky plastic holders.
 
 Within seconds we were done, and I took the swapped out “normal” candles and shoved them into my pocket, making sure to separate them from pack of remaining trick candles I had.
 
