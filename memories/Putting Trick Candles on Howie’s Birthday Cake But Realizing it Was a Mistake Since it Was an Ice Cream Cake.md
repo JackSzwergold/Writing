@@ -31,9 +31,9 @@ I ran out of the store holding a small paper bag that had the candles and proudl
 
 ***
 
-When I got home—and settled down in my room—I looked at the package of trick candles with awe and wonder. They were still sealed in their little plastic bubble that was glued to the cardboard backing board and—to my young eyes—they seemed just like your everyday, normal, basic, run-of-the-mill tiny blue birthday cake candles. But looking at the wick at the top revealed a small difference: The wick on the wick on the trick candles were a little bit thicker and greyer than normal candles.
+When I got home—and settled down in my room—I looked at the package of trick candles with awe and wonder. They were still sealed in their little plastic bubble that was glued to the cardboard backing board and—to my young eyes—they seemed just like your everyday, normal, basic, run-of-the-mill tiny blue birthday cake candles. But looking at the wick at the top revealed a small difference: The wick on the trick candles were a little bit thicker—and greyer—than normal candles.
 
-I really wanted to try one out to see how they worked, but was afraid I would burn down the apartment. And nobody wanted that.
+I really wanted to try one of them out to see how they worked, but was genuinely afraid I would burn down the apartment. And nobody wanted that.
 
 Instead I thought about Howie’s birthday, and how I could surprise him with these candles we both wanted to see in action.
 
