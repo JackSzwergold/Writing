@@ -69,7 +69,7 @@ Howie was clearly stunned and happy as he walked in, sat down at the table and l
 
 Ice cream? It was an ice cream cake! And I had no idea since I never saw the box it came in and the cake looked like every round, frosted yellow cake I had ever seen. But after she said that I looked in the trash and there it was: An empty Carvel ice cream cake box from around the corner. Damn! I liked cake, ice cream and Carvel ice cream specifically so this was going to be good!
 
-But then as Howie started to blow at the candles, cracks in my prank plans started to show up. Yeah, Howie was getting frustrated trying to blow out the trick candles. And I carefully watched as seemingly blown out candle wicks would magically—and literally—spark back to life. So it was cool seeing how those things worked. But as Howie got more and more frustrated, the cake below was clearly melting more and more.
+But then—as Howie attemped to blow out the candles— cracks in my brilliant prank/gift plans started to appear. Yeah, Howie was getting visibilty frustrated trying to blow out the trick candles. And I carefully watched as the seemingly blown out candle wicks would magically—and literally—spark back to life. So it was cool seeing how those damned things worked. But as Howie got more and more frustrated, the cake beneath the candles was clearly melting more and more.
 
 Was it the heat from the day? The heat from the candles? The heat from a pile of people stuck in a crammed kitchen in a badly ventilated apartment? Who knew. All I knew is the fact the candles weren’t blowing out right away on each of the many blows didn’t really help much. So I blurted out, “They’re trick candles! They won’t blow out!” And then added I’m sorry.
 
