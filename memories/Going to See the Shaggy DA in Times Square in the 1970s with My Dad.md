@@ -3,9 +3,9 @@
 
 By Jack Szwergold
 
-I really liked reading the Sunday newspaper in the 1970s. And by “reading” I mean “flipping through” and by “Sunday newspaper” I mean *The New York Daily News*.
+I really liked reading the Sunday newspaper in the 1970s. And by “reading” I mean “flipping through.” And by “Sunday newspaper” I mean *The New York Daily News*. *The Daily News* was the only newspaper in our home back in the 1970s.
 
-*The Daily News* was the only newspaper in my home back in the 1970s. At least it was the only newspaper on most days my dad could get it; on those rare days it was sold out my dad would grab a copy of *The New York Post*; but that is neither here nor there.
+At least it was the only newspaper on the days my dad could get it. On those rare days my dad decided to buy it later in the day—and by then it was sold out—he would just grab a copy of *The New York Post* as a stop-gap measure… But none of that is neither here nor there.
 
 On Sundays in my parent’s home it was the Sunday *Daily News* and not much else.
 
