@@ -13,7 +13,7 @@ I typically would scour through the comics and colorful sales circulars to squee
 
 But sometimes I would flip through the movie section to see what movies were coming out. And looking through movie ads in a working class newspaper like the *Daily News* back then was a weird experience for a kid.
 
-While a movie ratings system was still in place, ads for G rated films were typically placed right next to more adult oriented PG and R rated films. Sometimes even X rated films!
+While there technically was an MPAA movie ratings system in place at the time, that didn’t really cover ad placement. And ads for movies of all kinds seemed to be placed arbitrarilly at best. Sometimes ads for G rated films were placed right next to more adult oriented PG and R rated films. And sometimes even X rated films!
 
 Generally, most of the films out at the time didn’t really appeal to me at the time. I liked cartoons and other short, ephemeral stuff you could catch on TV so movies seemed like more of an adult thing to me anyway.
 
