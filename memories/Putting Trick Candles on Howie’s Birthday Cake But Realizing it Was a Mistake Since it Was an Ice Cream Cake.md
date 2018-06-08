@@ -9,7 +9,7 @@ It was the summer and his birthday was coming up and everyone on the block was e
 
 These loot bags were small, simple and mainly filled with novelties and other junk us kids would typically get from a vending machine on the corner from anywhere from 5 cents to 25 cents a pop. But now—thanks to the celebration of someone’s something special event—we got to get a small bag of this fun junk for free. And that’s really all us kids wanted: Free and fun junk.
 
-One of the the things Howie and I usually did was compare notes on where we could find fun junk. Back in the 1970s, it wasn’t like you could only get toys at one special store. Tons of the cool stuff would usually be found on the racks of corner stores and delis. And past that, there was mail order.
+One of the the things Howie and I usually did was informslly compare notes on where we could find fun junk. Back in the 1970s, it wasn’t like you could only get toys at one special toy store. Tons of the cool stuff would usually be found on the racks of corner stores and delis. Stuff that was sold to shop owners by random door to door salesmen or local distributors dumping stuff on local stores as some kind of bonus for the owner buying a pile of something else. And past that, there was mail order.
 
 I don’t think I was fully aware of the Johnson Smith catalog back then—a novelty catalog filled with all kinds of stuff—but we did share tips on cool stuff we saw in more commonly available items, like comics.
 
