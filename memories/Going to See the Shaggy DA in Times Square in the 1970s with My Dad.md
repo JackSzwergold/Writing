@@ -31,7 +31,7 @@ I was thrilled and happy as I looked at the ad with the fresh circle of blue ink
 
 ***
 
-A week passed and we were ready to head into “The City” (aka: Manhattan) to see “The Shaggy D.A.” It was an overcast—and somewhat dreary—winter day and the D train ride to Times Square was kinda quiet and calm.
+A week passed and we were ready to head into “The City” (aka: Manhattan) to see “The Shaggy D.A.” It was an overcast—and somewhat dreary—winter day and the D train ride to Times Square was kinda quiet, calm and uneventful.
 
 We got off at Times Square and—as typical—I was enthralled an confused by all of the lights, dirt, grime and general disrepair of the area at the time. On the one hand, there was some kind of arcades and entertainment around, but for a small 7 year old kid this was a somewhat scary place. I so I made sure to hold my dad’s hand as we made our way to the movie theater.
 
