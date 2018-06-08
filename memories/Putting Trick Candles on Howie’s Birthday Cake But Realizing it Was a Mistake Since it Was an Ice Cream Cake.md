@@ -85,9 +85,9 @@ The ice cream icing was a bit melted, but the main core of the ice cream cake wa
 
 “Where did you get them?” he asked. “Cameo,” I said. “Sorry about the cake,” I added.
 
-He wiped his face a bit and said, “Nah… No big deal.” “The cake is still good,” he added as he dipped his fork into an ice cream cake slice he had in front of him and put the unused trick candles on the table.
+He wiped his face a bit and said, “Nah… No big deal.” “The cake is still good,” he added as he dipped his fork into an ice cream cake slice and put the unused trick candles on the table right next to it.
 
-His parents and friends weren’t that upset. But I made note of it since it was the first prank I ever pulled on anyone.
+His parents and friends weren’t that upset either. But I made note of what happened since it was the first prank I ever pulled on anyone and it wasn’t exactly as much fun as I thought it would be.
 
 ***
 
