@@ -51,7 +51,7 @@ And when that turd of a film ended, I was relieved. The lights came up and someo
 
 Soon enough there he was! Goofy himself enthusiastically running up the aisle, adjusting his “head” with his big, white Goofy gloves every few seconds. I don’t recall Goofy or his entourage giving out any cool promotional swag to his fans—like some keychains, stickers, pamphlets or something like that—but he mainly just walked around, greeted fans and was kind enough to stop and pose for pictures as well.
 
-My dad didn’t have a camera back then, so we just waited for Goofy to come by and shake our hands.
+My dad didn’t have a camera back then, so we just waited patiently near the edge of the aisle for Goofy to come by and shake our hands with his big, white gloved hand.
 
 Goofy came close to me, grabbed my hand and shook it pretty violently. I mean I was a 7 year old kid at the time and felt it all the way up to my shoulder. He shook my dad’s hand as well and—to his credit—my dad feigned excitement when he exclaimed with excitement that he had just met Goofy.
 
