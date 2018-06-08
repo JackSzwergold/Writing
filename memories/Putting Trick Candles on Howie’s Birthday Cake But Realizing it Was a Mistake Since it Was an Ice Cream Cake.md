@@ -35,7 +35,7 @@ When I got home—and settled down in my room—I looked at the package of trick
 
 I really wanted to try one of them out to see how they worked, but was genuinely afraid I would burn down the apartment. And nobody wanted that.
 
-Instead I thought about Howie’s birthday, and how I could surprise him with these candles we both wanted to see in action.
+Instead I thought about Howie’s upcoming birthday, and how I could surprise him with these magical trick candles we both wanted to see in action.
 
 ***
 
