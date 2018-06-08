@@ -33,7 +33,7 @@ I was thrilled and happy as I looked at the ad with the fresh circle of blue ink
 
 A week passed and we were ready to head into “The City” (aka: Manhattan) to see “The Shaggy D.A.” It was an overcast—and somewhat dreary—winter day and the D train ride to Times Square was kinda quiet, calm and uneventful.
 
-We got off at Times Square and—as typical—I was enthralled an confused by all of the lights, dirt, grime and general disrepair of the area at the time. On the one hand, there was some kind of arcades and entertainment around, but for a small 7 year old kid this was a somewhat scary place. I so I made sure to hold my dad’s hand as we made our way to the movie theater.
+We got off at Times Square and—as typical—I was enthralled an confused by all of the lights, dirt, grime and general disrepair of the area at the time. On the one hand, there was an array of oddball arcades and entertainment around that sort of reminded me of Coney Island… But nowhere near as kid friendly as Coney Island was even back then. But for a small 7 year old kid—even a kid who was from a crappy neighborhood himself—this was a somewhat scary place. So I made sure to hold my dad’s hand as we made our way through the streets of Times Square and headed to the movie theater.
 
 The movie theater itself was truly a dumpy black-box grind-house of a theater. While it was—in some ways—similar to the dumpy theaters I had seen in my then short life in Brooklyn, those were mainly just aging and falling apart. In contrast this Times Square theater seemed beat up and vandalized. But I didn’t feel unsafe in there; just unimpressed that this would be the place where I would meet the legendary Goofy himself in person.
 
