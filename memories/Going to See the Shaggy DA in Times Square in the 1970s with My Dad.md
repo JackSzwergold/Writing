@@ -19,7 +19,7 @@ While there technically was an MPAA movie ratings system in place at the time, t
 
 As a 7 year old kid, most of the films out at the time didn’t really appeal to me. I liked cartoons and other short attention span—and many literally short—ephemeral stuff you could catch on TV. So movies always seemed like more of an adult thing to me anyway.
 
-But on that specific Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the movie was about didn’t care becausse two key things grabbed my attention: One, this was a movie that featured a dog as a lawyer and two, this particular screening of the movie would give me the opportunity to meet Goofy in person! My mind was blown! I had to see this movie!
+But on that specific Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the movie was about didn’t care because two key things grabbed my attention: One, this was a movie that featured a dog as a lawyer and two, this particular screening of the movie would give me the opportunity to meet Goofy in person! My mind was blown! I had to see this movie!
 
 I ran over to my dad and entusiastically showed him the ad, “I want to see this movie!” I said as I pointed my tiny newsprint covered fingers to the ad for “The Shaggy D.A.” that had a special appearance by Goofy.
 
@@ -31,7 +31,7 @@ I was thrilled and happy as I looked at the ad with the fresh circle of blue ink
 
 ***
 
-A week passed and we were ready to head into “The City” to see “The Shaggy D.A.” It was an overcast—and somewhat dreary—winter day and the D train ride to Times Square was kinda quiet and calm.
+A week passed and we were ready to head into “The City” (aka: Manhattan) to see “The Shaggy D.A.” It was an overcast—and somewhat dreary—winter day and the D train ride to Times Square was kinda quiet and calm.
 
 We got off at Times Square and—as typical—I was enthralled an confused by all of the lights, dirt, grime and general disrepair of the area at the time. On the one hand, there was some kind of arcades and entertainment around, but for a small 7 year old kid this was a somewhat scary place. I so I made sure to hold my dad’s hand as we made our way to the movie theater.
 
