@@ -35,7 +35,11 @@ A week passed and we were ready to head into “The City” (aka: Manhattan) to 
 
 We got off at Times Square and—as typical—I was enthralled an confused by all of the lights, dirt, grime and general disrepair of the area at the time. On the one hand, there was an array of oddball arcades and entertainment around that sort of reminded me of Coney Island… But nowhere near as kid friendly as Coney Island was even back then. But for a small 7 year old kid—even a kid who was from a crappy neighborhood himself—this was a somewhat scary place. So I made sure to hold my dad’s hand as we made our way through the streets of Times Square and headed to the movie theater.
 
-The movie theater itself was truly a dumpy black-box grind-house of a theater. While it was—in some ways—similar to the dumpy theaters I had seen in my then short life in Brooklyn, those were mainly just aging and falling apart. In contrast this Times Square theater seemed beat up and vandalized. But I didn’t feel unsafe in there; just unimpressed that this would be the place where I would meet the legendary Goofy himself in person.
+The theater itself was truly a dumpy black-box of a theater; as an adult I might call it a “grind house” but back then it was simply a dump.
+
+While it was in some ways similar to the dumpy neighborhood theaters I had seen in my then short life so far in deep Brooklyn, those were mainly just theaters that were worn, on their last legs and slightly neglected due to age and lack of funds for adequate upkeep.
+
+In contrast this dumpy Times Square theater seemed be actively beat up and vandalized on a regular basis as a part of normal business. But as dumpy and dingy as it was, I didn’t feel unsafe there; just unimpressed that this would be the place where I would meet the legendary Goofy himself in person.
 
 We sat down and got ready to watch the film. The audience consisted of an array of parents and kids all waiting for the same reason: To see the film and to meet Goofy.
 
