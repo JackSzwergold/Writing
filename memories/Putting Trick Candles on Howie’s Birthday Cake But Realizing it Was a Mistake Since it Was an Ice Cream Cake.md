@@ -81,9 +81,9 @@ And with that his mom rushed over to the cake abd pulled out the candles as his 
 
 The ice cream icing was a bit melted, but the main core of the ice cream cake was still solid so it was not a complete loss. But Howie clearly wasn’t that happy about what just happened.
 
-“Here,” I said as I walked over and handled him his gift: The pack of remaining trick candles. His face was a bit red and there were some tears near his eyes from getting upset about the trick candles, but he wiped them away and became focused on the candles once I gave them to him.
+“Here,” I said as I walked over and handled him his gift: The pack of remaining trick candles. His face was a bit red—and there were some tears near his eyes—from getting upset about the trick candles, but he wiped them away and became focused on the remaining trick candles once I gave them to him.
 
-“Where did you get them?” he asked. “Cameo,” I said. “Sorry about the cake I said.”
+“Where did you get them?” he asked. “Cameo,” I said. “Sorry about the cake,” I added.
 
 He wiped his face a bit and said, “Nah… No big deal. The cake is still good.” as he dipped his fork into the ice cream cake slice he had in front of him and put the unused trick candles back onto the table.
 
