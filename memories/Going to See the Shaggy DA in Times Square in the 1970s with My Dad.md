@@ -13,19 +13,21 @@ I typically would scour through the comics and colorful sales circulars to squee
 
 But sometimes I would flip through the movie section to see what movies were coming out. And looking through movie ads in a working class newspaper like the *Daily News* back then was a weird experience for a kid.
 
+***
+
 While there technically was an MPAA movie ratings system in place at the time, that was mainly to control who could see movies in a theater. It didn’t really cover where ads were actually placed in newspapers. And ads for movies of all kinds seemed to be placed arbitrarilly at best in newspapers back then. Sometimes ads for G rated films were placed right next to more adult oriented PG or R rated films… And sometimes even next to X rated films!
 
 As a 7 year old kid, most of the films out at the time didn’t really appeal to me. I liked cartoons and other short attention span—and many literally short—ephemeral stuff you could catch on TV. So movies always seemed like more of an adult thing to me anyway.
 
-But on that Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the movie was about didn’t care becausse two key things grabbed my attention: One, this was a movie that featured a dog as a lawyer and two, this particular screening of the movie would give me the opportunity to meet Goofy in person! My mind was blown!
+But on that specific Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the movie was about didn’t care becausse two key things grabbed my attention: One, this was a movie that featured a dog as a lawyer and two, this particular screening of the movie would give me the opportunity to meet Goofy in person! My mind was blown! I had to see this movie!
 
-I ran over to my dad and showed him the ad, “I want to see this!” I said as I pointed my newsprint covered fingers to the ad for “The Shaggy D.A.” that had a special appearance by Goofy.
+I ran over to my dad and entusiastically showed him the ad, “I want to see this movie!” I said as I pointed my tiny newsprint covered fingers to the ad for “The Shaggy D.A.” that had a special appearance by Goofy.
 
-My dad wasn’t incredulous or dismissive, but took my request seriously. “So this is next weekend,” he said. “So we’ll go then, okay?” he added and I nodded.
+My dad wasn’t incredulous, dismissive, exasperated or patronizing but took my request seriously. He lifted up the paper, looked at the ad and said “So this is next weekend, right?” he said. “So we’ll go then, okay?” he added and I nodded.
 
-He circled the ad with a ballpoint pen and gave the movie section back to me.
+He put down the newspaper on the living room coffee table, circled the ad with a blue ballpoint pen and gave the movie section back to me.
 
-I was thrilled and happy.
+I was thrilled and happy as I looked at the ad with the fresh circle of blue ink around it.
 
 ***
 
