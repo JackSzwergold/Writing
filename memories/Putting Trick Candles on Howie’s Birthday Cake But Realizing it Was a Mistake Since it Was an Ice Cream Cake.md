@@ -27,16 +27,12 @@ I went inside and poked around to see what I could see. But it seemed like the s
 
 So I checked the price on the pack of trick candles—which was about $1.50 or so—then checked my pocket change and realized had just enough to score them.
 
-I ran out of the store holding a small paper bag that had the candles and proudly showed the candles to my dad. He looked at the package and carefully read the writing, “‘Trick Candles?’ We have candles! Why do you need this?” I just smalled and shrugged and headed back home.
+I ran out of the store holding a small paper bag that had the candles and proudly showed the candles to my dad. He looked at the package and carefully read the writing, “‘Trick Candles?’ We have candles! Why do you need this? Whatr are trick candles?” I just smiled and shrugged and headed back home.
 
 ***
 
-When I got home—and settled down in my room—I looked at the package of trick candles with awe and wonder. They were still sealed in their little plastic bubble 
-
- that cardboard backing paper and—to my yo
-
-
-They looked just like normal, basic blue tiny birthday cake candles. But just a tad thicker on the wick. I wanted to try one, but was afraid I would burn down the apartment. And nobody wanted that.
+When I got home—and settled down in my room—I looked at the package of trick candles with awe and wonder. They were still sealed in their little plastic bubble that was glued to the cardboard backing board and—to my young eyes—they seemed just like normal, basic, run-of-the-mill tiny blue birthday cake candles.
+But just a tad thicker on the wick. I wanted to try one, but was afraid I would burn down the apartment. And nobody wanted that.
 
 Instead I thought about Howie’s birthday, and how I could surprise him with these candles we both wanted to see in action.
 
