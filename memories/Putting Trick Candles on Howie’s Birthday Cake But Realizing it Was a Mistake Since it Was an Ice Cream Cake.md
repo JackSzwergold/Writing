@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-Howie was a good friend. A neighborhood friend. I didn’t go to school with him like most of the other kids I knew, but we saw each other pretty much every day in that slither of outdoor “play in the streets” time that existed between 3:00pm-ish and 6:00pm-ish each day.
+In the 1970s, Howie was a good neighborhood friend. I didn’t go to school with him—like most of the other kids I knew at the time—but we saw each other pretty much every day in that slither of outdoor “play in the streets” time that existed between 3:00pm-ish and 6:00pm-ish each day.
 
 It was the summer and his birthday was coming up and everyone on the block was excited. Nobody on the block ever had a big birthday party but all celebrations were special. And we were all excited to wish him a happy birthday and get am small loot bag of random crap that every parent seemed to give every kid back then.
 
