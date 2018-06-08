@@ -55,9 +55,7 @@ My dad didn’t have a camera back then, so we just waited patiently near the ed
 
 Without much warning, Goofy came close to me, grabbed my hand and shook it pretty violently. I mean I was a 7 year old kid at the time and felt the heavy wave of the shake all the way up my arm and up to my shoulder. He shook my dad’s hand as well and—to my dad’s credit—he feigned genuine excitement when he exclaimed with kind-hearted, calculatd dad-joy that he had just met Goofy.
 
-And as quicklyn as we had met him, Goofy ran up the aisle a disappeared out the main door of the theater. And soon enough the rest of us followed his lead
-
- and so did the rest of us.
+And as quickly and suddenly as he appeared, Goofy ran up the aisle and disappeared out the main doors of the theater. And soon enough the rest of us followed his lead and headed out onto the streets of Times Square.
 
 Walking back to the subway after the encounter was just as creepy and odd as it was walking to the theater. We passed Nathan’s and my dad asked if I was hungry and I shook my head “No!” and with that we headed back to the D train and back home to Brighton Beach.
 
