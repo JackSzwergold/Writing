@@ -55,7 +55,7 @@ One of our mutual neighborhood friends, Arthur, noticed me thinking a bit too mu
 
 With that we both looked around and happily realized that somehow we were the only ones left in the kitchen; this was our chance! And with that we both scrambled to swap out the candles before anyone came back. Which was easier to do than expected since the candles were placed in those small, dinky plastic holders that everyone used at the time.
 
-Within less than a minute we were done, and I took the swapped out “normal” candles and shoved them into my pocket, making sure to separate them from pack of remaining trick candles I had.
+Within less than a minute we were done. I took the already swapped out “normal” candles and shoved them into my pocket, making sure to separate them from pack of remaining trick candles I had.
 
 Soon enough Howie’s mom and few other kids came back into the kitchen. “Shhhh…” his mom said as she started to light the candles, “We want to surprise him,” she added.
 
