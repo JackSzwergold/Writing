@@ -13,9 +13,9 @@ I typically would scour through the comics and colorful sales circulars to squee
 
 But sometimes I would flip through the movie section to see what movies were coming out. And looking through movie ads in a working class newspaper like the *Daily News* back then was a weird experience for a kid.
 
-While there technically was an MPAA movie ratings system in place at the time, that was mainly to control who could see movies in a theater. It didn’t really cover where ads were actually placed in newspapers. And ads for movies of all kinds seemed to be placed arbitrarilly at best in newspapers back then. Sometimes ads for G rated films were placed right next to more adult oriented PG and R rated films. And sometimes even X rated films!
+While there technically was an MPAA movie ratings system in place at the time, that was mainly to control who could see movies in a theater. It didn’t really cover where ads were actually placed in newspapers. And ads for movies of all kinds seemed to be placed arbitrarilly at best in newspapers back then. Sometimes ads for G rated films were placed right next to more adult oriented PG or R rated films… And sometimes even next to X rated films!
 
-Generally, most of the films out at the time didn’t really appeal to me at the time. I liked cartoons and other short, ephemeral stuff you could catch on TV so movies seemed like more of an adult thing to me anyway.
+Generally, most of the films out at the time didn’t really appeal to me. I liked cartoons and other short, ephemeral stuff you could catch on TV so movies seemed like more of an adult thing to me anyway.
 
 But on this Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the plot was, but two things grabbed my attention: One, this was a movie that featured a dog as a lawyer—briefcase and everything—and this particular showing gave me the chance to meet Goofy in person! My mind was blown!
 
