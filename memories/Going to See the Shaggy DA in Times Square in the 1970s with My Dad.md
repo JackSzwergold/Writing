@@ -57,7 +57,7 @@ Without much warning, Goofy came close to me, grabbed my hand and shook it prett
 
 And as quickly and suddenly as he appeared, Goofy ran up the aisle and disappeared out the main doors of the theater. And soon enough the rest of us followed his lead and headed out onto the streets of Times Square.
 
-Walking back to the subway after meeting Goofy—and seeing that crappy film—was just as creepy and odd as it was walking to the theater. We passed Nathan’s and my dad asked if I was hungry and I shook my head “No!” and with that we headed back to the D train and back home to Brighton Beach.
+Walking back to the subway after meeting Goofy—and seeing that crappy film—was just as creepy and odd as it was walking to the theater; except this time we were leaving. We passed Nathan’s and my dad asked if I was hungry and I shook my head “No!” and with that we headed back to the D train and back home to Brighton Beach.
 
 ***
 
