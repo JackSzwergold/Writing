@@ -59,7 +59,7 @@ Within less than a minute we were done. I took the already swapped out “normal
 
 Soon enough Howie’s mom and few other kids came back into the kitchen. “Shhhh…” his mom said as she started to light the candles, “We want to surprise him,” she added.
 
-As she lit the candles, I watched them wondering how they worked. They seemed the same as regular candles even when lit, so I was extra psyched.
+As she lit the candles, I looked at their wicks and wondered how they worked. They superfically seemed the same as regular candles even when lit, so I was extra psyched by this whole thing.
 
 As she lit the last candle, we heard the front door locks on the apartment jostle and—soon enough—the front door was opened. Howie’s dad came in first followed by Howie right behind.
 
