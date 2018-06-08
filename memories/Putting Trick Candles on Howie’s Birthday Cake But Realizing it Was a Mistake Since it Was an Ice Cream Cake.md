@@ -21,11 +21,11 @@ So the dream of owning and using trick candles had to be put on hold.
 
 ***
 
-Flash forward a few days and while out shopping with my dad around Brighton 6th Street I asked if we could stop inside of a stationery store called “Cameo” so I could see what I could see and he agreed.
+Flash forward a few days and while out shopping with my dad around Brighton 6th Street I asked if we could stop inside of a stationery store called “Cameo” so I could see what fun junk I could spot inside the shop and he agreed.
 
-I went inside and poked around to see what I could see. But it seemed like the same batch of the same old same old and such and nothing that interested me… Until I spied something on a rack, right next to piles of number candles: A pack of trick candles. I was shocked! This place had those candles? I had to score some!
+I went inside and poked around to see what I could see. But it seemed like the same batch of the same old same old and such and nothing that interested me… Until I spied something on a rack right next to piles of number-shaped candles: A pack of trick candles! I was shocked! This place had trick candles? Where did they get them from? No matter… I had to score them!
 
-So checked the price—which was about $1.50 or so—checked my pocket change and had just enough to score some.
+So I checked the price on the pack of trick candles—which was about $1.50 or so—then checked my pocket change and realized had just enough to score them.
 
 I ran out of the store and showed the candles to my dad. He looked at the package and carefully read the writing, “‘Trick Candles?’ Why do you need this?” I just grinned and shrugged and headed back home.
 
