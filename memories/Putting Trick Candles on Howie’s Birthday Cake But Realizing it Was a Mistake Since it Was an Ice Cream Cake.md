@@ -67,7 +67,7 @@ As his dad put bags of stuff down on the living room couch he shouted, “Howie!
 
 Howie was clearly stunned and happy as he walked in, sat down at the table and looked at the birthday cake. For all intents and purposes, the cake looked like a normal cake. But then I noticed the icing was slowly getting smoother and shinier as time passed. “Blow out the candles Howie!” his mom said, “The ice cream is going to melt!” she added.
 
-Ice cream? It was an ice cream cake! And I had no idea since I never saw the box it came in. But after she said that I looked in the trash and there it was: An empty Carvel ice cream cake box from around the corner. Damn! I liked ice cream, cake and Carvel ice cream so this was going to be good.
+Ice cream? It was an ice cream cake! And I had no idea since I never saw the box it came in and the cake looked like every round, frosted yellow cake I had ever seen. But after she said that I looked in the trash and there it was: An empty Carvel ice cream cake box from around the corner. Damn! I liked ice cream, cake and Carvel ice cream so this was going to be good.
 
 But then as Howie started to blow at the candles, cracks in my prank plans started to show up. Yeah, Howie was getting frustrated trying to blow out the trick candles. And I carefully watched as seemingly blown out candle wicks would magically—and literally—spark back to life. So it was cool seeing how those things worked. But as Howie got more and more frustrated, the cake below was clearly melting more and more.
 
