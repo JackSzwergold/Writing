@@ -31,7 +31,9 @@ I ran out of the store holding a small paper bag that had the candles and proudl
 
 ***
 
-When I got home—and settled down in my room—I looked at the package of trick candles with awe and wonder. They were still sealed in their little plastic bubble and still glued to that cardboard backing paper and—to my yo
+When I got home—and settled down in my room—I looked at the package of trick candles with awe and wonder. They were still sealed in their little plastic bubble 
+
+ that cardboard backing paper and—to my yo
 
 
 They looked just like normal, basic blue tiny birthday cake candles. But just a tad thicker on the wick. I wanted to try one, but was afraid I would burn down the apartment. And nobody wanted that.
