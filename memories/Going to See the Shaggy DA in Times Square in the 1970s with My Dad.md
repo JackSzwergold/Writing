@@ -45,7 +45,7 @@ In contrast this dumpy Times Square theater seemed be actively beat up and vanda
 
 After buying tickets at the beat up box office, my dad and I walked in, found some seats and got ready to watch the film. A quick glance around the place showed that the makeup of the audience was a similar array of parents and kids scattered all over the place for the same reason: To see the film and to meet the legendary Goofy in person.
 
-That said, it wasn’t clear whether Goofy would come out before or after the film. So we all sat and waited. And then—with little fanfare—the film began. And you know what? It really stunk. I have no idea to this day what the plot was but will say this: The second the dog lawyer showed with his briefcase—and sometimes wearing a hat—I was into that. But past that, I couldn’t wait for the film to end.
+That said, it wasn’t clear whether Goofy would come out before or after the film. So we all sat and waited. And then—with little to no fanfare—the film began. And you know what? It really stunk. I have no idea to this day what the plot was but will say this: The second the dog lawyer appeared on the screen, I was totally into it. And when that dog lawyer was nowhere to be seen? I didn’t care. And since the film was filled with many scenes that did not have a dog lawyer doing something on screen, I couldn’t wait for the film to end.
 
 And when it ended, I was relieved. The lights came up and someone up front in an official looking usher outfit basically announced that Goofy was here to greet people. And all the kids were excited.
 
