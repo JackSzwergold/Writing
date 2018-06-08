@@ -49,7 +49,7 @@ That said, it wasn’t clear whether Goofy would come out before or after the fi
 
 And when that turd of a film ended, I was relieved. The lights came up and someone up front in an official looking usher outfit basically announced that Goofy was here to greet people. And all the kids pretty much got excited at the same time and stood up in anticipation of his arrival.
 
-Soon enough there he was! Goofy himself running up one of the aisles and adjusting his “head” with his big, white Goofy gloves every few seconds. I don’t recall Goofy or his entourage giving out anything to his fans—like some keychains, stickers, pamphlets or something like that—but he would just walk around, greet fans and stop and pose for pictures as well as shake hands.
+Soon enough there he was! Goofy himself enthusiastically running up the aisle, adjusting his “head” with his big, white Goofy gloves every few seconds. I don’t recall Goofy or his entourage giving out any cool promotional swag to his fans—like some keychains, stickers, pamphlets or something like that—but he mainly just walked around, greeted fans and was kind enough to stop and pose for pictures as well.
 
 My dad didn’t have a camera back then, so we just waited for Goofy to come by and shake our hands.
 
