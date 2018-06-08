@@ -43,9 +43,9 @@ A few days passed and it was time for Howie’s birthday. I almost forgot about 
 
 Today was the day!
 
-My plan was to use the candles on Howie’s birthday cake. Watch him struggle to blow the candles out, and then when he was just at the edge of being frustrated, I would pull out my gift for him: The pack of remaining trick candles he wanted! What a perfect plan, right?
+My plan was to use the trick candles on Howie’s birthday cake. We would all watch him struggle to blow out the candles, and then—just as he was at the edge of being really frustrated—I would pull out my gift for him: The pack of remaining trick candles he wanted! What a perfect plan, right?
 
-Anyway, so I was back outside until Howie’s mom showed up and invited us all upstairs to celebrate Howie’s birthday.
+Anyway, so I was back outside playing around when Howie’s mom showed up and invited us all upstairs to celebrate Howie’s birthday.
 
 We all followed her up the stairs of the tenement up to their family’s apartment. It was like everyone else’s apartment back then: Small dinky and somewhat crammed. The cake was in the kitchen was small, dinky and crammed as well.
 
