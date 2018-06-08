@@ -11,9 +11,9 @@ These loot bags were small, simple and mainly filled with novelties and other ju
 
 One of the the things Howie and I usually did was informslly compare notes on where we could find fun junk. Back in the 1970s, it wasn’t like you could only get toys at one special toy store. Tons of the cool stuff would usually be found on the racks of corner stores and delis. Stuff that was sold to shop owners by random door to door salesmen or local distributors dumping stuff on local stores as some kind of bonus for the owner buying a pile of something else. And past that, there was mail order.
 
-I don’t think I was fully aware of the Johnson Smith catalog back then—a novelty catalog filled with all kinds of stuff—but we did share tips on cool stuff we saw in more commonly available items, like comics.
+I don’t think I was fully aware of the Johnson Smith catalog back then—a very cool and well known novelty catalog filled with all kinds of stuff—but we did share tips on cool stuff we saw in more commonly available items, like comics as well as what we spotted in local store.
 
-“Look! Trick candles!” Howie said as he showed me a page of ads in some DC comic. I have no idea what comic it was since I was mainly into “Archie” comics at the time, but that didn’t matter. What did matter was seeing that teeny, tiny ad with two distinct “before/after” illustrations: One was some kid blowing out the candles of the cake and the next were the flames of the candles just coming back to life.
+“Look! Trick candles!” Howie said as he showed me a page of ads in some oddball superhero comic I wasn’t familiar with at the time. I have no idea what comic it was since I was mainly into “Archie” comics at the time, but that didn’t matter. What did matter was seeing that teeny, tiny ad with as series of distinct “before/after” illustrations: One was some kid blowing out the candles of the cake, the next the candles appeared unlit and then in the last panel—as if by magic—the flames of the candles just came back to life.
 
 “You can never blow them out!” he said. And that was cool. But none of us had the money, care or time to mail order it. For a kid, mail ordering was a whole production that often involved parents and such. And none of us had time for that.
 
