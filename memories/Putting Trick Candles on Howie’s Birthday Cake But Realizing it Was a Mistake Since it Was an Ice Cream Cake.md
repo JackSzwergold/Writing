@@ -27,7 +27,7 @@ I went inside and poked around to see what I could see. But it seemed like the s
 
 So I checked the price on the pack of trick candles—which was about $1.50 or so—then checked my pocket change and realized had just enough to score them.
 
-I ran out of the store and showed the candles to my dad. He looked at the package and carefully read the writing, “‘Trick Candles?’ Why do you need this?” I just grinned and shrugged and headed back home.
+I ran out of the store holding a small paper bag that had the candles and proudly showed the candles to my dad. He looked at the package and carefully read the writing, “‘Trick Candles?’ We have candles! Why do you need this?” I just grinned and shrugged and headed back home.
 
 ***
 
