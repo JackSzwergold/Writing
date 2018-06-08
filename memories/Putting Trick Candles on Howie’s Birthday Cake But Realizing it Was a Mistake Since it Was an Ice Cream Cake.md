@@ -13,9 +13,9 @@ One of the the things Howie and I usually did was informslly compare notes on wh
 
 I don’t think I was fully aware of the Johnson Smith catalog back then—a very cool and well known novelty catalog filled with all kinds of stuff—but we did share tips on cool stuff we saw in more commonly available items, like comics as well as what we spotted in local store.
 
-“Look! Trick candles!” Howie said as he showed me a page of ads in some oddball superhero comic I wasn’t familiar with at the time. I have no idea what comic it was since I was mainly into “Archie” comics at the time, but that didn’t matter. What did matter was seeing that teeny, tiny ad with as series of distinct “before/after” illustrations: One was some kid blowing out the candles of the cake, the next the candles appeared unlit and then in the last panel—as if by magic—the flames of the candles just came back to life.
+“Look! Trick candles!” Howie said as he showed me a page of ads in some oddball superhero comic I wasn’t familiar with at the time. I have no idea what comic it was since I was mainly into “Archie” comics at the time, but that didn’t matter. What did matter was seeing that teeny, tiny ad with as series of distinct “before/after” illustrations: One was some kid blowing out the candles of the cake, the next the candles appeared unlit and then in the last panel—as if by magic—the flames of the candles were lit again.
 
-“You can never blow them out!” he said. And that was cool. But none of us had the money, care or time to mail order it. For a kid, mail ordering was a whole production that often involved parents and such. And none of us had time for that.
+“You can never blow them out!” he said. And that was cool. But none of us had the money, care or time to mail order it. For a kid, mail ordering was a whole production that often involved parents being aware of something arriving in the mail and such. And none of us had time for that.
 
 So the dream of owning and using trick candles had to be put on hold.
 
