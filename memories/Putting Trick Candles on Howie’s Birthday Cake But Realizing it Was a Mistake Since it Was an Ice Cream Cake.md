@@ -47,7 +47,7 @@ My plan was to use the trick candles on Howie’s birthday cake. We would all wa
 
 Anyway, so I was back outside playing around when Howie’s mom showed up and invited us all upstairs to celebrate Howie’s birthday.
 
-We all followed her up the stairs of the tenement up to their family’s apartment. It was like everyone else’s apartment back then: Small dinky and somewhat crammed. The cake was in the kitchen was small, dinky and crammed as well.
+We all followed her up the stairs of the building they lived in and followed her into their family’s apartment. It was like everyone else’s apartment back then: Small dinky and somewhat crammed. The cake was in the kitchen was small, dinky and crammed as well.
 
 As everyone jockeyed for position, I was trying to figure out how to swap out the candles; which happily weren’t lit yet. I don’t recall what birthday we were celebrating at the time, but it was a good bet this was his 8th birthday. So I had to quickly swap out 8 candles.
 
