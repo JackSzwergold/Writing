@@ -7,9 +7,11 @@ I really liked reading the Sunday newspaper in the 1970s. And by “reading” I
 
 At least it was the only newspaper on the days my dad could get it. On those rare days my dad decided to buy it later in the day—and by then it was sold out—he would just grab a copy of *The New York Post* as a stop-gap measure… But none of that is neither here nor there.
 
-On Sundays in my parent’s home it was the Sunday *Daily News* and not much else.
+On Sundays in our home it was the Sunday *Daily News* and not much else. And I‘m not complaining!
 
-I typically would scour through the comics and sales circulars getting some entertainment from either reading the comics or day dreaming about toys I could not afford. Sometimes I would flip through the movie section to see what was coming out.
+I typically would scour through the comics and colorful sales circulars to squeeze some entertainment out of that pile of newsprint. The comics sated my need for colorful pictures and corny jokes and the salesm circulars
+
+ some entertainment from either reading the comics or day dreaming about toys I could not afford. Sometimes I would flip through the movie section to see what was coming out.
 
 Looking through movie ads in a newspaper like the *Daily News* back then was a weird experience. While a movie ratings system was still in place, ads for G rated films were typically placed right next to more adult oriented PG and R rated films. Sometimes even X rated films!
 
