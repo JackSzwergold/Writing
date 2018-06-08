@@ -53,7 +53,7 @@ As everyone jockeyed for position, I was trying to figure out how to swap out th
 
 One of our mutual neighborhood friends, Arthur, noticed me thinking a bit too much and asked what was up. I showed him the trick candles and told him what I wanted to do. “Cool!” he said.
 
-With that we both looked around and realized that somehow we were the only ones left alone in the kitchen. So we decided that was our chance and we both scrambled to swap out the candles before anyone came back. It was pretty easy to do since they were placed in those small, dinky plastic holders.
+With that we both looked around and happily realized that somehow we were the only ones left in the kitchen. So we decided that was our chance. And with that, we both scrambled to swap out the candles before anyone came back which was easier to do than expected since the candles were placed in those small, dinky plastic holders that everyone used at the time.
 
 Within seconds we were done, and I took the swapped out “normal” candles and shoved them into my pocket, making sure to separate them from pack of remaining trick candles I had.
 
