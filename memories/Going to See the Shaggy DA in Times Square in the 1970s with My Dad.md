@@ -53,7 +53,7 @@ Soon enough there he was! Goofy himself enthusiastically running up the aisle, a
 
 My dad didn’t have a camera back then, so we just waited patiently near the edge of the aisle for Goofy to come by and shake our hands with his big, white gloved hand.
 
-Goofy came close to me, grabbed my hand and shook it pretty violently. I mean I was a 7 year old kid at the time and felt it all the way up to my shoulder. He shook my dad’s hand as well and—to his credit—my dad feigned excitement when he exclaimed with excitement that he had just met Goofy.
+Without much warning, Goofy came close to me, grabbed my hand and shook it pretty violently. I mean I was a 7 year old kid at the time and felt the heavy wave of the shake all the way up my arm and up to my shoulder. He shook my dad’s hand as well and—to his credit—my dad feigned excitement when he exclaimed with excitement that he had just met Goofy.
 
 Soon enough, Goofy disappeared out the front door of the theater and so did the rest of us.
 
