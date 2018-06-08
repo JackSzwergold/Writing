@@ -15,9 +15,9 @@ But sometimes I would flip through the movie section to see what movies were com
 
 While there technically was an MPAA movie ratings system in place at the time, that was mainly to control who could see movies in a theater. It didn’t really cover where ads were actually placed in newspapers. And ads for movies of all kinds seemed to be placed arbitrarilly at best in newspapers back then. Sometimes ads for G rated films were placed right next to more adult oriented PG or R rated films… And sometimes even next to X rated films!
 
-Generally, most of the films out at the time didn’t really appeal to me. I liked cartoons and other short, ephemeral stuff you could catch on TV so movies seemed like more of an adult thing to me anyway.
+As a 7 year old kid, most of the films out at the time didn’t really appeal to me. I liked cartoons and other short attention span—and many literally short—ephemeral stuff you could catch on TV. So movies always seemed like more of an adult thing to me anyway.
 
-But on this Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the plot was, but two things grabbed my attention: One, this was a movie that featured a dog as a lawyer—briefcase and everything—and this particular showing gave me the chance to meet Goofy in person! My mind was blown!
+But on that Sunday I saw an ad for a movie that blew my mind: It was for “The Shaggy D.A.!” I had no idea what the plot was, but two things grabbed my attention: One, this was a movie that featured a dog as a lawyer—briefcase and everything—and this particular showing gave me the chance to meet Goofy in person! My mind was blown!
 
 I ran over to my dad and showed him the ad, “I want to see this!” I said as I pointed my newsprint covered fingers to the ad for “The Shaggy D.A.” that had a special appearance by Goofy.
 
