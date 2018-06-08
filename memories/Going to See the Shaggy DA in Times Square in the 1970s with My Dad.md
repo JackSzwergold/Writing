@@ -45,9 +45,9 @@ In contrast this dumpy Times Square theater seemed be actively beat up and vanda
 
 After buying tickets at the beat up box office, my dad and I walked in, found some seats and got ready to watch the film. A quick glance around the place showed that the makeup of the audience was a similar array of parents and kids scattered all over the place for the same reason: To see the film and to meet the legendary Goofy in person.
 
-That said, it wasn’t clear whether Goofy would come out before or after the film. So we all sat and waited. And then—with little to no fanfare—the film began. And you know what? It really stunk. I have no idea to this day what the plot was but will say this: The second the dog lawyer appeared on the screen, I was totally into it. And when that dog lawyer was nowhere to be seen? I didn’t care. And since the film was filled with many scenes that did not have a dog lawyer doing something on screen, I couldn’t wait for the film to end.
+That said, it wasn’t clear whether Goofy would come out before or after the film. So we all sat and waited. And then—with little to no fanfare—the film began. And you know what? It really stunk. I have no idea to this day what the plot was but will say this: The second the dog lawyer appeared on the screen, I was totally into it. And when that dog lawyer was nowhere to be seen? I didn’t care. And since the film was filled with too many scenes that didn’t have a dog lawyer doing something on screen, I couldn’t wait for the film to end.
 
-And when it ended, I was relieved. The lights came up and someone up front in an official looking usher outfit basically announced that Goofy was here to greet people. And all the kids were excited.
+And when that turd of a film ended, I was relieved. The lights came up and someone up front in an official looking usher outfit basically announced that Goofy was here to greet people. And all the kids were excited.
 
 There, running up the aisle and adjusting his “head” with his big, white Goofy gloves every few seconds was Goofy himself. Goofy didn’t give out anything I remembered, but he would stop and pose for pictures as well as shake hands. My dad didn’t have a camera back then, so we just waited for Goofy to come by and shake our hands.
 
