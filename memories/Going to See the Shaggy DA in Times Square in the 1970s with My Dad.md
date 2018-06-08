@@ -9,11 +9,11 @@ At least it was the only newspaper on the days my dad could get it. On those rar
 
 On Sundays in our home it was the Sunday *Daily News* and not much else. And I‘m not complaining!
 
-I typically would scour through the comics and colorful sales circulars to squeeze some entertainment out of that pile of newsprint. The comics sated my need for colorful pictures and corny jokes and the salesm circulars
+I typically would scour through the comics and colorful sales circulars to squeeze some entertainment out of that pile of newsprint. The comics sated my need for colorful pictures and corny jokes while the sales circulars filled my head with the dreams of things (mostly toys) I might—and might not—be able to afford with my meager childhood allowances.
 
- some entertainment from either reading the comics or day dreaming about toys I could not afford. Sometimes I would flip through the movie section to see what was coming out.
+But sometimes I would flip through the movie section to see what movies were coming out. And looking through movie ads in a working class newspaper like the *Daily News* back then was a weird experience for a kid.
 
-Looking through movie ads in a newspaper like the *Daily News* back then was a weird experience. While a movie ratings system was still in place, ads for G rated films were typically placed right next to more adult oriented PG and R rated films. Sometimes even X rated films!
+While a movie ratings system was still in place, ads for G rated films were typically placed right next to more adult oriented PG and R rated films. Sometimes even X rated films!
 
 Generally, most of the films out at the time didn’t really appeal to me at the time. I liked cartoons and other short, ephemeral stuff you could catch on TV so movies seemed like more of an adult thing to me anyway.
 
