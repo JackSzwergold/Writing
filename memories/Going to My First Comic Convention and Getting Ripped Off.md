@@ -35,13 +35,13 @@ He passed it over to me and as I flipped through it he said, “You can have it 
 
 We all fell silent. And after a seemingly endless pause he said yes. And with that I pulled out the $3.25 in a mix of crumbled dollar bills and change from my pocket and paid him.
 
-As he took the money and I took the comic, quickly gave it a once-ver and then slid it back into the plastic bag.
+As he took the money and I took the comic, gave it a quick once over and then slid it back into the plastic bag. It was finally mine!
 
-“You know that’s gonna be worth something someday!” one of my friends said. I nodded and thought I made a good investment. I might have been only 10 years old at the time, but dreams of selling this comic for $15 or maybe $20 when I was 20 years old swam through my head.
+“You know that’s gonna be worth something someday!” someone said. I nodded and thought I made a good investment. I might have been only 10 years old at the time, but dreams of selling this comic for $5 or $15 or maybe even $20 when I was 20 years old swam through my head.
 
-For the first time in my life I made a financial plan for the future and I was damned proud of myself.
+For the first time in my life I made some kind of financial plan for the future and I was damned proud of myself.
 
-When I got home I showed my dad what I bought and he was feigning pride thinking I only paid the 35 cents cover price for it. Then I told him how much I actually paid for it and he exclaimed, “What?!?!” as I blubbered and said it would be worth something someday. “Okay,” he said. “But you have to take care of it,” he added. I nodded yes as I took it back to my room and carefully stored it way at the bottom beneath all of the other comics in my night stand.
+When I got home I showed my dad what I bought and he was feigning pride thinking I only paid the 35 cents cover price for it. Then I told him how much I actually paid for it and he exclaimed, “What?!?!” as I blubbered and said it would be worth something someday. “Okay,” he said. “But you have to take care of it,” he added. I nodded yes as I took it back to my room and carefully stored it way at the bottom beneath all of the other comics in my nightstand.
 
 ***
 
