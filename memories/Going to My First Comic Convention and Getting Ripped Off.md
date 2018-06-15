@@ -57,9 +57,9 @@ Before you knew it we were at 34th Street in Herald Square. Despite being a kid,
 
 While Madison Square Garden was huge, the convention was definitely not big enough to justify it taking up that amount of space. But it did take up some small part of the building that wasn’t the main arena for an event like this.
 
-As we walked inside, it was exactly what I expected it to be: Basically a huge flea market… Just slightly nicer. Piles of folding tables filled with tons of white boxes with plastic bags that had comic books in them.
+As we walked inside, it was exactly what I expected it to be: Basically a huge flea market… But just slightly nicer. Piles of cheap folding tables filled with tons of dingy white boxes with transparent, protective plastic bags that had comic books in them.
 
-We all kinda spilt up and wandered around. I tried flipping through a box of comics, but was kinda not into it. First I wasn’t—and had never been—a big comic book collector. So the idea of flipping through piles of boxes to find something seemed weird to me. I never really cared about overarching plots and after a while the “game” of comics became pretty clear: You bought one comic because a secret from another comic was “revealed” in another. And I wasn’t into it; I just liked the art and action.
+Once inside, we all kinda spilt up and wandered around. I tried flipping through a box of comics, but wasn’t really into it. First I wasn’t—and had never been—a big comic book collector. So the idea of flipping through piles of boxes to find something seemed weird to me. I never really cared about overarching plots and after a while the “game” of comics became pretty clear: You bought one comic because a secret from another comic was “revealed” in another. And I wasn’t into it; I just liked the art and action.
 
 So anyway, I just wandered the aisles and looked at the random ephemera that people had for sale every now and then. Small buttons, toys, “Star Trek” junk, “Beatles” junk and stuff like that. I did spot one table that had cool, imported Japanese toys but they were too expensive for me.
 
