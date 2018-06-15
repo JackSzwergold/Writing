@@ -47,6 +47,14 @@ When I got home I showed my dad what I bought and he was feigning pride thinking
 
 A few weeks passed, and school had ended. While not exactly summer, it was a nice spring day when I got a call from a friend asking if I wanted to go to a comic convention in the city.
 
+“What’s happening?” I asked and got the response, “There’s a comic convention. Let’s go!” And with that I headed over to my friends place to head into the city and go to this comic convention.
+
+I had never been to a comic convention before, but they sounded cool. They were basically flea markets focused on comics and related stuff. And I always heard about someone finding something cool at a comic convention so why not?
+
+As we waited on the platform, I started to think about what I was going to get. Maybe some *Micronaut* comics? Maybe some *Archie* comics which I still liked but weren’t as “cool” as super-hero comics? Maybe something else.
+
+Before you knew
+
 ***
 
 *Going to My First Comic Convention and Getting Ripped Off (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
