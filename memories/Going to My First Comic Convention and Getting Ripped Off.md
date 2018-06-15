@@ -53,7 +53,11 @@ I had never been to a comic convention before, but they sounded cool. They were 
 
 As we waited on the platform, I started to think about what I was going to get. Maybe some *Micronaut* comics? Maybe some *Archie* comics which I still liked but weren’t as “cool” as super-hero comics? Maybe something else.
 
-Before you knew
+Before you knew it we were at 34th Street in Herald Square. I kinda knew the lay of the land around thes streets there—since that’s where my parents usually went to discount shop on the weekends—but this time it was a wee but different because we were headed to Madison Square Garden.
+
+This convention was definitely not big enough to justify it taking up Madison Square Garden, but it did take up some small part of the space that wasn’t the main arena for an event like this.
+
+As we walked inside, it was exactly what I expected it to be: Basically a huge flea market
 
 ***
 
