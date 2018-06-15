@@ -3,10 +3,6 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: I paid $3.25 for a copy of “Battlestar Galactica” #1 from Phillip. Someone at the convention was wandering around and had a pile of them selling for 25 Cents
-
-***
-
 It was the 1970s, I was in elementary school, had a meager $2 a week allowance and liked to buy comics. I wasn’t some hardcore collector of any kind, but I just liked to buy comics that caught my eye at the time.
 
 My favorite superhero comic was *Spider-Man* with *Iron Man* close behind. I didn’t really follow any deep storylines or get into the deep sci-fi logic of the worlds; I just liked the way the comics looked and the overall basic story that I read.
