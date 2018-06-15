@@ -45,7 +45,7 @@ When I got home I showed my dad what I bought and he was feigning pride thinking
 
 ***
 
-A few weeks passed, and school had ended. While not exactly summer, it was a nice spring day when I got a call from a friend asking if I wanted to go to a comic convention in the city.
+A few weeks passed, and school had ended. While it wasn’t exactly summer, it was a nice spring day when I got a call from a friend asking if I wanted to go to a comic convention in the city.
 
 “What’s happening?” I asked and got the response, “There’s a comic convention. Let’s go!” And with that I headed over to my friends place to head into the city and go to this comic convention.
 
