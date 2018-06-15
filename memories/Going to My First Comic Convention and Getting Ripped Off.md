@@ -61,9 +61,19 @@ As we walked inside, it was exactly what I expected it to be: Basically a huge f
 
 We all kinda spilt up and wandered around. I tried flipping through a box of comics, but was kinda not into it. First I wasn’t—and had never been—a big comic book collector. So the idea of flipping through piles of boxes to find something seemed weird to me. I never really cared about overarching plots and after a while the “game” of comics became pretty clear: You bought one comic because a secret from another comic was “revealed” in another. And I wasn’t into it; I just liked the art and action.
 
-So anyway, I just wandered the aisles and looked at the random ephemera that people had for sale every now and then. Small buttons, “Beatles” junk and stuff like that. I did spot one table that had cool, imported Japanese toys but they were too expensive for me.
+So anyway, I just wandered the aisles and looked at the random ephemera that people had for sale every now and then. Small buttons, toys, “Star Trek” junk, “Beatles” junk and stuff like that. I did spot one table that had cool, imported Japanese toys but they were too expensive for me.
 
-As I walked around I ran into my friends again.
+As I walked around I ran into my friends again. They eagerly showed me what they picked up. I nodded politely and feigned intrest. I was bored and wanted to leave. I found cooler stuff in the discount bin of Nostrand Books anyway.
+
+Just as I was about to say I wanted to leave, I spotted some guy walking around the aisle of a stck of mint comic books and shouting something about them being 25 cents each. At least! Something I could score.
+
+I walked over to him and asked what he was selling, and he showed it to me: It was a pristine stack of *Battlestar Galactica* #1 going for 25 cents a pop. My brain was spinning: I just paid Phillip $3.25 for the same comic. But this guy was selling them for 25 cents a pop. I gave the seller 25 cents, grabbed my copy and looked it over. Not only was it $3 less than the one I paid $3.25 for, it was actually in much better shape.
+
+I showed it to my friends and they all agreed: I got ripped off by Phillip. Maybe I should complain to Phillip about it? But I soon realized that was a losing proposition. I mean, how would Phillip have known about this one random guy and his seemingly random stack of *Battlestar Galactica* #1 comics?
+
+Part me of also thought of buying a second comic for 25 cents. I mean if I had three comics that were destined to be worth something—because what #1 of a comic doesn’t increase in value—wouldn’t I really be increasing my meager investment? I mean for $3.75 ($3.25 plus 25 cents plus another 25 cents) I could have a solid investment that could have increased in price to $5 per copy netting me $15 in the future when I decided to finally sell these gems.
+
+But no matter. I didn’t buy another copy. I simply found a bag of some sort, slipped the comic into it, headed out into the streets with my friends and headed back home.
 
 ***
 
