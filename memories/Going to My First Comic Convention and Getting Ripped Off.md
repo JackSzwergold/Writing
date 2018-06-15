@@ -3,15 +3,15 @@
 
 By Jack Szwergold
 
-It was the 1970s, I was in elementary school, had a meager $2 a week allowance and liked to buy comics. I wasn’t some hardcore collector of any kind, but I just liked to buy comics that caught my eye at the time.
+It was the 1970s, I was in elementary school, had a meager $2 a week allowance and liked to buy comics. I wasn’t some hardcore collector of any kind but I just liked to buy comics that caught my eye at the time.
 
-My favorite superhero comic was *Spider-Man* with *Iron Man* close behind. I didn’t really follow any deep storylines or get into the deep sci-fi logic of the worlds; I just liked the way the comics looked and the overall basic story that I read.
+My favorite superhero comic was *Spider-Man* with *Iron Man* coming in close behind. I didn’t really follow any deep storylines or get into the deep (yet hackneyed) sci-fi logic of the worlds; I just liked the way the comics looked and the overall basic story that I read.
 
-Since comics were cheap back then, I would score some new ones at the local newsstands. But more often than not I would dig through the used bins at the local bookstore, “Nostrand Books.” They would buy comics for at least 5 cents a pop and then sell some of the used comics for 10 cents to 25 cents a pop. This was a decent economic transaction for some of the kids in the neighborhood.
+Since comics were cheap back then—25 to 35 cents new in many cases—I would score some new ones at the local newsstands. But more often than not I would dig through the used bins at the local bookstore, “Nostrand Books.” They would buy comics for at least 5 cents a pop and then sell some of the used comics for 10 cents to 25 cents a pop. This was a decent economic transaction for some of the poor kids in the neighborhood like me… And when I think of it practically everyone else.
 
-But regardless of whatever comic I bought for my own enjoyment at the time, in the back of my mind the idea of “striking gold” and finding a comic that was worth something was ever present. More often than not, scoring a “Number 1” comic was a theoretical ticket to smalltime wealth and fame. I mean, people paid good money for first issues of famous comics, right? So buying a number 1 issue of almost anything was a good investment, right?
+But regardless of whatever comic I bought for my own enjoyment at the time, in the back of my mind the idea of “striking gold” and finding a comic that was worth something was ever present. More often than not, scoring a literal #1 issue of a comic was a theoretical ticket to smalltime wealth and fame. I mean, people paid good money for #1 issues of famous comics, right? So buying a #1 issue of almost anything was a good investment, right?
 
-Anyway, back in the spring of 1979 the original *Battlestar Galactica* was a semi big deal on TV and the tie-in/cash-in comic book was a semi big deal as well. The first issue of that comic came out, but nobody I knew could score a copy. “It’s gotta be worth something!” friends would say, but none of us knew how much it was worth since we were just 10 or 11 years old at the time.
+Anyway, back in the spring of 1979 the original *Battlestar Galactica* was a semi big deal on TV (taking advantage of the *Star Wars* craze at the time) and the tie-in/cash-in comic book was a semi big deal as well. The first issue of that comic came out, but nobody I knew could score a copy. “It’s gotta be worth something!” friends would say, but none of us knew how much it was worth since we were just 10 or 11 years old at the time.
 
 So one day in the cafeteria—as we were all sitting around and talking about this, that and the other—someone chimed in and said, “Hey! You know, Phillip has a copy of *Battlestar Galactica* #1.” And everyone’s eyes lit up.
 
@@ -51,9 +51,9 @@ A few weeks passed, and school had ended. While not exactly summer, it was a nic
 
 I had never been to a comic convention before, but they sounded cool. They were basically flea markets focused on comics and related stuff. And I always heard about someone finding something cool at a comic convention so why not?
 
-As we waited on the platform, I started to think about what I was going to get. Maybe some *Micronaut* comics? Maybe some *Archie* comics which I still liked but weren’t as “cool” as super-hero comics? Maybe something else.
+As we waited on the platform, I started to think about what I was going to get. Maybe some *Micronauts* comics? Maybe some *Archie* comics which I still liked but weren’t as “cool” as super-hero comics? Maybe something else.
 
-Before you knew it we were at 34th Street in Herald Square. I kinda knew the lay of the land around thes streets there—since that’s where my parents usually went to discount shop on the weekends—but this time it was a wee but different because we were headed to Madison Square Garden.
+Before you knew it we were at 34th Street in Herald Square. I kinda knew the lay of the land around these streets there—since that’s where my parents usually went to discount shop on the weekends—but this time it was a wee but different because we were headed to Madison Square Garden.
 
 This convention was definitely not big enough to justify it taking up Madison Square Garden, but it did take up some small part of the space that wasn’t the main arena for an event like this.
 
@@ -63,9 +63,9 @@ We all kinda spilt up and wandered around. I tried flipping through a box of com
 
 So anyway, I just wandered the aisles and looked at the random ephemera that people had for sale every now and then. Small buttons, toys, “Star Trek” junk, “Beatles” junk and stuff like that. I did spot one table that had cool, imported Japanese toys but they were too expensive for me.
 
-As I walked around I ran into my friends again. They eagerly showed me what they picked up. I nodded politely and feigned intrest. I was bored and wanted to leave. I found cooler stuff in the discount bin of Nostrand Books anyway.
+As I walked around I ran into my friends again. They eagerly showed me what they picked up. I nodded politely and feigned interest; I genuinely didn’t care about superhero comics the same way they did. I was bored and wanted to leave. I found cooler stuff in the discount bin of Nostrand Books anyway.
 
-Just as I was about to say I wanted to leave, I spotted some guy walking around the aisle of a stck of mint comic books and shouting something about them being 25 cents each. At least! Something I could score.
+Just as I was about to say I wanted to leave, I spotted some guy walking around the aisle of a stack of seemingly mint comic books and shouting something about them being 25 cents each. At least! Something I could score.
 
 I walked over to him and asked what he was selling, and he showed it to me: It was a pristine stack of *Battlestar Galactica* #1 going for 25 cents a pop. My brain was spinning: I just paid Phillip $3.25 for the same comic. But this guy was selling them for 25 cents a pop. I gave the seller 25 cents, grabbed my copy and looked it over. Not only was it $3 less than the one I paid $3.25 for, it was actually in much better shape.
 
