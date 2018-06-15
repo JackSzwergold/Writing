@@ -11,23 +11,23 @@ Since comics were cheap back then—25 to 35 cents new in many cases—I would s
 
 But regardless of whatever comic I bought for my own enjoyment at the time, in the back of my mind the idea of “striking gold” and finding a comic that was worth something was ever present. More often than not, scoring a literal #1 issue of a comic was a theoretical ticket to smalltime wealth and fame. I mean, people paid good money for #1 issues of famous comics, right? So buying a #1 issue of almost anything was a good investment, right?
 
-Anyway, back in the spring of 1979 the original *Battlestar Galactica* was a semi big deal on TV (taking advantage of the *Star Wars* craze at the time) and the tie-in/cash-in comic book was a semi big deal as well. The first issue of that comic came out, but nobody I knew could score a copy. “It’s gotta be worth something!” friends would say, but none of us knew how much it was worth since we were just 10 or 11 years old at the time.
+Anyway, back in the spring of 1979 the original *Battlestar Galactica* was a semi big deal on TV (taking advantage of the *Star Wars* craze at the time) and the tie-in/cash-in comic book was a semi big deal as well. The first issue of that comic came out, but nobody I knew could score a copy. “It’s gotta be worth something!” friends would say, but none of us knew how much it was worth since we were just 10 or 11 years old at the time and didn’yt know much about price guides and such.
 
-So one day in the cafeteria—as we were all sitting around and talking about this, that and the other—someone chimed in and said, “Hey! You know, Phillip has a copy of *Battlestar Galactica* #1.” And everyone’s eyes lit up.
+So one day in the cafeteria—as we were all sitting around and talking about this, that and the other—someone chimed in and said, “Hey! You know what? Phillip has a copy of *Battlestar Galactica* #1!” And everyone’s eyes lit up.
 
-Philip was a cool kid, but didn’t really mingle with our table. He was Pilipino and hung out at another table. But one day—before one of our classes started—I poked Philip in the back with a pencil and asked, “You have a copy of *Battlestar Galactica* #1?” “Yeah,” he said. “You want it?” he added.
+Philip was a cool kid, but didn’t really mingle with our table. He was Pilipino and hung out at another table with other kids. But one day—before one of our classes started—I poked Philip in the back of his shoulder with a pencil and asked, “You have a copy of *Battlestar Galactica* #1?” “Yeah,” he said. “You want it?” he added.
 
-At that moment I just wanted to know if he had a copy, but the idea of getting it was something else. “Well, bring it in and let me see it,” I said.
+At that moment I just wanted to know if he had a copy, but the idea of owning it was something else. “Well, bring it in and let me see it,” I said.
 
-“Sure,” he said. “I’ll bring it in tomorrow,” he added as the teacher started to talk and we all started to listen.
+“Sure,” he said. “I’ll bring it in tomorrow,” he added as the teacher started to talk and we all composed ourselves and started to listen.
 
 The next day we all waited at the lunch table for Philip to show up, but he was nowhere to be found. “Did he cut out of class?” someone asked to which we all shrugged and had nothing much else to add.
 
 Then—seemingly out of nowhere—Phillip came over to the table, sat down and opened up his book bag.
 
-“Okay,” he said as he opened the flap of the olive drab Musette book bag and pulled the copy of *Battlestar Galactica* #1 out from between some books.
+“Okay,” he said as he opened the flap of the olive drab Musette book bag and pulled the copy of *Battlestar Galactica* #1 out from between some textbooks.
 
-It was in a protective mylar bag and rested on an acid free backing board and we were all impressed. You only really spent the extra money for a bag and backing board for comics that are worth something.
+There it was! He kept it in a protective mylar plastic storage bag and rested on an acid free backing board and we were all impressed. You only really spent the extra money for a bag and backing board for comics that are worth something.
 
 When he pulled the comic out we were a bit less impressed. The cover had some dings and folds and it was clearly already read; this comic was not in mint condition but rather it was “fair” to “good” at best.
 
