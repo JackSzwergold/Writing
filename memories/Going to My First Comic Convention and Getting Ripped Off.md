@@ -61,7 +61,7 @@ As we walked inside, it was exactly what I expected it to be: Basically a huge f
 
 Once inside, we all kinda spilt up and wandered around. I tried flipping through a box of comics, but wasn’t really into it. First I wasn’t—and had never been—a big comic book collector; I just liked buying a few specific titles. So the idea of flipping through piles of boxes to find something seemed weird to me. I never really cared about huge, elaborate plots and after a while the “game” of comics became pretty clear: You bought one comic because a secret from another comic was “revealed” in another. It was all a scheme to get kids to buy more and more comics just to close some silly trivia loop. And I wasn’t into it; I just liked comics bcause of the art and action and not much else.
 
-So anyway, I just wandered the aisles and looked at the random ephemera that people had for sale every now and then. Small buttons, toys, “Star Trek” junk, “Beatles” junk and stuff like that. I did spot one table that had cool, imported Japanese toys but they were too expensive for me.
+So I just wandered the aisles and looked at the randomly displayed ephemera and related junk that people had for sale across some of their tables. Novelties, promotional buttons, toys, “Star Trek” junk, “Beatles” junk and stuff like that. I did spot one table that had cool, imported Japanese toys but they were too expensive for me.
 
 As I walked around I ran into my friends again. They eagerly showed me what they picked up. I nodded politely and feigned interest; I genuinely didn’t care about superhero comics the same way they did. I was bored and wanted to leave. I found cooler stuff in the discount bin of Nostrand Books anyway.
 
