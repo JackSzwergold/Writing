@@ -27,15 +27,15 @@ Then—seemingly out of nowhere—Phillip came over to the table, sat down and o
 
 “Okay,” he said as he opened the flap of the olive drab Musette book bag and pulled the copy of *Battlestar Galactica* #1 out from between some textbooks.
 
-There it was! He kept it in a protective mylar plastic storage bag and rested on an acid free backing board and we were all impressed. You only really spent the extra money for a bag and backing board for comics that are worth something.
+There it was! He kept it in a protective mylar plastic storage bag with an acid free backing board—to prevent it getting bent—and we were all impressed. You only really spent the extra money for a decent plastic bag and backing board for comics that are worth something, right?
 
-When he pulled the comic out we were a bit less impressed. The cover had some dings and folds and it was clearly already read; this comic was not in mint condition but rather it was “fair” to “good” at best.
+When he pulled the comic out we were a bit less impressed. The cover had some dings and folds and it was clearly handled and read; this comic was not in mint condition but rather it was “fair” to “good” at best.
 
 He passed it over to me and as I flipped through it he said, “You can have it for $5.” A few kids gasped and looked at each other. “$5?” I said, “This isn’t mint and it sold for 35 cents when you got it,” I added. He then came back at me and said, “Okay, how about $3.50.” To which I retorted, “I’ll give you $3.25 since that’s all I have.”
 
-There was a pause, and he said yes and with that I pulled out $3.25 in a mix of crumbled dollar bills and change from my pocket and paid him for it.
+We all fell silent. And after a seemingly endless pause he said yes. And with that I pulled out the $3.25 in a mix of crumbled dollar bills and change from my pocket and paid him.
 
-As he took the money and I took the comic, I quickly place it back into the bag.
+As he took the money and I took the comic, quickly gave it a once-ver and then slid it back into the plastic bag.
 
 “You know that’s gonna be worth something someday!” one of my friends said. I nodded and thought I made a good investment. I might have been only 10 years old at the time, but dreams of selling this comic for $15 or maybe $20 when I was 20 years old swam through my head.
 
