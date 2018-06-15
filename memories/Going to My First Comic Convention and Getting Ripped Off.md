@@ -11,7 +11,7 @@ Since comics were cheap back then—25 to 35 cents new in many cases—I would s
 
 But regardless of whatever comic I bought for my own enjoyment at the time, in the back of my mind the idea of “striking gold” and finding a comic that was worth something was ever present. More often than not, scoring a literal #1 issue of a comic was a theoretical ticket to smalltime wealth and fame. I mean, people paid good money for #1 issues of famous comics, right? So buying a #1 issue of almost anything was a good investment, right?
 
-Anyway, back in the spring of 1979 the original *Battlestar Galactica* was a semi big deal on TV (taking advantage of the *Star Wars* craze at the time) and the tie-in/cash-in comic book was a semi big deal as well. The first issue of that comic came out, but nobody I knew could score a copy. “It’s gotta be worth something!” friends would say, but none of us knew how much it was worth since we were just 10 or 11 years old at the time and didn’yt know much about price guides and such.
+Anyway, back in the spring of 1979 the original *Battlestar Galactica* was a semi big deal on TV (taking advantage of the *Star Wars* craze at the time) and the tie-in/cash-in comic book was a semi big deal as well. The first issue of that comic came out, but nobody I knew could score a copy. “It’s gotta be worth something!” friends would say, but none of us knew how much it was worth since we were just 10 or 11 years old at the time and didn’t know much about price guides and such.
 
 So one day in the cafeteria—as we were all sitting around and talking about this, that and the other—someone chimed in and said, “Hey! You know what? Phillip has a copy of *Battlestar Galactica* #1!” And everyone’s eyes lit up.
 
@@ -49,7 +49,7 @@ A few weeks passed, and school had ended. While it wasn’t exactly summer, it w
 
 “What’s happening?” I asked and got the response, “There’s a comic convention. Let’s go!” And with that I headed over to my friends place deeper down in Brighton Beach to head into “The City” and go to this comic convention.
 
-I had never been to a comic convention before, but I heard about them and they sounded like a cool thing to do. From what I gathered they were basically flea markets that just sold comics and other related stuff. And I would occassionally hear about someone finding something cool at a comic convention so why not?
+I had never been to a comic convention before, but I heard about them and they sounded like a cool thing to do. From what I gathered they were basically flea markets that just sold comics and other related stuff. And I would occasionally hear about someone finding something cool at a comic convention so why not?
 
 As we waited on the platform, I started to think about what I was going to get. Maybe some *Micronauts* comics? Maybe some *Archie* comics which I still liked but weren’t as “cool” as super-hero comics? Maybe something else?
 
@@ -59,7 +59,7 @@ While Madison Square Garden was huge, the convention was definitely not big enou
 
 As we walked inside, it was exactly what I expected it to be: Basically a huge flea market… But just slightly nicer. Piles of cheap folding tables filled with tons of dingy white boxes with transparent, protective plastic bags that had comic books in them.
 
-Once inside, we all kinda spilt up and wandered around. I tried flipping through a box of comics, but wasn’t really into it. First I wasn’t—and had never been—a big comic book collector; I just liked buying a few specific titles. So the idea of flipping through piles of boxes to find something seemed weird to me. I never really cared about huge, elaborate plots and after a while the “game” of comics became pretty clear: You bought one comic because a secret from another comic was “revealed” in another. It was all a scheme to get kids to buy more and more comics just to close some silly trivia loop. And I wasn’t into it; I just liked comics bcause of the art and action and not much else.
+Once inside, we all kinda spilt up and wandered around. I tried flipping through a box of comics, but wasn’t really into it. First I wasn’t—and had never been—a big comic book collector; I just liked buying a few specific titles. So the idea of flipping through piles of boxes to find something seemed weird to me. I never really cared about huge, elaborate plots and after a while the “game” of comics became pretty clear: You bought one comic because a secret from another comic was “revealed” in another. It was all a scheme to get kids to buy more and more comics just to close some silly trivia loop. And I wasn’t into it; I just liked comics because of the art and action and not much else.
 
 So I just wandered the aisles and looked at the randomly displayed ephemera and related junk that people had for sale across some of their tables. Novelties, promotional buttons, toys, “Star Trek” junk, “Beatles” junk and stuff like that. I did spot one table that had cool, imported Japanese toys but they were too expensive for me.
 
@@ -69,9 +69,9 @@ Just as I was about to actually say, “I want to leave…” I spotted some guy
 
 I walked over to him and asked what he was selling, and he showed it to me: It was a truly pristine stack of *Battlestar Galactica* #1 going for 25 cents a pop. My brain was spinning: I just paid Phillip $3.25 for the same comic. But this guy was selling the same exact comic for 25 cents a pop? Wow! Without thinking much about it, I gave the guy 25 cents, he gave me a copy from his stack and I looked it over. Not only was it $3 less than the one I paid $3.25 for, it was clearly in much better shape than the one Phillip sold me.
 
-I showed it to my friends and they all agreed: This 25 cent copy looked great and got clearly git ripped off by Phillip. Maybe I should confront Phillip at school and complain? But I pretty much realized immediately that doing something like that was a losing proposition at best. I mean, how would Phillip have known about this one random guy and his seemingly random stack of *Battlestar Galactica* #1 comics?
+I showed it to my friends and they all agreed: This 25 cent copy looked great and got clearly git ripped off by Phillip. Maybe I should confront Phillip at school and complain? But I pretty much realized immediately that doing something like that was a losing proposition at best. I mean, how would Phillip have known about this one random guy and his seemingly random stack of *Battlestar Galactica* #1 comics at a comic convention in “The City?”
 
-Part me of also thought of buying a second comic for 25 cents. I mean if I had three comics that were destined to be worth something—because what #1 of a comic doesn’t increase in value—wouldn’t I really be increasing my meager investment? I mean for $3.75 ($3.25 plus 25 cents plus another 25 cents) I could have a solid investment that could have increased in price to $5 per copy netting me $15 in the future when I decided to finally sell these gems.
+Part me of also thought a better tactic might be buying a second comic for 25 cents. I mean if I had three comics that were destined to be worth something—because what #1 of a comic doesn’t increase in value—wouldn’t I really be increasing my meager investment? I mean for $3.75 ($3.25 plus 25 cents plus another 25 cents) I could have a solid investment that could have increased in price to $5 to $20 per copy netting me $15 to $60 in the future when I was 20 years old and would finally sell these gems.
 
 But no matter. I didn’t buy another copy. I simply found a bag of some sort, slipped the comic into it, headed out into the streets with my friends and headed back home.
 
