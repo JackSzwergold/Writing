@@ -46,13 +46,13 @@ Just as we were all on the edge of thinking something horrible happened to him, 
 
 He sat down at the weekly meeting and let us know what happened: He was picked up by local cops who were questioning him about the sudden death of his wife’s roommate.
 
-Without missing a beat John explained to us what happened: Apparently the his wife’s roommate died suddenly from a drinking a mixture of sleeping pills and alcohol and he was being questioned as a suspect. But while that was a description of a crime he was suspected of committing, that wasn’t the actual reason he was out of touch with us. That was simply something that happened while he was away elsewhere at a book fair.
+Without missing a beat John explained to us what happened: Apparently the his wife’s roommate died suddenly from a drinking a mixture of sleeping pills and alcohol and he was being questioned as a suspect. But while that was a description of a crime he was suspected of committing, that wasn’t the actual reason he was out of touch with us. That was simply something that happened while he was away doing something else.
 
-John’s story—to us and the cops—was that he went to some book fair with the bookshop owner across the street the newspaper during the time that guy apparently committed suicide. So it was not possible for him to have been around when his wife’s roommate died.
+John’s story—to us and the cops—was that he went to some book fair with the owner of the bookshop across the street from the newspaper during the time that guy died. So it was not possible for him to have been around when his wife’s roommate apparently committed suicide.
 
-We knew John liked books, but he never told us about a book fair. Nor did any of us knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a book fair? Who does that?
+We knew John liked books, but he never told us about a book fair. Nor did any of us—at the newspaper or the liquor store—knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a book fair? Who does that?
 
-But apparently the cops accepted that alibi and John was no longer a suspect and life went on.
+But apparently the cops accepted that alibi and John was no longer a suspect in someone’s death and life went on.
 
 ***
 
