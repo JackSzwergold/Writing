@@ -48,7 +48,17 @@ As I walked in I spotted Todd again, standing around and endlessly yammering abo
 
 “Cool,” the person he was talking to said and then followed up by saying, “Hey! There’s Anne!”
 
-I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from *Scooby Doo*
+I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from *Scooby Doo*.
+
+She walked over and said “Hey!” to us all. But was a bit stiff. I soon found out she was a zinster; meaning she put out a zine. And in this case the zine was called something like “Baby Food” so her hipster name was “Baby Food Anne.”
+
+We chatted for a bit and then I noticed something magical: Two people had gotten up from two chairs. So I went in sat down in one of them.
+
+The chairs were simple, old school living room chairs. Kinda like what Archie and Edith sat in on *All in the Family*. Todd didn’t sit down, but Rob—who somehow wandered into the room—did and we had an odd mumbling conversation.
+
+I mainly nodded at him and laughed a bit, but had no clue what his mumbling drunk mouth was talking about.
+
+As time passed, I turned around and saw Anne standing there… But she was acting weird. She was clearly still conscious but was catatonic and staring out into nowhere.
 
 ***
 
