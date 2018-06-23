@@ -44,7 +44,11 @@ While these absences were sporadic, there was a small span of a week or two wher
 
 Just as we were all on the edge of thinking something horrible happened to him, he mysteriously showed up at the offices again.
 
-He sat down at the weekly meeting and let us know what happened.
+He sat down at the weekly meeting and let us know what happened. Apparently he was arrested by local cops in connection withb the sudden death of his wife’s roommate.
+
+Without missing a beat he explained why he was out of touch with us: Apparently the guy died of a mixture taking some sleeping pills and drinking alcohol and John was a suspect. 
+
+John’s alibi was that he went to some book fair with the bookshop owner across the street the newspaper during the time that guy died. We knew John liked books, but he never told us about a book fair. Nor did any of us knew that he took off for a few weeks to go to a book fair.
 
 ***
 
