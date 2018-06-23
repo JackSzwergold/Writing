@@ -14,7 +14,7 @@ Downstairs was some shitty noise DJ situation. Lots of black lights, flickering 
 
 Todd was dressed up in some improvised outfit that consisted of some kind of crappy ape costume; unzipped front and no ape head. Just his sweaty long-haired head.
 
-“Isn’t this great!” he said while bobbing out of sync with the eletronic skronk playing trhough the sound system. I turned around and saw some people come downstairs, look around and then head back upstairs.
+“Isn’t this great!” he said while bobbing out of sync with the electronic skronk playing through the sound system. I turned around and saw some people come downstairs, look around and then head back upstairs.
 
 Todd and I were DJ WhatTheFucks’ only audience at that moment. “I can’t believe they got him!” he said, bobbing some more and taking some drags off of the cigarette in his driving glove covered hand.
 
@@ -42,7 +42,7 @@ That said, while there was a huge room with a lot of open space, there wasn’t 
 
 He was a quiet drunk for the most part, but did blurt out “She’s got a nice tushy!” when some woman with a nice ass walked by us to wait in line to get to the bathroom. “Yup!” I said in agreement.
 
-After a while, I felt the need to not be near Rob, so I stodd up and headed to the main room on the 2nd floor.
+After a while, I felt the need to not be near Rob, so I stood up and headed to the main room on the 2nd floor.
 
 As I walked in I spotted Todd again, standing around and endlessly yammering about how great DJ WhoGivesAShit was. I walked over and said hi, and he immediately dragged me into the conversation, “Wasn’t DJ WhoCares great?” he asked me to which I nodded and shrugged and that was that.
 
@@ -50,7 +50,7 @@ As I walked in I spotted Todd again, standing around and endlessly yammering abo
 
 I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from *Scooby Doo*.
 
-She walked over and said “Hey!” to us all. But was a bit stiff. I soon found out she was a zinster; meaning she put out a zine. And in this case the zine was called something like “Baby Food” so her hipster name was “Baby Food Anne.”
+She walked over and said “Hey!” to us all. But was a bit stiff. I soon found out she was a zinester; meaning she put out a zine. And in this case the zine was called something like “Baby Food” so her hipster name was “Baby Food Anne.”
 
 We chatted for a bit and then I noticed something magical: Two people had gotten up from two chairs. So I went in sat down in one of them.
 
@@ -60,7 +60,7 @@ I mainly nodded at him and laughed a bit, but had no clue what his mumbling drun
 
 As time passed, I turned around and saw Anne standing there… But she was acting weird. She was clearly still conscious but was catatonic and staring out into nowhere.
 
-I stood up and stood right in front of her and she barely moved. Her head and eyes twiched a bit but in general seemed to stand there like stiff, malfunctioning robot.
+I stood up and stood right in front of her and she barely moved. Her head and eyes twitched a bit but in general seemed to stand there like stiff, malfunctioning robot.
 
 Someone who knew her came by, and explained to me casually that she fell into catatonic states like this all the time and it was no big deal. I nodded at them and then looked at Anne and just accepted it as is.
 
