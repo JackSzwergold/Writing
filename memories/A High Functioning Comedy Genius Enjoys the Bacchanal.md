@@ -18,6 +18,16 @@ Todd was dressed up in some improvised outfit that consisted of some kind of cra
 
 Todd and I were DJ WhatTheFucks’ only audience at that moment. “I can’t believe they got him!” he said, bobbing some more and taking some drags off of the cigarette in his driving glove covered hand.
 
+I nodded politely and then headed back upstairs. It was a bit more crowded, but not that bad. Spotted Rob and he was drunk. Which was amazing because I really can’t recall ever seeing Rob be drunk or even drinking before this party.
+
+“Jack!” he said.
+
+“Rob!” I responded as he placed a hand on my shoulder, leaned in and said, “I’m drunk.”
+
+“Okay,” I said as I stood there.
+
+The pregnant, awkward pause went on longer than expected so I said, “Hey! Let’s go upstairs.”
+
 ***
 
 *A High Functioning Comedy Genius Enjoys the Bacchanal (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
