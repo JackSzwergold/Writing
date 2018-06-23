@@ -20,7 +20,11 @@ I got along with him when I could, but the times his bitterness about failing in
 
 While John was married, at one point he was separated from his wife.
 
-His wife was nice, but a tad robotic. John was passive agressive—and sometimes just straight out aggressive—and a bit of a drunk. And oh yeah, while they were married they were supposedly in an “open relationship.” Which pratically meant 
+His wife was nice, but a tad robotic. John was passive agressive—and sometimes just straight out aggressive—and a bit of a drunk. And oh yeah, while they were married they were supposedly in an “open relationship.” Which pratically meant he screwed around on her and she simply sat at home and dealt with it.
+
+From what we could gather about this separation, she moved out of their apartment and was now sharing a place with some other guy. There was no romantic involvement with the other guy; he was just a roommate.
+
+John still lived in their old place and that was that.
 
 ***
 
