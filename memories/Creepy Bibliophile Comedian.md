@@ -52,7 +52,9 @@ John’s story—to us and the cops—was that he went to some book fair with th
 
 We knew John liked books, but he never told us about a book fair. Nor did any of us knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a book fair? Who does that?
 
-But apparently the cops accepted that story, it became his alibi and life went on.
+But apparently the cops accepted that alibi, John was no longer a a suspect and and life went on.
+
+***
 
 A few weeks later John’s ex-wife had moved back in with him. When I talked to her she repeated some variant of the same story: The guy was depressed and acted down all the time she was roommates with him so the fact he died like that doesn’t surprise me.
 
