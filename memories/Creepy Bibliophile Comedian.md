@@ -28,7 +28,15 @@ John still lived in their old place and that was that.
 
 ***
 
-I occassionally saw 
+While Madison was a decent sized city, it was still a small town in some ways. And you would run into people out on the street fairly regularly.
+
+In the case of John, I spotted him out on the street every now and then. Mostly at bars or just wandering about. But during this separation, I would often see him at this bookstore right across the street from the newspaper’s offices.
+
+I knew he liked books, but he would often be in that bookstore for hours on end hanging out with the owner of the place.
+
+On a few occassions I witnessed some weirdness: Namely, the owner of the bookstore crossing the street to head to a nearby bar with John trailing behind him literally like some puppy dog.
+
+
 
 ***
 
