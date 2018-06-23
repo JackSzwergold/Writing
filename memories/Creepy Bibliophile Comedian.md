@@ -46,7 +46,7 @@ Just as we were all on the edge of thinking something horrible happened to him, 
 
 He sat down at the weekly meeting and let us know what happened: He was picked up by local cops who were questioning him about the sudden death of his wife’s roommate.
 
-Without missing a beat he explained to us what happened: Apparently the his wife’s roommate died suddenly of a mixture taking some sleeping pills and drinking alcohol and John was a suspect. But while that was a description of a crime he was suspected of committing, that wasn’t the reason he was out of touch with us. That was simply something that happened while he was away elsewhere at a book fair.
+Without missing a beat John explained to us what happened: Apparently the his wife’s roommate died suddenly from a drinking a mixture of sleeping pills and alcohol and he was being questioned as a suspect. But while that was a description of a crime he was suspected of committing, that wasn’t the actual reason he was out of touch with us. That was simply something that happened while he was away elsewhere at a book fair.
 
 John’s story—to us and the cops—was that he went to some book fair with the bookshop owner across the street the newspaper during the time that guy apparently committed suicide. So it was not possible for him to have been around when his wife’s roommate died.
 
