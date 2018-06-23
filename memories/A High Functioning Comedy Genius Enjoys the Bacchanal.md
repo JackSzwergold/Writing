@@ -18,7 +18,11 @@ Todd was dressed up in some improvised outfit that consisted of some kind of cra
 
 Todd and I were DJ WhatTheFucks’ only audience at that moment. “I can’t believe they got him!” he said, bobbing some more and taking some drags off of the cigarette in his driving glove covered hand.
 
-I nodded politely and then headed back upstairs. It was a bit more crowded, but not that bad. Spotted Rob and he was drunk. Which was amazing because I really can’t recall ever seeing Rob be drunk or even drinking before this party.
+I nodded politely and then headed back upstairs.
+
+***
+
+It was a bit more crowded, but not that bad. Spotted Rob and he was drunk. Which was amazing because I really can’t recall ever seeing Rob be drunk or even drinking before this party.
 
 “Jack!” he said.
 
@@ -31,6 +35,16 @@ The pregnant, awkward pause went on longer than expected so I said, “Hey! Let�
 Make no mistake, this wasn’t a romantic invitation by a long shot. I just needed a change of pace and needed to see what was happening on the 2nd floor of this house.
 
 ***
+
+The second floor was pretty chill. Kind of like the scene on the first floor but with more seating and better lighting.
+
+That said, while there was a huge room with a lot of open space, there wasn’t a lot of room to sit. So Rob and I sat out in a hallway near the bathroom.
+
+He was a quiet drunk for the most part, but did blurt out “She’s got a nice tushy!” when some woman with a nice ass walked by us to wait in line to get to the bathroom. “Yup!” I said in agreement.
+
+After a while, I felt the need to not be near Rob, so I stodd up and headed to the main room on the 2nd floor.
+
+As I walked in I spotted Todd again
 
 ***
 
