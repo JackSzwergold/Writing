@@ -44,7 +44,11 @@ He was a quiet drunk for the most part, but did blurt out “She’s got a nice 
 
 After a while, I felt the need to not be near Rob, so I stodd up and headed to the main room on the 2nd floor.
 
-As I walked in I spotted Todd again
+As I walked in I spotted Todd again, standing around and endlessly yammering about how great DJ WhoGivesAShit was. I walked over and said hi, and he immediately dragged me into the conversation, “Wasn’t DJ WhoCares great?” he asked me to which I nodded and shrugged and that was that.
+
+“Cool,” the person he was talking to said and then followed up by saying, “Hey! There’s Anne!”
+
+I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from *Scooby Doo*
 
 ***
 
