@@ -26,7 +26,11 @@ I nodded politely and then headed back upstairs. It was a bit more crowded, but 
 
 “Okay,” I said as I stood there.
 
-The pregnant, awkward pause went on longer than expected so I said, “Hey! Let’s go upstairs.”
+The pregnant, awkward pause went on longer than expected so I said, “Hey! Let’s go upstairs.” And with that we went ahead and headed upstairs.
+
+Make no mistake, this wasn’t a romantic invitation by a long shot. I just needed a change of pace and needed to see what was happening on the 2nd floor of this house.
+
+***
 
 ***
 
