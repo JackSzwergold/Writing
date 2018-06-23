@@ -66,7 +66,13 @@ Someone who knew her came by, and explained to me casually that she fell into ca
 
 Just as I was about to walk away, Todd showed up and said, “What’s up?” I pointed to Anne and said, “Look at her. She’s fucked up.”
 
-Todd looked and then just said, “So what? It’s no big deal
+Todd looked and then just said, “So what? It’s no big deal,” pushed past me and grabbed Anne from behind her head and just kissed her. I was close enough to see what he was doing was the equivalent of kissing a statue. Her lips barely moved and wherever she was at the moment it definitely was not there.
+
+He pulled his head away and said, “It’s no big deal,” put down his drink on a small side table in-between the two chairs and then went back to kissing her. But this time his right hand was headed straight down the front of her jeans.
+
+I took a few steps back and didn’t know what to do. Or if doing anything would have mattered at this point. I looked at Rob, saw the chair I was sitting in was still empty and just sat down.
+
+It was about 2:00am and I was ready to go. But still couldn’t pull myself out of the chair. So I sat and looked out the 2nd floor windows and waited for a bit before standing up, heading downstairs and walking back to my place.
 
 ***
 
