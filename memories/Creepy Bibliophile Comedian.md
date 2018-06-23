@@ -50,7 +50,7 @@ Without missing a beat John explained to us what happened: Apparently the his wi
 
 John’s story—to us and the cops—was that he went to some book fair with the owner of the bookshop across the street from the newspaper during the time that guy died. So it was not possible for him to have been around when his wife’s roommate apparently committed suicide.
 
-We knew John liked books, but he never told us about a book fair. Nor did any of us—at the newspaper or the liquor store—knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a book fair? Who does that?
+We knew John liked books, but he never told us about going to any book fairs. Nor did any of us—at the newspaper or the liquor store he worked at—knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a book fair? Who does that?
 
 But apparently the cops accepted that alibi and John was no longer a suspect in someone’s death and life went on.
 
@@ -58,9 +58,9 @@ But apparently the cops accepted that alibi and John was no longer a suspect in 
 
 A few weeks later John’s ex-wife had moved back in with him. When I talked to her at some small gathering she repeated some variant of the same story John pushed on us: Her roommate was depressed and glum all the time she lived with him so the fact he died suddenly like that didn’t surprise her.
 
-But it was hard to shake the impression—as she told me that story—that she was secretly, non-verbally stating, “And you believe that, right?” in her mind.
+But it was hard to shake the impression—as she told me that story—that she was secretly, non-verbally stating, “And you believe that, right?”
 
-I didn’t really believe any of it to be honest. But I didn’t know what to say, or who to say it to or what difference it would make at that moment. John and his wife were back together and her former roommate was dead and that is what that was then, now and always.
+I didn’t really believe any of it to be honest. But I didn’t know what to say, or who to say it to or what difference it would make at that moment. Who was I to judge? John and his wife were back together and her former roommate was dead and that is what that was then, now and always.
 
 ***
 
