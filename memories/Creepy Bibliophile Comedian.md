@@ -46,9 +46,11 @@ Just as we were all on the edge of thinking something horrible happened to him, 
 
 He sat down at the weekly meeting and let us know what happened. Apparently he was arrested by local cops in connection withb the sudden death of his wife’s roommate.
 
-Without missing a beat he explained why he was out of touch with us: Apparently the guy died of a mixture taking some sleeping pills and drinking alcohol and John was a suspect. 
+Without missing a beat he explained to us what happened: Apparently the guy died of a mixture taking some sleeping pills and drinking alcohol and John was a suspect. But that wasn’t the reason he was out of touch. 
 
-John’s alibi was that he went to some book fair with the bookshop owner across the street the newspaper during the time that guy died. We knew John liked books, but he never told us about a book fair. Nor did any of us knew that he took off for a few weeks to go to a book fair.
+John’s story—to us and the cops—was that he went to some book fair with the bookshop owner across the street the newspaper during the time that guy died.
+
+We knew John liked books, but he never told us about a book fair. Nor did any of us knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a bookfair?
 
 ***
 
