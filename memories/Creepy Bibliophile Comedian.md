@@ -56,11 +56,11 @@ But apparently the cops accepted that alibi and John was no longer a suspect and
 
 ***
 
-A few weeks later John’s ex-wife had moved back in with him. When I talked to her at some small gathering she repeated some variant of the same story John pushed on us: The guy was depressed and glum all the time she was roommates with him. So the fact he died suddenly like that didn’t surprise her.
+A few weeks later John’s ex-wife had moved back in with him. When I talked to her at some small gathering she repeated some variant of the same story John pushed on us: Her roommate was depressed and glum all the time she lived with him so the fact he died suddenly like that didn’t surprise her.
 
-But it was hard to shake the impression—as she told me that story—that she was secretly, psychically saying, “And you believe that, right?” in her mind.
+But it was hard to shake the impression—as she told me that story—that she was secretly, non-verbally stating, “And you believe that, right?” in her mind.
 
-I didn’t really believe it to be honest. But didn’t know what to say, who to say it to, or what difference it would make at that moment. They were back together and her former roommate was dead and that is what that was then, now and always.
+I didn’t really believe any of it to be honest. But I didn’t know what to say, or who to say it to or what difference it would make at that moment. John and his wife were back together and her former roommate was dead and that is what that was then, now and always.
 
 ***
 
