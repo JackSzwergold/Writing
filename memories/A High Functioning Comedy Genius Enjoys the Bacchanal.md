@@ -60,6 +60,14 @@ I mainly nodded at him and laughed a bit, but had no clue what his mumbling drun
 
 As time passed, I turned around and saw Anne standing there… But she was acting weird. She was clearly still conscious but was catatonic and staring out into nowhere.
 
+I stood up and stood right in front of her and she barely moved. Her head and eyes twiched a bit but in general seemed to stand there like stiff, malfunctioning robot.
+
+Someone who knew her came by, and explained to me casually that she fell into catatonic states like this all the time and it was no big deal. I nodded at them and then looked at Anne and just accepted it as is.
+
+Just as I was about to walk away, Todd showed up and said, “What’s up?” I pointed to Anne and said, “Look at her. She’s fucked up.”
+
+Todd looked and then just said, “So what? It’s no big deal
+
 ***
 
 *A High Functioning Comedy Genius Enjoys the Bacchanal (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
