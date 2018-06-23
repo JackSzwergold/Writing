@@ -12,7 +12,11 @@ I wandered about and checked out the scene. The ground floor was like every othe
 
 Downstairs was some shitty noise DJ situation. Lots of black lights, flickering lights and in the corner—near what seemed to be the entrance to a laundry room—was DJ DangerBear or MouseHead or some bullshit like this. There he was tweaking on mixers to a room of nobody. Well, not technically nobody: I was there and so was a fellow staffer at the newspaper, Todd.
 
-Todd was dressed up in some improvised outfit that consisted of some 
+Todd was dressed up in some improvised outfit that consisted of some kind of crappy ape costume; unzipped front and no ape head. Just his sweaty long-haired head.
+
+“Isn’t this great!” he said while bobbing out of sync with the eletronic skronk playing trhough the sound system. I turned around and saw some people come downstairs, look around and then head back upstairs.
+
+Todd and I were DJ WhatTheFucks’ only audience at that moment. “I can’t believe they got him!” he said, bobbing some more and taking some drags off of the cigarette in his driving glove covered hand.
 
 ***
 
