@@ -18,6 +18,10 @@ I got along with him when I could, but the times his bitterness about failing in
 
 ***
 
+While John was married, at one point he was separated from his wife.
+
+His wife was nice, but a tad robotic. John was passive agressive—and sometimes just straight out aggressive—and a bit of a drunk. And oh yeah, while they were married they were supposedly in an “open relationship.” Which pratically meant 
+
 ***
 
 *Creepy Bibliophile Comedian (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
