@@ -44,19 +44,19 @@ While these absences were sporadic, there was a small span of a week or two wher
 
 Just as we were all on the edge of thinking something horrible happened to him, he mysteriously showed up at the offices again.
 
-He sat down at the weekly meeting and let us know what happened. Apparently he was arrested by local cops in connection with the sudden death of his wife’s roommate.
+He sat down at the weekly meeting and let us know what happened: He was picked up by local cops who were questioning him about the sudden death of his wife’s roommate.
 
-Without missing a beat he explained to us what happened: Apparently the his wife’s roommate died suddenly of a mixture taking some sleeping pills and drinking alcohol and John was a suspect. But while that was a description of a crime he was suspected of commiting, that wasn’t the reason he was out of touch. That was simply something that happened while he was away elsewhere at a book fair.
+Without missing a beat he explained to us what happened: Apparently the his wife’s roommate died suddenly of a mixture taking some sleeping pills and drinking alcohol and John was a suspect. But while that was a description of a crime he was suspected of committing, that wasn’t the reason he was out of touch with us. That was simply something that happened while he was away elsewhere at a book fair.
 
-John’s story—to us and the cops—was that he went to some book fair with the bookshop owner across the street the newspaper during the time that guy apparently commited suicide. So it was not possible for him to have been around when his wife’s roommated died.
+John’s story—to us and the cops—was that he went to some book fair with the bookshop owner across the street the newspaper during the time that guy apparently committed suicide. So it was not possible for him to have been around when his wife’s roommate died.
 
 We knew John liked books, but he never told us about a book fair. Nor did any of us knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a book fair? Who does that?
 
-But apparently the cops accepted that alibi, John was no longer a a suspect and and life went on.
+But apparently the cops accepted that alibi and John was no longer a suspect and life went on.
 
 ***
 
-A few weeks later John’s ex-wife had moved back in with him. When I talked to her she repeated some variant of the same story: The guy was depressed and acted down all the time she was roommates with him so the fact he died like that doesn’t surprise me.
+A few weeks later John’s ex-wife had moved back in with him. When I talked to her at some small gathering she repeated some variant of the same story John pushed on us: The guy was depressed and glum all the time she was roommates with him. So the fact he died suddenly like that didn’t surprise her.
 
 But it was hard to shake the impression—as she told me that story—that she was secretly, psychically saying, “And you believe that, right?” in her mind.
 
