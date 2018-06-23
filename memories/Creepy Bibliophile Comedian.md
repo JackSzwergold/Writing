@@ -40,7 +40,11 @@ More than a few times he’d miss weekly staff meetings while hanging out with t
 
 ***
 
-While these absences were sporadic, there was a small span of a week or two where literally nobody heard from John at all. Which was weird.
+While these absences were sporadic, there was a small span of a week or two where literally nobody heard from John at all. Which was weird. He really didn’t have a job past working in the local liquor store and writing for the newspaper, so him just disappearing like that was unexpected.
+
+Just as we were all on the edge of thinking something horrible happened to him, he mysteriously showed up at the offices again.
+
+He sat down at the weekly meeting and let us know what happened.
 
 ***
 
