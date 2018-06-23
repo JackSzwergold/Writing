@@ -34,9 +34,13 @@ In the case of John, I spotted him out on the street every now and then. Mostly 
 
 I knew he liked books, but he would often be in that bookstore for hours on end hanging out with the owner of the place.
 
-On a few occassions I witnessed some weirdness: Namely, the owner of the bookstore crossing the street to head to a nearby bar with John trailing behind him literally like some puppy dog.
+On a few occassions I witnessed some weirdness: Namely, the owner of the bookstore crossing the street to head to a nearby bar with John trailing behind him literally like some puppy dog. I mean the look on his face literally looked like a gobsmacked puppy when I spotted him like this. And I would even try to say “Hi!” but it was like he was on another planet.
 
+More than a few times he’d miss weekly staff meetings while hanging out with the bookstore owner. Everyone notice, and our editors would comment about his absence, but since he was an old school writer they let it slide. And he would often show up after the meeting—or the next day—apologizing for his absence and handing in work as assigned.
 
+***
+
+While these absences were sporadic, there was a small span of a week or two where literally nobody heard from John at all. Which was weird.
 
 ***
 
