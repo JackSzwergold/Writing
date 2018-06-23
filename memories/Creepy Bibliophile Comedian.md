@@ -48,7 +48,7 @@ He sat down at the weekly meeting and let us know what happened. Apparently he w
 
 Without missing a beat he explained to us what happened: Apparently the his wife’s roommate died suddenly of a mixture taking some sleeping pills and drinking alcohol and John was a suspect. But while that was a description of a crime he was suspected of commiting, that wasn’t the reason he was out of touch. That was simply something that happened while he was away elsewhere at a book fair.
 
-John’s story—to us and the cops—was that he went to some book fair with the bookshop owner across the street the newspaper during the time that guy apparently commited suicide. So it was not possible for him to have been around for
+John’s story—to us and the cops—was that he went to some book fair with the bookshop owner across the street the newspaper during the time that guy apparently commited suicide. So it was not possible for him to have been around when his wife’s roommated died.
 
 We knew John liked books, but he never told us about a book fair. Nor did any of us knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a book fair? Who does that?
 
