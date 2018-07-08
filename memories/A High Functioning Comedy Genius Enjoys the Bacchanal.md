@@ -18,17 +18,17 @@ I nodded politely and then headed back upstairs.
 
 ***
 
-It was a bit more crowded, but not that bad. Spotted Rob and he was drunk. Which was amazing because I really can’t recall ever seeing Rob be drunk or even drinking before this party.
+Upstairs, it was a bit more crowded, but not that bad. I spotted Rob and he was drunk which was amazing because I really can’t recall ever seeing Rob be drunk or even drinking before this party.
 
 “Jack!” he said.
 
 “Rob!” I responded as he placed a hand on my shoulder, leaned in and said, “I’m drunk.”
 
-“Okay,” I said as I stood there.
+“Okay,” I said as I stood there and nodded in agreement.
 
-The pregnant, awkward pause went on longer than expected so I said, “Hey! Let’s go upstairs.” And with that we went ahead and headed upstairs.
+The pregnant, awkward pause went on a few beats longer than expected so I said, “Hey! Let’s go upstairs.” And with that we went ahead and headed up to the second floor.
 
-Make no mistake, this wasn’t a romantic invitation by a long shot. I just needed a change of pace and needed to see what was happening on the 2nd floor of this house.
+Make no mistake, this wasn’t a romantic invitation by a long shot. I just needed a change of pace and needed to see what was happening on the second floor of this house.
 
 ***
 
