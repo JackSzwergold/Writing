@@ -6,11 +6,11 @@ The first time I met John people told me how he had previously headed to New Yor
 
 Apparently since I was born—and lived—in New York City around the same time he was there trying to “make it” (whatever that means) some thought that would somehow translate into somehow us knowing each other. And honestly I didn’t know him from a hole in the ground but he seemed like a nice guy… At least from what I had heard about him. And in pictures that were shared with me he seemed like an innocuous, *Devo*-loving Midwestern hipster.
 
-Then I met him.
+Then I actually met him.
 
-I’ll leave lots of the weedy details for some other piece, but at the end of the day John was some weird midwestern passive aggressive writer wannabe who was really just a hipster drunk at best.
+I’ll leave a lot of the hyper-specific, niggly details of his personality for some other piece. But at the end of the day John was basically Midwestern passive aggressive weirdo writer wannabe at best who most of the time was really just an erudite hipster alcoholic and not much else.
 
-I got along with him when I could, but the times his bitterness about failing in New York—and having to head back to Madison, Wisconsin—popped up I suddenly became a target for some of his misguided, prejudicial self-centered bullshit.
+I mean, I was able to get along with him when I could. But the times his bitterness and resentment about failing as a New York City creative—and having to head back home to Madison, Wisconsin—popped up I could barely breathe in the same space he took up. Those were the times I suddenly became a target for some of his misguided, prejudicial self-centered bullshit.
 
 ***
 
