@@ -18,9 +18,9 @@ So on to the rest of teh story as I know it.
 
 While John was married, at one point he was separated from his wife.
 
-His wife was nice, cuet, cool and pleasant but was a tad robotic. She was kind of a hipster “Stepford Wife” in many respects. John was passive aggressive—and sometimes just straight out aggressive—and the drinking didn’t temper these tendencies. And oh yeah, while they were married they were supposedly in an “open relationship.” Which—as most of us who knew John knew—practically meant he just screwed around on her impulsively all the time and she simply sat at home and dealt with it.
+His wife was nice, cuet, cool and pleasant but was a tad robotic. She was kind of a hipster “Stepford Wife” in many respects. John was passive aggressive—and sometimes just straight out aggressive—and the drinking didn’t temper these tendencies. And oh yeah, while they were married they were supposedly in an “open relationship.” Which—as most of us who knew John knew—practically meant he just screwed around on her impulsively all the time and she simply sat at home alone and dealt with it.
 
-From what we could gather about this separation, she moved out of their apartment and was now sharing a place with some other guy. There was no romantic involvement with the other guy; he was just a roommate.
+From what we could gather about their separation, she moved out of their apartment and was now sharing a place with some other guy on the other side of town. There was no romantic involvement with the other guy; he was just a roommate and that was that.
 
 John still lived in their old place and that was that.
 
