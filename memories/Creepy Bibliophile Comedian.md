@@ -38,15 +38,15 @@ More than a few times during this specific period he’d miss some weekly staff 
 
 ***
 
-While these absences were consistenty sporadic, there was a small span of a week or two where literally nobody anywhere heard from John at all. Which was weird. He really didn’t have a job past writing for the newspaper—and the occassional shift at the local liquor store—so him just disappearing out of the blue like that was unexpected.
+While these absences were consistenty sporadic, there was a small span of a week or two where literally nobody anywhere around town heard from John at all. Which was weird. He really didn’t have a job past writing for the newspaper—and the occassional shift at the local liquor store—so him just disappearing out of the blue like that was unexpected.
 
-Just as we were all on the edge of thinking something horrible happened to him, he mysteriously showed up at the offices again.
+Just as we were all on the edge of thinking something horrible happened to him—and even considered calling the police to report him as a missing person—he mysteriously showed up at the newspaper offices again.
 
-He sat down at the weekly meeting and let us know what happened: He was picked up by local cops who were questioning him about the sudden death of his wife’s roommate.
+He sat down at the weekly meeting—a little bit after it started—and let us know what happened: He was picked up by local cops who were questioning him about the sudden and unexpected death of his wife’s roommate.
 
-Without missing a beat John explained to us what happened: Apparently the his wife’s roommate died suddenly from a drinking a mixture of sleeping pills and alcohol and he was being questioned as a suspect. But while that was a description of a crime he was suspected of committing, that wasn’t the actual reason he was out of touch with us. That was simply something that happened while he was away doing something else.
+Without missing a beat John explained to us what happened: Apparently the his wife’s roommate died one night from a drinking a mixture of sleeping pills and alcohol and John was being questioned as a suspect. But while that was a description of a crime he was suspected of committing, that wasn’t the actual reason he was out of touch with us. That was simply something that happened while he was away doing something else.
 
-John’s story—to us and the cops—was that he went to some book fair with the owner of the bookshop across the street from the newspaper during the time that guy died. So it was not possible for him to have been around when his wife’s roommate apparently committed suicide.
+John’s story—to us and the cops—was that he went to some book fair with the owner of the bookshop he hung out at all the time during the exact period of time his wife’s roommate died. So apparently it was not possible for him to have been around when his wife’s roommate died.
 
 We knew John liked books, but he never told us about going to any book fairs. Nor did any of us—at the newspaper or the liquor store he worked at—knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a book fair? Who does that?
 
