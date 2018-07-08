@@ -32,27 +32,27 @@ Make no mistake, this wasn’t a romantic invitation by a long shot. I just need
 
 ***
 
-The second floor was pretty chill. Kind of like the scene on the first floor but with more seating and better lighting.
+The second floor was pretty chill. Kind of like the scene on the first floor but with more seating, better lighting and a wee bit less bullshit.
 
-That said, while there was a huge room with a lot of open space, there wasn’t a lot of room to sit. So Rob and I sat out in a hallway near the bathroom.
+That said, while there was a huge room with a lot of open space, there wasn’t a lot of room to actually sit. So Rob and I sat out on a bench in the hallway near the bathroom.
 
-He was a quiet drunk for the most part, but did blurt out “She’s got a nice tushy!” when some woman with a nice ass walked by us to wait in line to get to the bathroom. “Yup!” I said in agreement.
+Rob was generally a quiet drunk for the most part, but did unexpecedly blurt out “She’s got a nice tushy!” when some woman with a genuinely nice ass walked by us to wait in line to get to the bathroom. “Yup!” I said in agreement.
 
-After a while, I felt the need to not be near Rob, so I stood up and headed to the main room on the 2nd floor.
+After a while, I felt the need to not be near Rob, so I stood up and headed back into the main room on the second floor.
 
-As I walked in I spotted Todd again, standing around and endlessly yammering about how great DJ WhoGivesAShit was. I walked over and said hi, and he immediately dragged me into the conversation, “Wasn’t DJ WhoCares great?” he asked me to which I nodded and shrugged and that was that.
+As I walked in I spotted Todd again, standing around and endlessly yammering about how great DJ WhoGivesAShit was. I walked over said “Hi!” and he immediately dragged me into the conversation. “Wasn’t DJ WhoCares great?” he asked me to which I nodded and shrugged and said “Yeah…” and then left that as that.
 
 “Cool,” the person he was talking to said and then followed up by saying, “Hey! There’s Anne!”
 
-I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from *Scooby Doo*.
+I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from *Scooby Doo*—or Enid from *Ghost World*—which easilly describes about 70% of the indie/punk/D.I.Y. ladies out there.
 
-She walked over and said “Hey!” to us all. But was a bit stiff. I soon found out she was a zinester; meaning she put out a zine. And in this case the zine was called something like “Baby Food” so her hipster name was “Baby Food Anne.”
+She walked over and said “Hey!” to us all but was noticably a bit stiff. I soon found out she was a local zinester; meaning she put out a zine. And in this case the zine was called something like “Baby Food” so her zine hipster name was “Baby Food Anne.”
 
 We chatted for a bit and then I noticed something magical: Two people had gotten up from two chairs. So I went in sat down in one of them.
 
-The chairs were simple, old school living room chairs. Kinda like what Archie and Edith sat in on *All in the Family*. Todd didn’t sit down, but Rob—who somehow wandered into the room—did and we had an odd mumbling conversation.
+The chairs were simple, old school living room chairs. Kinda like the ones that Archie and Edith sat in on *All in the Family*. Todd didn’t sit down, but Rob—who somehow wandered into the room—did and we had an odd mumbling conversation.
 
-I mainly nodded at him and laughed a bit, but had no clue what his mumbling drunk mouth was talking about.
+I mainly nodded at him and laughed a bit, but had no clue what his mumbling drunk mouth was talking about. Better just go along with a rambling drunks conversation than not, right?
 
 As time passed, I turned around and saw Anne standing there… But she was acting weird. She was clearly still conscious but was catatonic and staring out into nowhere.
 
