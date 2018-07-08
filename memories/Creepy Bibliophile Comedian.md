@@ -12,17 +12,17 @@ I’ll leave a lot of the hyper-specific, niggly details of his personality for 
 
 I mean, I was able to get along with him when I could. But the times his bitterness and resentment about failing as a New York City creative—and having to head back home to Madison, Wisconsin—popped up I could barely breathe in the same space he took up. Those were the times I suddenly became a target for some of his misguided, prejudicial self-centered bullshit.
 
-So on to the rest of teh story as I know it.
+So on to the rest of the story as I know it.
 
 ***
 
 While John was married, at one point he was separated from his wife.
 
-His wife was nice, cuet, cool and pleasant but was a tad robotic. She was kind of a hipster “Stepford Wife” in many respects. John was passive aggressive—and sometimes just straight out aggressive—and the drinking didn’t temper these tendencies. And oh yeah, while they were married they were supposedly in an “open relationship.” Which—as most of us who knew John knew—practically meant he just screwed around on her impulsively all the time and she simply sat at home alone and dealt with it.
+His wife was nice, cute, cool and pleasant but was a tad robotic. She was kind of a hipster “Stepford Wife” in many respects. John was passive aggressive—and sometimes just straight out aggressive—and the drinking didn’t temper these tendencies. And oh yeah, while they were married they were supposedly in an “open relationship.” Which—as most of us who knew John knew—practically meant he just screwed around on her impulsively all the time and she simply sat at home alone and dealt with it.
 
 From what we could gather about their separation, she moved out of their apartment and was now sharing a place with some other guy on the other side of town. There was no romantic involvement with the other guy; he was just a roommate and that was that.
 
-John still lived in their old place—where he mainly sat around, dranked and played PLayStation games when he was writing—and that was that.
+John still lived in their old place—where he mainly sat around, drank and played PlayStation games when he was writing—and that was that.
 
 ***
 
@@ -38,7 +38,7 @@ More than a few times during this specific period he’d miss some weekly staff 
 
 ***
 
-While these absences were consistenty sporadic, there was a small span of a week or two where literally nobody anywhere around town heard from John at all. Which was weird. He really didn’t have a job past writing for the newspaper—and the occassional shift at the local liquor store—so him just disappearing out of the blue like that was unexpected.
+While these absences were consistently sporadic, there was a small span of a week or two where literally nobody anywhere around town heard from John at all. Which was weird. He really didn’t have a job past writing for the newspaper—and the occasional shift at the local liquor store—so him just disappearing out of the blue like that was unexpected.
 
 Just as we were all on the edge of thinking something horrible happened to him—and even considered calling the police to report him as a missing person—he mysteriously showed up at the newspaper offices again.
 
@@ -54,11 +54,13 @@ But apparently the cops accepted that alibi, John was no longer a murder suspect
 
 ***
 
-A few weeks later John’s ex-wife had moved back in with him. When I talked to her at some small gathering she repeated some variant of the same story John pushed on us: Her roommate was depressed and glum all the time she lived with him so the fact he died suddenly like that didn’t surprise her.
+A few weeks later John’s ex-wife moved back in with him. When I talked to her at some small gathering she repeated some variant of the same story John pushed on us and the cops: Her roommate was depressed and glum all the time she lived with him so the fact he suddenly just up and died like that didn’t surprise her.
 
-But it was hard to shake the impression—as she told me that story—that she was secretly, non-verbally stating, “And you believe that, right?”
+But it was hard to shake the impression—as she told me the story—that she was secretly, non-verbally stating, “And you believe that, right?”
 
-I didn’t really believe any of it to be honest. But I didn’t know what to say, or who to say it to or what difference it would make at that moment. Who was I to judge? John and his wife were back together and her former roommate was dead and that is what that was then, now and always.
+I didn’t really believe any of it to be completely honest. But I didn’t know what to say or how to say it or who to say it to or what difference it would make at that point. Who was I to judge? John and his wife were back together and her former roommate was dead and was that.
+
+Life went on.
 
 ***
 
