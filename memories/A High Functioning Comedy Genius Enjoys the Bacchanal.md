@@ -10,7 +10,7 @@ The basement scene consisted of some shitty noise DJ playing and lights blinking
 
 Todd was dressed up in some improvised garbage hipster outfit that consisted of the body of an ape suit with the front unzipped and no ape head: Just his sweaty long-haired head and face bobbing up and down in its place. 
 
-“Isn’t this great!!!” he said while bobbing arrhythmically the distorted electronic skronk playing through the sound system. I turned around and saw some people come downstairs, look around and then head back upstairs and was contenmplating their quick wisdom.
+“Isn’t this great!!!” he said while bobbing arrhythmically the distorted electronic skronk playing through the sound system. I turned around and saw some people come downstairs, look around and then head back upstairs and was contemplating their quick wisdom.
 
 It seemed that Todd and I were DJ WhatTheFucks’ only audience at that moment. “I can’t believe they got him!!!” he said, bobbing his head some more and taking some drags off of the cigarette in his driving glove covered hand.
 
@@ -36,7 +36,7 @@ The second floor was pretty chill. Kind of like the scene on the first floor but
 
 That said, while there was a huge room with a lot of open space, there wasn’t a lot of room to actually sit. So Rob and I sat out on a bench in the hallway near the bathroom.
 
-Rob was generally a quiet drunk for the most part, but did unexpecedly blurt out “She’s got a nice tushy!” when some woman with a genuinely nice ass walked by us to wait in line to get to the bathroom. “Yup!” I said in agreement.
+Rob was generally a quiet drunk for the most part, but did unexpectedly blurt out “She’s got a nice tushy!” when some woman with a genuinely nice ass walked by us to wait in line to get to the bathroom. “Yup!” I said in agreement.
 
 After a while, I felt the need to not be near Rob, so I stood up and headed back into the main room on the second floor.
 
@@ -44,9 +44,9 @@ As I walked in I spotted Todd again, standing around and endlessly yammering abo
 
 “Cool,” the person he was talking to said and then followed up by saying, “Hey! There’s Anne!”
 
-I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from *Scooby Doo*—or Enid from *Ghost World*—which easilly describes about 70% of the indie/punk/D.I.Y. ladies out there.
+I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from *Scooby Doo*—or Enid from *Ghost World*—which easily describes about 70% of the indie/punk/D.I.Y. ladies out there.
 
-She walked over and said “Hey!” to us all but was noticably a bit stiff. I soon found out she was a local zinester; meaning she put out a zine. And in this case the zine was called something like “Baby Food” so her zine hipster name was “Baby Food Anne.”
+She walked over and said “Hey!” to us all but was noticeably a bit stiff. I soon found out she was a local zinester; meaning she put out a zine. And in this case the zine was called something like “Baby Food” so her zine hipster name was “Baby Food Anne.”
 
 We chatted for a bit and then I noticed something magical: Two people had gotten up from two chairs. So I went in sat down in one of them.
 
@@ -62,13 +62,13 @@ Someone who knew her better than me came by, and explained to me in a matter-of-
 
 Just as I was about to walk away, Todd showed up and said, “What’s up?” I pointed to Anne and said, “Look at her. She’s fucked up.”
 
-Todd looked and then just said, “So what? It’s no big deal,” pushed past me and grabbed Anne from behind her head and just kissed her. I was close enough to see what he was doing was the equivalent of kissing a statue. Her lips barely moved and wherever she was at the moment it definitely was not there.
+Todd looked at her and then just said, “So what? It’s no big deal,” pushed past me and grabbed Anne from behind her head and just kissed her. I was close enough to see what he was doing was the equivalent of kissing a mannequin. Her lips barely moved and wherever her mind was at that moment it clearly was not there.
 
-He pulled his head away and said, “It’s no big deal,” put down his drink on a small side table in-between the two chairs and then went back to kissing her. But this time his right hand was headed straight down the front of her jeans.
+He pulled his head away and said, “It’s no big deal…” again, put down his drink on a small side table in-between the two chairs and then went back to kissing her. But this time his right hand was headed straight to third base, right down the front of her jeans.
 
-I took a few steps back and didn’t know what to do. Or if doing anything would have mattered at this point. I looked at Rob, saw the chair I was sitting in was still empty and just sat down.
+I took a few steps back and didn’t know what to do. Or if doing anything would have mattered at this point. I looked at Rob drunkenly staring out into space—oblivious to what was happening right behind him—saw the chair I was sitting in was empty and sat down.
 
-It was about 2:00am and I was ready to go. But still couldn’t pull myself out of the chair. So I sat and looked out the 2nd floor windows and waited for a bit before standing up, heading downstairs and walking back to my place.
+It was about 2:00am and I was ready to go. But still couldn’t pull myself out of the chair. So I just sat there, looked out the second floor windows and waited for a bit before standing up, heading downstairs and walking back to my place.
 
 ***
 
