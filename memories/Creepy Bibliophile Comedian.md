@@ -22,19 +22,19 @@ His wife was nice, cuet, cool and pleasant but was a tad robotic. She was kind o
 
 From what we could gather about their separation, she moved out of their apartment and was now sharing a place with some other guy on the other side of town. There was no romantic involvement with the other guy; he was just a roommate and that was that.
 
-John still lived in their old place and that was that.
+John still lived in their old place—where he mainly sat around, dranked and played PLayStation games when he was writing—and that was that.
 
 ***
 
-While Madison was a decent sized city, it was still a small town in some ways. And you would run into people out on the street fairly regularly.
+While Madison, Wisconsin was a decent sized city, it was still a small town in many ways. And you would randomly run into people out on the street more often that you would elsewhere.
 
-In the case of John, I spotted him out on the street every now and then. Mostly at bars or just wandering about. But during this separation, I would often see him at this bookstore right across the street from the newspaper’s offices.
+In the case of John, I spotted him out on the street every now and then. Mostly at bars or just wandering about State Street. But during his separation from his wife, I would often see him hanging out at this bookstore right across the street from the newspaper’s offices.
 
-I knew he liked books, but he would often be in that bookstore for hours on end hanging out with the owner of the place.
+I knew he liked books—and there’s nothing wrong with liking books—but he would often be in that bookstore for hours on end just hanging out with the owner of the place.
 
-On a few occasions I witnessed some weirdness: Namely, the owner of the bookstore crossing the street to head to a nearby bar with John trailing behind him literally like some puppy dog. I mean the look on his face literally looked like a gobsmacked puppy when I spotted him like this. And I would even try to say “Hi!” but it was like he was on another planet.
+On a few occasions I witnessed some weirdness: Namely, the owner of the bookstore crossing the street to head to a nearby bar with John trailing behind him literally like some puppy dog. I mean the look on his face literally looked like a gobsmacked puppy—or a brainwashed cult member—when I spotted him trailing this guy. And don’t get me wrong, I would even attempt to say “Hi!” to him but it was like he was in some other mental state or just on some other planet altogether.
 
-More than a few times he’d miss weekly staff meetings while hanging out with the bookstore owner. Everyone notice, and our editors would comment about his absence, but since he was an old school writer they let it slide. And he would often show up after the meeting—or the next day—apologizing for his absence and handing in work as assigned.
+More than a few times during this specific period he’d miss some weekly staff meetings while hanging out with that bookstore owner. His absence was noticed—and the staff would speak out about it—but since he was an old school staff writer they let these absences slide. And he would often show up near the end of a meeting—or sometimes even the next day—apologizing about missing a meeting but still somehow hand in his work work as assigned. 
 
 ***
 
