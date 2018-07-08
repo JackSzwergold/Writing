@@ -54,11 +54,11 @@ The chairs were simple, old school living room chairs. Kinda like the ones that 
 
 I mainly nodded at him and laughed a bit, but had no clue what his mumbling drunk mouth was talking about. Better just go along with a rambling drunks conversation than not, right?
 
-As time passed, I turned around and saw Anne standing there… But she was acting weird. She was clearly still conscious but was catatonic and staring out into nowhere.
+After some time passed—maybe 5 or 10 minutes—I turned around and saw Anne standing there… But she was acting weird. She was stiffer than before—but clearly still conscious—and was catatonic and staring out into nowhere.
 
-I stood up and stood right in front of her and she barely moved. Her head and eyes twitched a bit but in general seemed to stand there like stiff, malfunctioning robot.
+I stood up and stood right in front of her and she barely moved. Her head and eyes twitched a bit but in general seemed to stand there like a stiff, malfunctioning robot.
 
-Someone who knew her came by, and explained to me casually that she fell into catatonic states like this all the time and it was no big deal. I nodded at them and then looked at Anne and just accepted it as is.
+Someone who knew her better than me came by, and explained to me in a matter-of-fact tone that I shouldn’t worry since she fell into catatonic states like this all the time and it was no big deal. I nodded an acknowledgement at them and then looked at Anne and just accepted it as is.
 
 Just as I was about to walk away, Todd showed up and said, “What’s up?” I pointed to Anne and said, “Look at her. She’s fucked up.”
 
