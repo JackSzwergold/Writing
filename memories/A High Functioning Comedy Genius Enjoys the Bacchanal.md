@@ -2,17 +2,17 @@
 
 By Jack Szwergold
 
-The party was weird because it was fun. It was honestly the first real house party I had been too in Madison that wasn’t at the Paper Towel Museum. It was also weird because Rob—our newspaper’s editor—actually showed up and was actually drinking.
+The party was weird because it was fun. It was honestly the first real house party I had been too in Madison, Wisconsin that wasn’t just a bunch of people drinking beers and smoking up at the hipster “Paper Towel Museum.” It was also weird because Rob—our newspaper’s managing editor—actually showed up and was actually drinking and seemed to be acting like a normal human being for once.
 
-I wandered about and checked out the scene. The ground floor was like every other party: Keg, tons of people and some crappy piles of snacks on a table. I grabbed a red cup, some pretzels and walked downstairs.
+I wandered about and checked out the scene: The ground floor was like every other party with the obligatory keg, tons of people and some crappy piles of snacks in paper plates on a table. I grabbed a red plastic cup and a handful of pretzels and walked downstairs to the basement.
 
-Downstairs was some shitty noise DJ situation. Lots of black lights, flickering lights and in the corner—near what seemed to be the entrance to a laundry room—was DJ DangerBear or MouseHead or some bullshit like this. There he was tweaking on mixers to a room of nobody. Well, not technically nobody: I was there and so was a fellow staffer at the newspaper, Todd.
+The basement scene consisted of some shitty noise DJ playing and lights blinking and not much else. Once my eyes adjusted, in the corner—near what seemed to be the entrance to a laundry room—was DJ DangerBear or MouseHead or some bullshit DJ name like that. He was simply standing there and tweaking some mixers and effects boxes to a room of of mostly nobody. Well, there was technically at least a few “somebodies” there: I was there and so was a fellow staffer at the newspaper, Todd.
 
-Todd was dressed up in some improvised outfit that consisted of some kind of crappy ape costume; unzipped front and no ape head. Just his sweaty long-haired head.
+Todd was dressed up in some improvised garbage hipster outfit that consisted of the body of an ape suit with the front unzipped and no ape head: Just his sweaty long-haired head and face bobbing up and down in its place. 
 
-“Isn’t this great!” he said while bobbing out of sync with the electronic skronk playing through the sound system. I turned around and saw some people come downstairs, look around and then head back upstairs.
+“Isn’t this great!!!” he said while bobbing arrhythmically the distorted electronic skronk playing through the sound system. I turned around and saw some people come downstairs, look around and then head back upstairs and was contenmplating their quick wisdom.
 
-Todd and I were DJ WhatTheFucks’ only audience at that moment. “I can’t believe they got him!” he said, bobbing some more and taking some drags off of the cigarette in his driving glove covered hand.
+It seemed that Todd and I were DJ WhatTheFucks’ only audience at that moment. “I can’t believe they got him!!!” he said, bobbing his head some more and taking some drags off of the cigarette in his driving glove covered hand.
 
 I nodded politely and then headed back upstairs.
 
