@@ -12,11 +12,13 @@ I’ll leave a lot of the hyper-specific, niggly details of his personality for 
 
 I mean, I was able to get along with him when I could. But the times his bitterness and resentment about failing as a New York City creative—and having to head back home to Madison, Wisconsin—popped up I could barely breathe in the same space he took up. Those were the times I suddenly became a target for some of his misguided, prejudicial self-centered bullshit.
 
+So on to the rest of teh story as I know it.
+
 ***
 
 While John was married, at one point he was separated from his wife.
 
-His wife was nice, but a tad robotic. John was passive aggressive—and sometimes just straight out aggressive—and a bit of a drunk. And oh yeah, while they were married they were supposedly in an “open relationship.” Which practically meant he screwed around on her and she simply sat at home and dealt with it.
+His wife was nice, cuet, cool and pleasant but was a tad robotic. She was kind of a hipster “Stepford Wife” in many respects. John was passive aggressive—and sometimes just straight out aggressive—and the drinking didn’t temper these tendencies. And oh yeah, while they were married they were supposedly in an “open relationship.” Which—as most of us who knew John knew—practically meant he just screwed around on her impulsively all the time and she simply sat at home and dealt with it.
 
 From what we could gather about this separation, she moved out of their apartment and was now sharing a place with some other guy. There was no romantic involvement with the other guy; he was just a roommate.
 
