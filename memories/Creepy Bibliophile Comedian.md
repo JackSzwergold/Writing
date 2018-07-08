@@ -48,9 +48,9 @@ Without missing a beat John explained to us what happened: Apparently the his wi
 
 John’s story—to us and the cops—was that he went to some book fair with the owner of the bookshop he hung out at all the time during the exact period of time his wife’s roommate died. So apparently it was not possible for him to have been around when his wife’s roommate died.
 
-We knew John liked books, but he never told us about going to any book fairs. Nor did any of us—at the newspaper or the liquor store he worked at—knew that he took off for a few weeks to go to a book fair. I mean the guy simply disappeared from two of his jobs… To go to a book fair? Who does that?
+We knew John liked books, but he never told us about going to any book fairs. Nor did any of us—at the newspaper or the liquor store he worked at—knew that he took off for a few weeks to go to a book fair. I mean the guy—who was financially not in great shape to begin with—simply disappeared from two of his jobs… To go to a book fair? Weird.
 
-But apparently the cops accepted that alibi and John was no longer a suspect in someone’s death and life went on.
+But apparently the cops accepted that alibi, John was no longer a murder suspect—and that murder was now considered a suicide—and life went on.
 
 ***
 
