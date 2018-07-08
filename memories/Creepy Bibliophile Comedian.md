@@ -4,7 +4,7 @@ By Jack Szwergold
 
 The first time I met John people told me how he had previously headed to New York City to make it big at MTV or Comedy Central. He’s one of the few people from that newspaper who decided it was time for him to take the show on the road and “make it” (whatever that means) in New York City by moving his whole life out there based on some spec freelance work and not much else.
 
-Apparently since I was in New York around the same time he was we somehow would have known each other. I honestly didn’t know him from a hole in the ground but he seemed like a nice guy… At least from what I heard about him. And in pictures he seemed like an innocuous, *Devo*-loving hipster.
+Apparently since I was born—and lived—in New York City around the same time he was there trying to “make it” (whatever that means) some thought that would somehow translate into somehow us knowing each other. And honestly I didn’t know him from a hole in the ground but he seemed like a nice guy… At least from what I had heard about him. And in pictures that were shared with me he seemed like an innocuous, *Devo*-loving Midwestern hipster.
 
 Then I met him.
 
