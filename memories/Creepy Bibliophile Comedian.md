@@ -2,10 +2,6 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: Writer at a famous comedy publication. Sibling suffers from some kind of retardation. History of abuse with his wife. When his wife separated, she moved in with a male roommate. He makes mysterious trip to some “book show” out of nowhere. During that trip wife’s roommate suddenly dies from alcohol and pill overdose. Police question him but the “book show” was his alibi. He gets off.
-
-***
-
 The first time I met John people told me how he had previously headed to New York City to make it big at MTV or Comedy Central. He’s one of the few people from that newspaper who decided it was time for him to take the show on the road and “make it” (whatever that means) in New York City by moving his whole life out there based on some spec freelance work and not much else.
 
 Apparently since I was in New York around the same time he was we somehow would have known each other. I honestly didn’t know him from a hole in the ground but he seemed like a nice guy… At least from what I heard about him. And in pictures he seemed like an innocuous, *Devo*-loving hipster.
