@@ -38,7 +38,7 @@ More than a few times during this specific period he’d miss some weekly staff 
 
 ***
 
-While these absences were sporadic, there was a small span of a week or two where literally nobody heard from John at all. Which was weird. He really didn’t have a job past working in the local liquor store and writing for the newspaper, so him just disappearing like that was unexpected.
+While these absences were consistenty sporadic, there was a small span of a week or two where literally nobody anywhere heard from John at all. Which was weird. He really didn’t have a job past writing for the newspaper—and the occassional shift at the local liquor store—so him just disappearing out of the blue like that was unexpected.
 
 Just as we were all on the edge of thinking something horrible happened to him, he mysteriously showed up at the offices again.
 
