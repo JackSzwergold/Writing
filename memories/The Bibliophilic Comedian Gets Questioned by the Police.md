@@ -1,4 +1,5 @@
-## Creepy Bibliophile Comedian
+## The Bibliophilic Comedian Gets Questioned by the Police
+### About the Time a Co-Worker Mysteriously Disappeared and Returned With a Story to Tell
 
 By Jack Szwergold
 
@@ -64,4 +65,4 @@ Life went on.
 
 ***
 
-*Creepy Bibliophile Comedian (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*The Bibliophilic Comedian Gets Questioned by the Police (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

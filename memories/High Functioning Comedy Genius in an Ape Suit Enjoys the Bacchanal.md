@@ -1,4 +1,5 @@
-## A High Functioning Comedy Genius Enjoys the Bacchanal
+## High Functioning Comedy Genius in an Ape Suit Enjoys the Bacchanal
+### About the Time I Went a House Party and Watched a Co-Worker Molest a Catatonic Woman
 
 By Jack Szwergold
 
@@ -72,4 +73,4 @@ It was about 2:00am and I was ready to go. But still couldn’t pull myself out 
 
 ***
 
-*A High Functioning Comedy Genius Enjoys the Bacchanal (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*High Functioning Comedy Genius in an Ape Suit Enjoys the Bacchanal (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
