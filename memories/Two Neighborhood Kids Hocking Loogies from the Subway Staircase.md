@@ -33,7 +33,27 @@ Bored and baffled—but still having time on our hands—we tried to figure out 
 
 Once we were downstairs we all took a few steps until we hit the weird alley that was technically Brighton 1st Street, but literally Beack Walk or some nonsense like that.
 
-Marc poked Andrew in the arm
+Marc poked Andrew in the arm, and motioned towards the Brighton Towers. They were a newish co-op building that seemed nicer than the tenements most of us grew up in, but were dumpy in their own way.
+
+“Hey Jack! Let’s go there!” Andrew said as he pointed to the Brighton Towers.
+
+“What are we going to do there?” I asked to which Andrew responded, “Don’t worry. It will be fun.”
+
+We walked down that alley and up a staircase. The building was weird as if it were built as a tiered wedding cake with one huge layer on the ground floor and two towers jutting out above it.
+
+So we climbed up those stairs and soon enough were wandering on a weird non-roof with terraces jutting out around each of the towers.
+
+“What are we doing?” I asked as Andrew and Marc stooped down and peered into open windows.
+
+“Let’s try this one?” Marc said as Andrew climbed over the terrace fence and slowly tried to slide open a screen door.
+
+“Why are you doing that?” I asked as the screen door cracked open, Marc joined Andrew and both laughed creepilly as they looked at me and looked inside.
+
+“Come on in Jack. Don’t worry.” Andrew wispered as I slowly backed off, but veered to the side to look into the window they peered into.
+
+The window was open and the screen was down. A white curtain flutrered a bit in the sea shore breeze. All I could see was a woman sleeping on a bed, and the shadows of what I assume were Andrew and Marc coming down a hallway near the room.
+
+I backed away, and walked back towards the ladder, down onto the street and jaywalked in a sprint back to my home.
 
 ***
 
