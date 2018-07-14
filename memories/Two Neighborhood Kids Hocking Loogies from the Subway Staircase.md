@@ -29,7 +29,11 @@ Not as many people walked down that side of the avenue, so it seemed like the ga
 
 Bored and baffled—but still having time on our hands—we tried to figure out what to do next.
 
-“Let’s go to ‘Youth World’!” I said
+“Let’s go to ‘Youth World’!” I said to which Marc and Andrew responded with a hesitant, “Okay…” so down the stairs we went.
+
+Once we were downstairs we all took a few steps until we hit the weird alley that was technically Brighton 1st Street, but literally Beack Walk or some nonsense like that.
+
+Marc poked Andrew in the arm
 
 ***
 
