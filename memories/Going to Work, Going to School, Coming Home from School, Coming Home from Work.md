@@ -15,7 +15,11 @@ I sat on the couch as my mom went over to bid farewell at the front door, lock i
 
 Then it was my turn to finish up eating, wash up, get dressed and head off to school.
 
-Walking in the streets early in the morning was fun. It was quiet yet busy with newspapers and groceries being delivered while kids like me headed off to school
+Walking in the streets early in the morning was fun. It was quiet yet busy with newspapers and groceries being delivered while kids like me headed off to school, and adults headed off to wherever.
+
+***
+
+
 
 ***
 
