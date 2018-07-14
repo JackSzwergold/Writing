@@ -19,11 +19,11 @@ It didn’t happen all of the time, but it happened often enough that we all kne
 
 But they weren’t just tossing the rocks to hit brick. Some folks clearly wanted to break windows.
 
-This really pissed off Johnny, the buidling superintendant. Some days he would just stand in the airway of the building where the rocks would fall and exasperatedly pick them up. On other days, he would grab his baseball bat, run to the station, jump the turnstile and chase people away.
+This really pissed off Johnny, the building superintendent. Some days he would just stand in the airway of the building where the rocks would fall and exasperatedly pick them up. On other days, he would grab his baseball bat, run to the station, jump the turnstile and chase people away.
 
-Hillariously his guard dog, Fluffy, that would bark at any kid who passed by the basement entrance was utterly silent when rocks landed near her. She’d spend most of the day in that airway just napping and yapping, but if a rock fell? She opened her eyes, looked at it and got on with her boring dog life.
+Hilariously his guard dog, Fluffy, that would bark at any kid who passed by the basement entrance was utterly silent when rocks landed near her. She’d spend most of the day in that airway just napping and yapping, but if a rock fell? She opened her eyes, looked at it and got on with her boring dog life.
 
-Lucky for us many of these shirtless beach bums were weak armed and had bad aim. But occassionally they would hit their target.
+Lucky for us many of these shirtless beach bums were weak armed and had bad aim. But occasionally they would hit their target.
 
 One day I heard the smash of breaking glass, but had no idea where it came from. I only discovered it months later when a strong snowstorm came by and I could hear wind in my room. Turned out a window pane on the top of the storm window frame was busted in a perfect circle.
 
