@@ -23,6 +23,24 @@ About a decade later I was in high school which was about 4 blocks away from hom
 
 A lot of times when I came home, my dad would be staring at the subway station out the window of my room.
 
+“How was your day?” he would usually as me, and I would usually respond, “Fine…” as I dropped my bookbag down on my desk and settled in.
+
+“Do you want anything to eat?” he’d ask and I would usually say, “Yes…” and then he would head out of my room, down the hallway and into the kicthen.
+
+Depending on my mood, I would either play video games, read magazines, listen to music, or all of the above. And sometimes I would do homework, but I would delay that as much as possible.
+
+Since you could easilly hear subway trains from out apartment, my dad would pop in and out of my room anytime he heard one screech into the station.
+
+He was waiting for my mom to get home. And she always made sure to wave at us when she got off the train and headed home. Sometimes we could see her on the subway platform. Other times, from the staircase area just below. But in general, he popped in an out mainly to wave at her and she to wave at him.
+
+Soon enough he spotted her and food was ready for me. We knew that in about 10 to 15 minutes she would be back home… Unless she had the urge to head over to Met Foods or the jeweler down the block or felt like gossiping with the Yentas in front of the building… But for the most part, the second we saw her at the subway station we knew she would be home soon.
+
+When she came home, she’d greet us all, drop all of her stuff off in her bedroom and then eat something as well. We never really ate formally as a family, but we generally ate at the same time… And sometimes in the same generaln vicinity if we were all watching something on TV.
+
+She’d then clean up, head to bed or mayeb even head outside to gossip some more with the Yentas.
+
+But by the time 10:00pm came around, she and my dad would basically be in bed and I might still be up with the door to my room locked up until I too felt tired enought to conk out for the night as well.
+
 ***
 
 *Going to Work, Going to School, Coming Home from School, Coming Home from Work (c) Copyright by Jack Szwergold; written on July 14, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
