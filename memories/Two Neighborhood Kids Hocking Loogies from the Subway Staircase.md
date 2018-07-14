@@ -3,9 +3,9 @@
 
 By Jack Szwergold
 
-I don’t know if it was a Saturday, a Sunday or a holiday, but I remember it being Fall-ish—but it could have still been Spring—and I was sitting around on my desk in my room playing around with stuff and occassionally looking out the window.
+I don’t know if it was a Saturday, a Sunday or a holiday, but I remember it being Fall-ish—but it could have still been Spring—and I was sitting around on my desk in my room playing around with stuff and occasionally looking out the window.
 
-I liked watching the trains pass by and the clouds up in the sky and sometimes the occassional Coast Guard or NYPD helicopter pass by.
+I liked watching the trains pass by and the clouds up in the sky and sometimes the occasional Coast Guard or NYPD helicopter pass by.
 
 Regardless, I was sitting around and slacking off when I saw two kids hanging out on the subway staircase. They were leaning over and hocking loogies hoping to hit some hapless passerby on the head as they walked down the street.
 
@@ -21,7 +21,7 @@ So off I went outside, down the block, up the staircase to hang out with Andrew 
 
 They said “Hi” and then go back to the task at hand: Hocking loogies on the heads of people walking down the street below.
 
-I looked over with them and watched as they carefully timed theirn spits, but I never participated in the whole thing. It all seemed digusting and stupid.
+I looked over with them and watched as they carefully timed their spits, but I never participated in the whole thing. It all seemed disgusting and stupid.
 
 Soon enough one of them hit someone and you could hear them shout and threaten to “get us” so we ran through the train station onto the other side.
 
@@ -31,7 +31,7 @@ Bored and baffled—but still having time on our hands—we tried to figure out 
 
 “Let’s go to ‘Youth World’!” I said to which Marc and Andrew responded with a hesitant, “Okay…” so down the stairs we went.
 
-Once we were downstairs we all took a few steps until we hit the weird alley that was technically Brighton 1st Street, but literally Beack Walk or some nonsense like that.
+Once we were downstairs we all took a few steps until we hit the weird alley that was technically Brighton 1st Street, but literally Beach Walk or some nonsense like that.
 
 Marc poked Andrew in the arm, and motioned towards the Brighton Towers. They were a newish co-op building that seemed nicer than the tenements most of us grew up in, but were dumpy in their own way.
 
@@ -47,11 +47,11 @@ So we climbed up those stairs and soon enough were wandering on a weird non-roof
 
 “Let’s try this one?” Marc said as Andrew climbed over the terrace fence and slowly tried to slide open a screen door.
 
-“Why are you doing that?” I asked as the screen door cracked open, Marc joined Andrew and both laughed creepilly as they looked at me and looked inside.
+“Why are you doing that?” I asked as the screen door cracked open, Marc joined Andrew and both laughed creepily as they looked at me and looked inside.
 
-“Come on in Jack. Don’t worry.” Andrew wispered as I slowly backed off, but veered to the side to look into the window they peered into.
+“Come on in Jack. Don’t worry.” Andrew whispered as I slowly backed off, but veered to the side to look into the window they peered into.
 
-The window was open and the screen was down. A white curtain flutrered a bit in the sea shore breeze. All I could see was a woman sleeping on a bed, and the shadows of what I assume were Andrew and Marc coming down a hallway near the room.
+The window was open and the screen was down. A white curtain fluttered a bit in the sea shore breeze. All I could see was a woman sleeping on a bed, and the shadows of what I assume were Andrew and Marc coming down a hallway near the room.
 
 I backed away, and walked back towards the ladder, down onto the street and jaywalked in a sprint back to my home.
 
