@@ -15,11 +15,11 @@ I woke up in the morning, I would be offered latkes. I would come home from play
 
 I was just tired of them.
 
-One day, instead of saying “No!” to my parents and causing unuintended drama, I decided to say “Yes!” to them when latkes were offered.
+One day, instead of saying “No!” to my parents and causing unintended drama, I decided to say “Yes!” to them when latkes were offered.
 
 I would sit down at my desk, take a bite of one or two of them and then toss the rest out to Fluffy, the super’s dog in the airway below.
 
-It even got to the point where Fluffy could almost predict she would be fed latkes at a certain hour on certain days on the weekened and would constantly look up at my window in anticipation.
+It even got to the point where Fluffy could almost predict she would be fed latkes at a certain hour on certain days on the weekend and would constantly look up at my window in anticipation.
 
 This scheme worked well for a few weekends until one day Johnny—the super—came up to talk to my dad.
 
