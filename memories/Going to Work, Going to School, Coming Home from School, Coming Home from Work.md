@@ -19,7 +19,9 @@ Walking in the streets early in the morning was fun. It was quiet yet busy with 
 
 ***
 
+About a decade later I was in high school which was about 4 blocks away from home. So outside of playing video games or grabbing a slice of pizza with friends, I was usually home by 4:00pm tops.
 
+A lot of times when I came home, my dad would be staring at the subway station out the window of my room.
 
 ***
 
