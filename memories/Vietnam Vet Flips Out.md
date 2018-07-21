@@ -11,7 +11,17 @@ It was sometime in the mid-1980s. The building was still in decent shape and new
 
 I don’t ever remember who lived on the 4th floor of the building before he moved in, but I do remember when he moved in. Mainly because he was Hispanic, had a big moustache and had kinda a curly, almost-Afro-ish hair style.
 
-I was a kid so I had limited contact with him at best.
+I was a kid so I had limited contact with him at best. But he seemed friendly. Outside in front of the building, downstairs at the mailboxes, passing each other on the staircase or even waiting for a slice of pizza around the corner at Rocco’s. Wherever and whenever I saw him, he was generally a cool adult.
+
+Then one weekend he flipped out.
+
+***
+
+I was playing around in my room when suddenly I heard some random shouting. Which was no big deal since someone was always seemed to be shouting somewhere in the building—or near the building—at any given momeent on most any day.
+
+But the shouting started to become louder and louder and soon enough the sounds of objects hitting floors and walls could be heard as well.
+
+My dad showed up in my room to look out the window and try to figure out what happened.
 
 ***
 
