@@ -7,6 +7,12 @@ By Jack Szwergold
 
 ***
 
+It was sometime in the mid-1980s. The building was still in decent shape and new people were moving in every now and then.
+
+I don’t ever remember who lived on the 4th floor of the building before he moved in, but I do remember when he moved in. Mainly because he was Hispanic, had a big moustache and had kinda a curly, almost-Afro-ish hair style.
+
+I was a kid so I had limited contact with him at best.
+
 ***
 
 *Vietnam Vet Flips Out (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
