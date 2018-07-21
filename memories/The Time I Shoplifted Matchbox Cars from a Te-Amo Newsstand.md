@@ -23,7 +23,23 @@ Unlike modern cars you just grab off of a rack, back then the way it worked was 
 
 You wanted a car, you just had to look over the rack, tell the guy behind the counter what number you wanted, handed over that dollar and change and et voila, you got a literal small matchbox-sized box that had your car in it.
 
+I really liked buying Matchbox cars from this store since the guy was nice and always had a decent stock of Matchbox cars. And since it was around the corner from elementary school, I could window-shop each day when I headed home from school and would wait for Friday—and my allowance—to happen.
 
+***
+
+One day when I was headed to school, I noticed something weird. The newspapers in front of the store weren’t exactly organized. They seemed kinda messy compared to what they once looked like. Quickly looking into the window of the store I didn’t see the original owners, but some new guys who looked Indian or Pakistani. Never mind, I had to head to school so I would investigate later on.
+
+And later on when I headed into the store, it was clear they had new owners: Things inside were slightly messier than they were before and the guy behind the counter shouted “What do you want?” and “Buy something or leave!” to any kid that was meandering in the shop.
+
+I headed out and headed home; the place didn’t feel nice anymore.
+
+***
+
+A week or so passed and I—for whatever—hadn’t headed into that Te-Amo for a while so I decided to head inside.
+
+It was a nice-ish fall day and I had a few dollars in my pocket from my allowance and felt like buying a Matchbox car.
+
+I looked over the selection and
 
 ***
 
