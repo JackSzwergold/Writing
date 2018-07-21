@@ -13,7 +13,7 @@ So the candy store that was near Brighton 6th Street was dubbed “the Te-Amo”
 
 In 1978, the store was an old drug store that sold cards at one point and then became a newsstand at one point. I don’t recall who the original owner of the place was, but I recall them being Italian or Jewish and had thick rimmed glasses and were generally nice to kids. There was always some kind of nickel candy and generally and array of crap that would appeal to kids.
 
-And beyond the comics, trading cards and other random crap they had for sale, they—at least to me—had one of the best selection of Matchbox cars in the neigborhood.
+And beyond the comics, trading cards and other random crap they had for sale, they—at least to me—had one of the best selection of Matchbox cars in the neighborhood.
 
 ***
 
@@ -39,7 +39,7 @@ A week or so passed and I—for whatever—hadn’t headed into that Te-Amo for 
 
 It was a nice-ish fall day and I had a few dollars in my pocket from my allowance and felt like buying a Matchbox car.
 
-I looked over the selection and spotted car number 21: A Renault 5TL! I liked pratical little cars like that so I asked the guy for car number 21.
+I looked over the selection and spotted car number 21: A Renault 5TL! I liked practical little cars like that so I asked the guy for car number 21.
 
 The guy looked confused and turned to his co-worker who rummaged through some boxes on a shelf and handled me a number 21 box… But this was not a Renault 5TL, it was some oddball construction vehicle Matchbox dubbed a “Rod Roller.” I didn’t want it and passed it back to the guy.
 
@@ -51,9 +51,9 @@ The guy looked confused and turned to his co-worker who rummaged through some bo
 
 Some old coot hanging out near the Lottery tickets heckled me and said, “Maybe the kid wants to the ‘21 Club!’” and poked his old coot finger near my face.
 
-I waved his hand away and walked to the display and pointed out the car at number 21 in the display wasn’t the same car he gave me. The guy behind the counter and his partner looked at the display, noticed the difference, spoke something to each other in a language I dodn’t understand and then said, “Sorry, we don’t have it.”
+I waved his hand away and walked to the display and pointed out the car at number 21 in the display wasn’t the same car he gave me. The guy behind the counter and his partner looked at the display, noticed the difference, spoke something to each other in a language I didn’t understand and then said, “Sorry, we don’t have it.”
 
-Dejected I asked if I could buy the car in the dislay to which oen of them said, “No!” and then grabbed the car out of the display to shove into the storage area behind the counter.
+Dejected I asked if I could buy the car in the display to which one of them said, “No!” and then grabbed the car out of the display to shove into the storage area behind the counter.
 
 I left the place pissed off and unhappy. The new owners had no idea what they were selling and they were treating me—an 11 year old kid—like some kinda putz.
 
@@ -69,7 +69,7 @@ Then one day I peeked in and saw they had rearranged things and had a new Matchb
 
 Curious, I went in to investigate. The display rack was nice and new, but the cars were displayed in some kind of haphazard mix. I could tell some cars were in the wrong slots because their numbers didn’t match what I remembered as being their proper numbers in the catalog.
 
-Still, they had some cool stuff that I wanted and as I slowly rotated the display I noticed that the plastic at the bottom could be lifted up. I played around with it with my finger, slowly looked up front and then quickly popped it up, grabbed a car and dropepd it into my jacket pocket.
+Still, they had some cool stuff that I wanted and as I slowly rotated the display I noticed that the plastic at the bottom could be lifted up. I played around with it with my finger, slowly looked up front and then quickly popped it up, grabbed a car and dropped it into my jacket pocket.
 
 My heart was racing at a mile a minute and my palms were sweaty, but I slowly walked towards the entrance to the store.
 
@@ -77,9 +77,9 @@ My heart was racing at a mile a minute and my palms were sweaty, but I slowly wa
 
 Once I crossed the street I looked behind me and started to calm down a bit when I didn’t see the store owner chasing me down the block.
 
-I walked a few more blocks and then pulled the car out of my pocket and looked it over a bit. I gotta admit I don’t rememeber exactly what model I snagged that day, but I was happy to snag it.
+I walked a few more blocks and then pulled the car out of my pocket and looked it over a bit. I gotta admit I don’t remember exactly what model I snagged that day, but I was happy to snag it.
 
-It wasn’t the car as much as the principal: These new owners didn’t treat neighborhood kids as being any better than theives, so why not steal then?
+It wasn’t the car as much as the principal: These new owners didn’t treat neighborhood kids as being any better than thieves, so why not steal then?
 
 ***
 
