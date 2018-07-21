@@ -23,6 +23,18 @@ But the shouting started to become louder and louder and soon enough the sounds 
 
 My dad showed up in my room to look out the window and try to figure out what happened.
 
+“What is happening?” my dad said to me as he peered out. My mom showed up in the hallway and added another, “What is happening?” to the mix.
+
+Soon enough there was a slight pause and you could hear a window being flung open, louder shouting and now the sound of literally kitchen stuff being flung out the window.
+
+“Oh,” my dad said as he backed away from the window. I moved closer to it crouched down and looked up and there I saw it; it was a like a scene out of a cartoon with tons of forks, knives, cups and other random kicthing stuff flying out the window.
+
+My dad and mom opened the front door to hear what they could hear. But I wanted to see what I could see, so I ran into the hallway and looked up the stairwell. I could hear the same mix of shouting and noise but more muffled. I headed up the staircase to my sister’s apartment and checked out the view from her kitchen. The shouting and fighting and stuff flying out the window didn’t seem to end.
+
+Then suddenly I heard someone shout something about the police, so I ran downstairs and waited in the hallway near my apartment.
+
+Soon enough the sound of a small army of police officers cam up the staircase
+
 ***
 
 *Vietnam Vet Flips Out (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
