@@ -39,7 +39,31 @@ A week or so passed and I—for whatever—hadn’t headed into that Te-Amo for 
 
 It was a nice-ish fall day and I had a few dollars in my pocket from my allowance and felt like buying a Matchbox car.
 
-I looked over the selection and
+I looked over the selection and spotted car number 21: A Renault 5TL! I liked pratical little cars like that so I asked the guy for car number 21.
+
+The guy looked confused and turned to his co-worker who rummaged through some boxes on a shelf and handled me a number 21 box… But this was not a Renault 5TL, it was some oddball construction vehicle Matchbox dubbed a “Rod Roller.” I didn’t want it and passed it back to the guy.
+
+“I want number 21!” I said.
+
+“This is number 21!” the guy behind the counter responded.
+
+“No it isn’t!” I said and then pointed out hat was number 21 in the display.
+
+Some old coot hanging out near the Lottery tickets heckled me and said, “Maybe the kid wants to the ‘21 Club!’” and poked his old coot finger near my face.
+
+I waved his hand away and walked to the display and pointed out the car at number 21 in the display wasn’t the same car he gave me. The guy behind the counter and his partner looked at the display, noticed the difference, spoke something to each other in a language I dodn’t understand and then said, “Sorry, we don’t have it.”
+
+Dejected I asked if I could buy the car in the dislay to which oen of them said, “No!” and then grabbed the car out of the display to shove into the storage area behind the counter.
+
+I left the place pissed off and unhappy. The new owners had no idea what they were selling and they were treating me—an 11 year old kid—like some kinda putz.
+
+I told my dad what happened and he went out with me the next day to see if he could get them to sell me that Renault 5TL. No luck. To make things even worse the guys behind the counter said that all I was doing was making problems so they wouldn’t sell the car to me.
+
+Me and my dad left the place and my dad said that they were acting crazy. “Why don’t they want to sell it to you? The money is the same!” my dad said as we walked back down the avenue.
+
+***
+
+
 
 ***
 
