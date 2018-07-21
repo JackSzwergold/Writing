@@ -1,4 +1,4 @@
-## Not Learing How to Program, But Learning How to Pirate
+## Not Learning How to Program, But Learning How to Pirate
 ### About how some family members wanted me to learn how to program a computer but instead I learned how to pirate software.
 
 By Jack Szwergold
@@ -49,4 +49,4 @@ Hindsight always gives one a clearer perspective of how things in the past shoul
 
 ***
 
-*Not Learing How to Program, But Learning How to Pirate) (c) Copyright by Jack Szwergold; written on December 27, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Not Learning How to Program, But Learning How to Pirate) (c) Copyright by Jack Szwergold; written on December 27, 2017. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
