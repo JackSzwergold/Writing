@@ -43,7 +43,21 @@ She didn’t seem battered or bruised, but she was clearly screwed up. She heade
 
 ***
 
+There was a small crowd in front of the building, a few NYPD cars and an ambulance. I saw the guy from the 4th floor being led into the albumance. He seemed dishelved but calm. Police were getting back into their cars and the small cadre of Yentas—who were standing up to see what was happening—slowly sat down and went back to being Yentas from a more comfortable position.
 
+I hung around and heard what I could hear. Since most of the Yentas were properly gossiping in Yiddish, I had no clue what was they were saying.
+
+Soon enough I saw my dad and Johnny—the superintendant of the building—talking to each other and headed outside. My dad was carrying a folding chair and so was my mom who was trailing a bit behind.
+
+Johnny looked at me and smirked a “What can you do?” kinda smile. Things were weird because while people were gossiping and making a fuss, nobody seemed to be being too judgemental about the guy.
+
+Johnny said something about the guy being a Vietnam war veteran and how the guy apparently had similar flip-outs in the past. It seemed like the guy’s Vietnam veteran status exonerated him from the judgement of the buidling Yentas and others.
+
+***
+
+A few weeks passed and I was coming home from something—school, the beach, window shopping or generally putzing about the neighborhood—when I saw the guy standing in front of the building talking to some people including Johnny and my dad.
+
+I walked closer and he seemed calmer and cooler and a bit cleaned up. From what I could gather.
 
 ***
 
