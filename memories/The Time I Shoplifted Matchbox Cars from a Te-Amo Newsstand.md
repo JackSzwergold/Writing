@@ -63,7 +63,23 @@ Me and my dad left the place and my dad said that they were acting crazy. “Why
 
 ***
 
+The next week or so I basically boycotted the store and didn’t give them the pleasure of getting the 5 to 25 cents per day I might spend on them for candy and trading cards.
 
+Then one day I peeked in and saw they had rearranged things and had a new Matchbox car display on a rotating carousel away from the front counter.
+
+Curious, I went in to investigate. The display rack was nice and new, but the cars were displayed in some kind of haphazard mix. I could tell some cars were in the wrong slots because their numbers didn’t match what I remembered as being their proper numbers in the catalog.
+
+Still, they had some cool stuff that I wanted and as I slowly rotated the display I noticed that the plastic at the bottom could be lifted up. I played around with it with my finger, slowly looked up front and then quickly popped it up, grabbed a car and dropepd it into my jacket pocket.
+
+My heart was racing at a mile a minute and my palms were sweaty, but I slowly walked towards the entrance to the store.
+
+“Hey!” the guy behind the counter shouted, “What do you want!” he added. I shrugged, walked out the front door and ran down the block.
+
+Once I crossed the street I looked behind me and started to calm down a bit when I didn’t see the store owner chasing me down the block.
+
+I walked a few more blocks and then pulled the car out of my pocket and looked it over a bit. I gotta admit I don’t rememeber exactly what model I snagged that day, but I was happy to snag it.
+
+It wasn’t the car as much as the principal: These new owners didn’t treat neighborhood kids as being any better than theives, so why not steal then?
 
 ***
 
