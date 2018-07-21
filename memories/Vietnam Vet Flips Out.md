@@ -39,6 +39,12 @@ After a minute or so you could hear the police heading into the apartment, the f
 
 Following close behind was his wife or girlfiend—I was a kid so I had no idea what they were—slowly sobbing. Her face red and tears running down her cheeks.
 
+She didn’t seem battered or bruised, but she was clearly screwed up. She headed down the stairs, and I headed into the apartment, put on some sneakers and headed downstairs.
+
+***
+
+
+
 ***
 
 *Vietnam Vet Flips Out (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
