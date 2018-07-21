@@ -11,7 +11,7 @@ Te-Amo wasn’t the name of a store as much as it was the name of a brand of che
 
 So the candy store that was near Brighton 6th Street was dubbed “the Te-Amo” because there wasn’t another one in the neighborhood at the time.
 
-The store was an old drug store that sold cards at one point and then became a newsstand at one point. I don’t recall who the original owner of the place was, but I recall them being Italian or Jewish and had thick rimmed glasses and were generally nice to kids. There was always some kind of nickel candy and generally and array of crap that would appeal to kids.
+In 1978, the store was an old drug store that sold cards at one point and then became a newsstand at one point. I don’t recall who the original owner of the place was, but I recall them being Italian or Jewish and had thick rimmed glasses and were generally nice to kids. There was always some kind of nickel candy and generally and array of crap that would appeal to kids.
 
 And beyond the comics, trading cards and other random crap they had for sale, they—at least to me—had one of the best selection of Matchbox cars in the neigborhood.
 
