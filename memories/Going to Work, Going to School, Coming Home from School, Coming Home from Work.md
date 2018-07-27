@@ -43,7 +43,7 @@ When she came home, she’d greet us all, drop all of her stuff off in the bedro
 
 She’d then take a bath or shower, head to bed or maybe even head outside to gossip some more with the Yentas if the night was nice enough.
 
-But by the time 10:00pm came around, she and my dad would basically be in bed and I might still be up with the door to my room locked up until I too felt tired enough to conk out for the night as well.
+But by the time 10:00pm came around, she and my dad would basically be in bed and I might still be up with the door to my room locked and I would be up until I felt tired enough to conk out for the night as well.
 
 ***
 
