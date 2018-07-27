@@ -21,7 +21,7 @@ But they weren’t just tossing the rocks to hit brick bare brick. Some folks cl
 
 This really pissed off Johnny, the building superintendent. Some days he would just stand in the airway of the building where the rocks would fall and exasperatedly pick them up as they came down. On other days—when he felt more decisive—he would grab his baseball bat, run to the station, jump the turnstile and chase people away. He did this often enough that the MTA token agent knew who he was and knew what he was doing and wouldn’t page out of transit police to chase him down.
 
-Hilariously Johnny’s pet and guard dog Fluffy— the dog would bark at anyone who passed by the basement entrance—was utterly silent when rocks landed near her. She’d spend most of the day in that airway just napping and yapping, but if a rock fell? She might open her eyes, look at it and then go back to her dog napping world.
+Hilariously Johnny’s faithful guard dog Fluffy— the dog would bark at anyone who passed by the basement entrance—was utterly silent when rocks landed near her. She’d spend most of the day in that airway just napping and yapping, but if a rock fell? She might open her eyes, look at it and then go back to her dog napping world.
 
 Lucky for us many of these shirtless beach bums were weak armed and had bad aim. But occasionally they would hit their target.
 
