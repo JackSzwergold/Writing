@@ -5,9 +5,9 @@ By Jack Szwergold
 
 The window of my bedroom in the apartment I grew up in faced the elevated subway station. It wasn’t like the trains were literally right outside my window, but there was nothing between me and the station other than a low-rise retail building that was about as long and deep in length and depth as my building.
 
-If I could see people standing on the subway platform, they could see me too.
+This was a mixed blessing because while, on the one hand, we could see people getting off the train, if I could see people standing on the subway platform, they could see us too.
 
-This was a mixed blessing because—on the one hand—we could see people getting off the train. My dad liked to wait and watch for my mom get off the train when she came back home from work each day.
+My dad liked to wait and watch for my mom get off the train when she came back home from work each day.
 
 On the other hand, privacy wasn’t much beyond a polite concept.
 
