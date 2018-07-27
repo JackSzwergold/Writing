@@ -9,7 +9,7 @@ That said, my earliest memory of my parent’s working life was as a kid in the 
 
 TV back then consisted mostly of an endless stream of “The Little Rascals” reruns and whatever random cartoon cavalcade program channels 5, 9 and 11 might have had on at the time. Which was fine by me!
 
-For whatever reason my parents really didn’t turn on any house lights past the basics early in the morning. So it was always a tad dark in the apartment. Only the blue glow of the black and white TV in the living room mixed with the light of one lone table lamp in the living room and kitchen would mix with small blobs of sunlight that would leak through the edges of the windowshade at dawn.
+For whatever reason my parents really didn’t turn on any house lights past the basics early in the morning. So it was always a tad dark in the apartment. Only the blue glow of the black and white TV in the living room mixed with the light of one lone table lamp in the living room and kitchen would mix with small blobs of sunlight that would leak through the edges of the window shade at dawn.
 
 I remember sitting on my mom’s lap and eating cereal—and maybe a banana if we had one—as we both watched TV. At some point my dad would come into the living room, and say something to my mom—in English, Polish, Yiddish or some mix of them—and then I would get a kiss on the cheek goodbye from him as my mom set me down on the couch to eat and watch TV alone.
 
@@ -33,7 +33,7 @@ A lot of times when I came home, my dad would be in my room and looking out the 
 
 Depending on my mood, I would either play video games, read magazines, listen to music, or all of the above. And sometimes I would do homework, but I would delay that as much as possible.
 
-Since you could easilly hear subway trains from our apartment, my dad would pop in and out of my room anytime he heard one rumble down the tracks and screech into the station.
+Since you could easily hear subway trains from our apartment, my dad would pop in and out of my room anytime he heard one rumble down the tracks and screech into the station.
 
 He was waiting for my mom to get home. And she always made sure to wave at us when she got off the train and headed down the stairs to head home. Sometimes we could see her on the subway platform. Other times, we could see her from the staircase area just below the tracks. But in general, he popped in an out of my room mainly to wave at her and see her wave at him.
 
