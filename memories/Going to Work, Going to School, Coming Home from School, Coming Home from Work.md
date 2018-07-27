@@ -45,6 +45,8 @@ She’d then take a bath or shower, head to bed or maybe even head outside to go
 
 But by the time 10:00pm came around, she and my dad would basically be in bed and I might still be up with the door to my room locked and I would be up until I felt tired enough to conk out for the night as well.
 
+And then all that would happen again—the same way but slightly different—the next day.
+
 ***
 
 *Going to Work, Going to School, Coming Home from School, Coming Home from Work (c) Copyright by Jack Szwergold; written on July 14, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
