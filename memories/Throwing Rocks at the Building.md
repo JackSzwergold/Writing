@@ -19,7 +19,7 @@ Rock throwing didn’t happen all of the time, but it happened often enough that
 
 But they weren’t just tossing the rocks to hit brick bare brick. Some folks clearly wanted to hit a traget and break some windows.
 
-This really pissed off Johnny, the building superintendent. Some days he would just stand in the airway of the building where the rocks would fall and exasperatedly pick them up. On other days, he would grab his baseball bat, run to the station, jump the turnstile and chase people away.
+This really pissed off Johnny, the building superintendent. Some days he would just stand in the airway of the building where the rocks would fall and exasperatedly pick them up as they came down. On other days—when he felt more decisive—he would grab his baseball bat, run to the station, jump the turnstile and chase people away. He did this often enough that the token agent knew who he was and knew what he was doing and wouldn’t page out of transit police to chase him down.
 
 Hilariously his guard dog, Fluffy, that would bark at any kid who passed by the basement entrance was utterly silent when rocks landed near her. She’d spend most of the day in that airway just napping and yapping, but if a rock fell? She opened her eyes, looked at it and got on with her boring dog life.
 
