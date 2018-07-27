@@ -7,7 +7,7 @@ My parents both worked factory jobs at different times of their lives in the fam
 
 That said, my earliest memory of my parent’s working life was as a kid in the 1970s and getting up early around the same time as my dad to eat breakfast and get ready to go to elementary school. In my case, I’d also watch TV which consisted mostly of an endless stream of “The Little Rascals” reruns and whatever random cartoon cavalcade program channels 5, 9 and 11 might have had on at the time.
 
-For whatever reason my parents really didn’t turn on any lights past the basics early in the morning. So it was always a tad dark in the apartment with only the blue glow of the black and white TV in the living room and maybe a light on in the kitchen and basics and the blobs of sunlight that would slowly leak through the windows at dawn.
+For whatever reason my parents really didn’t turn on any lights past the basics early in the morning. So it was always a tad dark in the apartment. Only the blue glow of the black and white TV in the living room mixed with the light of one lone table lamp in the living room and kitchen would mix with small blobs of sunlight that would leak through the edges of the windowshade at dawn.
 
 I remember sitting on my mom’s lap and eating cereal—and maybe a banana—as we both watched TV. At some point my dad would come into the living room, speak to my mom—in English, Polish, Yiddish or some mix of them—and then I would get a kiss on the cheek goodbye from him.
 
