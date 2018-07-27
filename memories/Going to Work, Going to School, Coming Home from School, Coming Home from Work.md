@@ -7,15 +7,17 @@ My parents both worked factory jobs at different times of their lives in the fam
 
 That said, my earliest memory of my parent’s working life was as a kid in the 1970s and getting up early around the same time as my dad to eat breakfast and get ready to go to elementary school. In my case, I’d also watch TV which consisted mostly of an endless stream of “The Little Rascals” reruns and whatever random cartoon cavalcade program channels 5, 9 and 11 might have had on at the time.
 
-For whatever reason my parents really didn’t turn on any lights past the basics early in the morning. So it was always a tad dark in the apartment. Only the blue glow of the black and white TV in the living room mixed with the light of one lone table lamp in the living room and kitchen would mix with small blobs of sunlight that would leak through the edges of the windowshade at dawn.
+For whatever reason my parents really didn’t turn on any house lights past the basics early in the morning. So it was always a tad dark in the apartment. Only the blue glow of the black and white TV in the living room mixed with the light of one lone table lamp in the living room and kitchen would mix with small blobs of sunlight that would leak through the edges of the windowshade at dawn.
 
-I remember sitting on my mom’s lap and eating cereal—and maybe a banana—as we both watched TV. At some point my dad would come into the living room, speak to my mom—in English, Polish, Yiddish or some mix of them—and then I would get a kiss on the cheek goodbye from him.
+I remember sitting on my mom’s lap and eating cereal—and maybe a banana if we had one—as we both watched TV. At some point my dad would come into the living room, and say something to my mom—in English, Polish, Yiddish or some mix of them—and then I would get a kiss on the cheek goodbye from him as my mom set me down on the couch to eat and watch TV alone.
 
-I sat on the couch as my mom went over to bid farewell at the front door, lock it and head back into the living room.
+I sat on the couch as my mom and dad went to the front door, my mom bid my dad farewell and then locked the apartment door and headed back to the living room.
 
-Then it was my turn to finish up eating, wash up, get dressed and head off to school.
+Then it was my turn to finish up eating, wash up, get dressed, get ready and head off to school.
 
-Walking in the streets early in the morning was fun. It was quiet yet busy with newspapers and groceries being delivered while kids like me headed off to school, and adults headed off to wherever.
+When I was younger, my mom would walk me to school. When I got older, I happily braved the streets on my own.
+
+Whatever anyone wants to say about NYC in the 1970s, I always found walking in the streets early in the morning to be fun. It was always quieter than anytime later in the day yet always busy in it’s own way with newspapers, groceries and other stuff being delivered to local shops while kids like me headed off to school, and adults headed off to wherever.
 
 ***
 
