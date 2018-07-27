@@ -35,9 +35,9 @@ Depending on my mood, I would either play video games, read magazines, listen to
 
 Since you could easilly hear subway trains from our apartment, my dad would pop in and out of my room anytime he heard one rumble down the tracks and screech into the station.
 
-He was waiting for my mom to get home. And she always made sure to wave at us when she got off the train and headed home. Sometimes we could see her on the subway platform. Other times, from the staircase area just below. But in general, he popped in an out mainly to wave at her and she to wave at him.
+He was waiting for my mom to get home. And she always made sure to wave at us when she got off the train and headed down the stairs to head home. Sometimes we could see her on the subway platform. Other times, we could see her from the staircase area just below the tracks. But in general, he popped in an out of my room mainly to wave at her and see her wave at him.
 
-Soon enough he spotted her and food was ready for me. We knew that in about 10 to 15 minutes she would be back home… Unless she had the urge to head over to Met Foods or the jeweler down the block or felt like gossiping with the Yentas in front of the building… But for the most part, the second we saw her at the subway station we knew she would be home soon.
+Soon enough he spotted her and food was ready for me. We knew that in about 10 to 15 minutes she would be back home… Unless she had the urge to head over to Met Foods, the bakery or the jeweler down the block or felt like gossiping with the Yentas in front of the building… But for the most part, the second we saw her at the subway station we knew she would be home pretty soon.
 
 When she came home, she’d greet us all, drop all of her stuff off in her bedroom and then eat something as well. We never really ate formally as a family, but we generally ate at the same time… And sometimes in the same general vicinity if we were all watching something on TV.
 
