@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-My parents both worked factory jobs at different times in the family and never really talked much about it.
+My parents both worked factory jobs at different times of their lives in the family and never really talked much about it. Kinda typical for any working class family I guess; forget the past and keep on moving forward to some kind of better future.
 
 My earliest memory was being a kid in the 1970s and getting up early around the same time as my dad to eat breakfast and get ready to go to elementary school. I’d also watch TV which mostly consisted of “The Little Rascals” and whatever random cartoon program channels 5, 9 and 11 had on at the time.
 
