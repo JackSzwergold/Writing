@@ -39,9 +39,9 @@ He was waiting for my mom to get home. And she always made sure to wave at us wh
 
 Soon enough he spotted her and food was ready for me. We knew that in about 10 to 15 minutes she would be back home… Unless she had the urge to head over to Met Foods, the bakery or the jeweler down the block or felt like gossiping with the Yentas in front of the building… But for the most part, the second we saw her at the subway station we knew she would be home pretty soon.
 
-When she came home, she’d greet us all, drop all of her stuff off in her bedroom and then eat something as well. We never really ate formally as a family, but we generally ate at the same time… And sometimes in the same general vicinity if we were all watching something on TV.
+When she came home, she’d greet us all, drop all of her stuff off in the bedroom and then eat something as well. We never really ate formally around a table as a family like some bullshit Norman Rockwell painting. But we generally ate at the same time… And sometimes in the same general vicinity if we were all watching something on TV.
 
-She’d then clean up, head to bed or maybe even head outside to gossip some more with the Yentas.
+She’d then take a bath or shower, head to bed or maybe even head outside to gossip some more with the Yentas if the night was nice enough.
 
 But by the time 10:00pm came around, she and my dad would basically be in bed and I might still be up with the door to my room locked up until I too felt tired enough to conk out for the night as well.
 
