@@ -5,7 +5,9 @@ By Jack Szwergold
 
 My parents both worked factory jobs at different times of their lives in the family and never really talked much about it. Kinda typical for any working class family I guess; forget the past and keep on moving forward to some kind of better future.
 
-That said, my earliest memory of my parent’s working life was as a kid in the 1970s and getting up early around the same time as my dad to eat breakfast and get ready to go to elementary school. In my case, I’d also watch TV which consisted mostly of an endless stream of “The Little Rascals” reruns and whatever random cartoon cavalcade program channels 5, 9 and 11 might have had on at the time.
+That said, my earliest memory of my parent’s working life was as a kid in the 1970s and getting up early around the same time as my dad to eat breakfast and get ready to go to elementary school. In my dad’s case, he was going to work at a box factory in Williamsburg. In my case, I’d simply watch TV before going to school.
+
+TV back then consisted mostly of an endless stream of “The Little Rascals” reruns and whatever random cartoon cavalcade program channels 5, 9 and 11 might have had on at the time. Which was fine by me!
 
 For whatever reason my parents really didn’t turn on any house lights past the basics early in the morning. So it was always a tad dark in the apartment. Only the blue glow of the black and white TV in the living room mixed with the light of one lone table lamp in the living room and kitchen would mix with small blobs of sunlight that would leak through the edges of the windowshade at dawn.
 
