@@ -27,14 +27,13 @@ About a decade later I was in high school. Lincoln High school to be specific wh
 
 A lot of times when I came home, my dad would be in my room and looking out the window at the subway station platform. My dad wasn’t working at that point in his life. At some point during the mid 1970s, my dad suffered a heart attack and had to quit his job at the box factory because of it. That’s when my mom took over the job of being the one in the family to have a job that could support the family.
 
-
-“How was your day?” he would usually as me, and I would usually respond, “Fine…” as I dropped my book bag down on my desk and settled in.
+“How was your day?” he would usually ask me, and I would usually respond, “Fine…” as I dropped my book bag down on my desk and settled into the post school day.
 
 “Do you want anything to eat?” he’d ask and I would usually say, “Yes…” and then he would head out of my room, down the hallway and into the kitchen.
 
 Depending on my mood, I would either play video games, read magazines, listen to music, or all of the above. And sometimes I would do homework, but I would delay that as much as possible.
 
-Since you could easily hear subway trains from out apartment, my dad would pop in and out of my room anytime he heard one screech into the station.
+Since you could easilly hear subway trains from our apartment, my dad would pop in and out of my room anytime he heard one rumble down the tracks and screech into the station.
 
 He was waiting for my mom to get home. And she always made sure to wave at us when she got off the train and headed home. Sometimes we could see her on the subway platform. Other times, from the staircase area just below. But in general, he popped in an out mainly to wave at her and she to wave at him.
 
