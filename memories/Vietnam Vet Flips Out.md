@@ -23,9 +23,9 @@ My dad ran into in my room to look out the window and try to figure out what was
 
 Utterly nobody knew what was happening other than it was happening.
 
-Soon enough there was a slight pause and you could hear a window being flung open, louder shouting and now the sound of literally kitchen stuff being flung out the window.
+Soon enough there was a slight pause in the shouting and noise and you could hear the cracking thud of a wooden window frame being flung open. The quiet pause soon passed and was replaced with the sounds of even louder shouting and the noise of literal household bric-a-brac being flung out the window.
 
-“Oh,” my dad said as he backed away from the window. I moved closer to it crouched down and looked up and there I saw it; it was a like a scene out of a cartoon with tons of forks, knives, cups and other random kitchen stuff flying out the window.
+“Oh!” my dad exclaimed as he backed away from the window. I moved closer to the window crouched down and looked up and there I saw the commotion unfold in front of my eyes: It was a like a scene out of a cartoon with tons of forks, knives, cups and other random household crap just being tossed—seemingly endlessly—out the window.
 
 My dad and mom opened the front door to hear what they could hear. But I wanted to see what I could see, so I ran into the hallway and looked up the stairwell. I could hear the same mix of shouting and noise but more muffled. I headed up the staircase to my sister’s apartment and checked out the view from her kitchen. The shouting and fighting and stuff flying out the window didn’t seem to end.
 
