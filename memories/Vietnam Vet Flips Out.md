@@ -61,7 +61,7 @@ I walked closer, looked at him and he seemed calmer, cooler and a bit cleaned up
 
 He was clearly sad and crying a bit and was saying “I’m sorry…” to Johnny and others. Never saw a man crying and being honest like that in public before that day.
 
-I went back upstairs to my apartment and soon enough my dad followed. He asked me if I wanted anything to eat and said yes. No idea what he made for me, but I do remember him saying that it was sad the guy was a Vietnam War veteran.
+I went back upstairs to my apartment and soon enough my dad followed. He asked me if I wanted anything to eat and said yes. No idea what he made for me, but I do remember him saying that it was sad the guy was a Vietnam War veteran and snapped like that.
 
 ***
 
