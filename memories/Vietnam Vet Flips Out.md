@@ -27,17 +27,17 @@ Soon enough there was a slight pause in the shouting and noise and you could hea
 
 “Oh!” my dad exclaimed as he backed away from the window. I moved closer to the window crouched down and looked up and there I saw the commotion unfold in front of my eyes: It was a like a scene out of a cartoon with tons of forks, knives, cups and other random household crap just being tossed—seemingly endlessly—out the window.
 
-My dad and mom opened the front door to hear what they could hear. But I wanted to see what I could see, so I ran into the hallway and looked up the building’s stairwell. I could hear the same mix of shouting and noise but in an oddly more muffled yet more amplified away. I headed up the staircase to the third floor and to my sister’s apartment and to check out the view from her kitchen. While the view was slightly different, the shouting, the fighting and the stuff flying out the window part of it all was still the same didn’t seem to end.
+My dad and mom opened the front door to hear what they could hear. But I wanted to see what I could see, so I ran into the hallway and looked up the building’s stairwell. I could hear the same mix of shouting and noise but in an oddly more muffled yet more amplified away. I headed up the staircase to the 3rd floor and to my sister’s apartment and to check out the view from her kitchen. While the view was slightly different, the shouting, the fighting and the stuff flying out the window part of it all was still the same didn’t seem to end.
 
 Then suddenly I heard someone shout something about the police, so I ran downstairs and waited in the hallway near my apartment.
 
-Soon enough you could hear the marching sound of a small army of cops coming up the staircase. It had to be about 4 to 5 of them. One of them was clearly the guy in charge since he was tall, had white hair and wore aviator sunglasses that were just slightly tinted. When he got to our floor he took one look of me standing in the hallway wearing just socks, turns and says, “Put on some shoes!!!” and then heads up the staircase.
+Soon enough you could hear the marching sound of a small army of cops coming up the staircase. It had to be about 4 to 5 of them. One of them was clearly the guy in charge since he was tall, had white hair and wore aviator sunglasses that were just slightly tinted. When he got to our floor he took one look of me standing in the hallway wearing just socks, turns and sternly says, “Put on some shoes!!!” and then—without missing a beat—heads up the stairs to the fourth floor.
 
-After a minute or so you could hear the police heading into the apartment, the fight stopping and then the sound of the police and the guy coming down the staircase. He was handcuffed, but calm and police officers were guiding him down the stairs.
+A short while later you could hear the police banging on the door of the guy’s apartment, heading inside, the sounds of conflict stopping and then—after a few minutes—the sound of the police and the guy quietly coming down the staircase. He was handcuffed, but calm and quiet as the police officers led him down the stairs.
 
-Following close behind was his wife or girlfriend—I was a kid so I had no idea what they were—slowly sobbing. Her face red and tears running down her cheeks.
+Following close behind was his wife or girlfriend—I was a kid so I had no idea what their relationship status was—slowly sobbing he way down the stairs with them. Her face red and tears were running down her cheeks.
 
-She didn’t seem battered or bruised, but she was clearly screwed up. She headed down the stairs, and I headed into the apartment, put on some sneakers and headed downstairs.
+She didn’t seem battered, bruised, or otherwise maligned but but she was clearly shaken up by it all. As she headed down the stairs,  I headed into the apartment, put on some sneakers like the cop told me to and headed downstairs as well.
 
 ***
 
