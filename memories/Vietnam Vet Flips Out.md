@@ -55,7 +55,7 @@ Johnny said something about the guy being a Vietnam war veteran and how the guy 
 
 ***
 
-A few weeks passed and I was coming home from something—school, the beach, window shopping or generally putzing about the neighborhood—when I saw the guy standing in front of the building talking to some people including Johnny and my dad.
+A few weeks passed and I was coming home from something—school, the beach, the library, window shopping or generally putzing about the neighborhood—when I saw the guy from the fourth floor standing in front of the building talking to a group of neighborhood people that included Johnny and my dad.
 
 I walked closer and he seemed calmer and cooler and a bit cleaned up. From what I could gather he was just let out of the hospital. I assume Coney Island Hospital that was just down Ocean Parkway a few blocks, but who knew.
 
