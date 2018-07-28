@@ -31,7 +31,7 @@ My dad and mom opened the front door to hear what they could hear. But I wanted 
 
 Then suddenly I heard someone shout something about the police, so I ran downstairs and waited in the hallway near my apartment.
 
-Soon enough you could hear the sound of a small army of cops coming up the staircase. It had to be about 4 to 5 of them. One of them was clearly the commander in charge; he was tall, had white hair and barely tinted aviator sunglasses on. He takes one look of me standing in the hallway wearing just socks, turns to me and says, “Put on some shoes!!!” and then heads up the staircase.
+Soon enough you could hear the marching sound of a small army of cops coming up the staircase. It had to be about 4 to 5 of them. One of them was clearly the guy in charge since he was tall, had white hair and wore aviator sunglasses that were just slightly tinted. When he got to our floor he took one look of me standing in the hallway wearing just socks, turns and says, “Put on some shoes!!!” and then heads up the staircase.
 
 After a minute or so you could hear the police heading into the apartment, the fight stopping and then the sound of the police and the guy coming down the staircase. He was handcuffed, but calm and police officers were guiding him down the stairs.
 
