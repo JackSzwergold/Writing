@@ -13,7 +13,7 @@ Then one weekend he just flipped out.
 
 ***
 
-I was playing around in my room when suddenly I heard some random shouting. Which was no big deal since someone was always seemed to be shouting somewhere in the building—or near the building—at any given moment on most any day.
+Like most every weekend when I was a pre-ten kid, I was puzting around and playing around in my room when suddenly I heard some random shouting coming from somewhere in the building. Which initially was no big deal since someone was always seemed to be shouting somewhere in the building—or near the building—at any given moment on most any day. Like the elevated train outside the window, you just learned how to block it out to get through the day.
 
 But the shouting started to become louder and louder and soon enough the sounds of objects hitting floors and walls could be heard as well.
 
