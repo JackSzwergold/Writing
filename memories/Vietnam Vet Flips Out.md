@@ -57,9 +57,9 @@ Johnny said something about the guy being a Vietnam war veteran and how the guy 
 
 A few weeks passed and I was coming home from something—school, the beach, the library, window shopping or generally putzing about the neighborhood—when I saw the guy from the fourth floor standing in front of the building talking to a group of neighborhood people that included Johnny and my dad.
 
-I walked closer and he seemed calmer and cooler and a bit cleaned up. From what I could gather he was just let out of the hospital. I assume Coney Island Hospital that was just down Ocean Parkway a few blocks, but who knew.
+I walked closer, looked at him and he seemed calmer, cooler and a bit cleaned up. From what I could gather he was just let out of the hospital and just got back home. I assume he was at Coney Island Hospital since that was just a few blocks down Ocean Parkway, but who knew.
 
-He was clearly sad and crying a bit and was saying “I’m sorry…” to Johnny and others. Never saw a man crying and being honest like that in public.
+He was clearly sad and crying a bit and was saying “I’m sorry…” to Johnny and others. Never saw a man crying and being honest like that in public before that day.
 
 I went back upstairs to my apartment and soon enough my dad followed. He asked me if I wanted anything to eat and said yes. No idea what he made for me, but I do remember him saying that it was sad the guy was a Vietnam War veteran.
 
