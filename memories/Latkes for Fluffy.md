@@ -13,9 +13,11 @@ Sometimes my parents would make latkes in anticipation of visitors coming by. Ot
 
 ***
 
-I woke up in the morning, I would be offered latkes for breakfast. I would come home from playing outside, I would be offered latkes lunch. I would get ready to go to sleep at night, I would be offered latkes for dinner.
+When I woke up in the morning, I would be offered latkes for breakfast. When I came home from playing outside, I would be offered latkes lunch. When I was getting ready to go to sleep at night, I would be offered latkes for dinner. If friends came over? They were offered latkes whether they liked them or not.
 
-They were delicious, they were plentiful and they were seemingly in endless supply and I was just tired of them.
+If latkes were gold, my family would be rich.
+
+Now don’t get me wrong! I liked latkes. They were delicious, they were plentiful and they were seemingly in endless supply  in our home. It was just I was sick and tired of them.
 
 Some days I would say, “No!” and would be met with indignation. My parents would often then talk to each other in Yiddish, Hebrew or Polish about my refusal of Latkes as if I were on drugs or something. My refusal of their food would result in a pile of passive aggressive manipulation that sometimes was worse than overeating the latkes themselves.
 
