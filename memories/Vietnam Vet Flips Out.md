@@ -41,9 +41,11 @@ She didn’t seem battered, bruised, or otherwise maligned but but she was clear
 
 ***
 
-There was a small crowd in front of the building, a few NYPD cars and an ambulance. I saw the guy from the 4th floor being led into the ambulance. He seemed dissolved but calm. Police were getting back into their cars and the small cadre of Yentas—who were standing up to see what was happening—slowly sat down and went back to being Yentas from a more comfortable position.
+The scene in front of the building was more frentic in it’s own calm way than it usually was: A small crowd of neighborhood Yentas and others gathered to watch the police officers and EMS workers do whatever they were doing. The most notable thing was that most of the yentas who would typically just be sitting around all day were standing up to see what they could see.
 
-I hung around and heard what I could hear. Since most of the Yentas were properly gossiping in Yiddish, I had no clue what was they were saying.
+From my vantage point behind them all I saw the guy from the fourth floor being led into an ambulance. He seemed disconnected but calm; clearly dishevled and sweaty but outside of the thousand mile stare he just seem like he needed a nap and a shower to clear him up. The police were getting back into their cars and the small cadre of Yentas—who were still all standing up to see what was happening—slowly sat down and went back to being Yentas from a more comfortable position.
+
+I hung around and overheard bits and pieces of this and that. Since most of the Yentas were properly gossiping in the holy gossip language of Yiddish, I had no clue what they were saying.
 
 Soon enough I saw my dad and Johnny—the superintendent of the building—talking to each other and headed outside. My dad was carrying a folding chair and so was my mom who was trailing a bit behind.
 
