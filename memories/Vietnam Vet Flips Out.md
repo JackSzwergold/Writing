@@ -47,7 +47,7 @@ From my vantage point behind them all I saw the guy from the fourth floor being 
 
 I hung around and overheard bits and pieces of this and that. Since most of the Yentas were properly gossiping in the holy gossip language of Yiddish, I had no clue what they were saying.
 
-Soon enough I saw my dad and Johnny—the superintendent of the building—talking to each other and headed outside. My dad was carrying a folding chair and so was my mom who was trailing a bit behind.
+As I meandered around the front of the building I saw my dad and Johnny—the super of the building—talking to each other and headed outside. My dad was carrying a folding chair and so was my mom who was trailing a bit behind.
 
 Johnny looked at me and smirked a “What can you do?” kinda smile. Things were weird because while people were gossiping and making a fuss, nobody seemed to be being too judgmental about the guy.
 
