@@ -3,9 +3,9 @@
 
 By Jack Szwergold
 
-It was sometime in the mid-1980s. The building was still in decent shape and new people were moving in every now and then.
+This all happened sometime in the the mid-1980s. Not too sure I remember if the building went co-op and the new owners (aka: Overseas Investment Corp.) were in charge yet since the building was still in decent shape and new people were moving in every now and then. It was a healthy, normal flow of a lower class rental economy.
 
-I don’t ever remember who lived on the 4th floor of the building before he moved in, but I do remember when he moved in. Mainly because he was Hispanic, had a big mustache and had kinda a curly, almost-Afro-ish hair style.
+I don’t ever remember who lived on the 4th floor of the building before he moved in, but I do remember when he moved in. Mainly because he was Hispanic, had a big cookie duster of a mustache and had kinda a curly, almost-Afro-ish hair style. Not exactly like Oates of **Hall and Oates** but close enough.
 
 I was a kid so I had limited contact with him at best. But he seemed friendly. Outside in front of the building, downstairs at the mailboxes, passing each other on the staircase or even waiting for a slice of pizza around the corner at Rocco’s. Wherever and whenever I saw him, he was generally a cool adult.
 
