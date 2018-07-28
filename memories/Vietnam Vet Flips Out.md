@@ -13,7 +13,7 @@ Then one weekend he just flipped out.
 
 ***
 
-Like most every weekend when I was a pre-ten kid, I was puzting around and playing around in my room when suddenly I heard some random shouting coming from somewhere in the building. Which initially was no big deal since someone was always seemed to be shouting somewhere in the building—or near the building—at any given moment on most any day. Like the elevated train outside the window, you just learned how to block it out to get through the day.
+Like most every weekend when I was a pre-ten kid, I was putzing around and playing around in my room when suddenly I heard some random shouting coming from somewhere in the building. Which initially was no big deal since someone was always seemed to be shouting somewhere in the building—or near the building—at any given moment on most any day. Like the elevated train outside the window, you just learned how to block it out to get through the day.
 
 But within a few minutes, the shouting started to become louder and louder and soon enough the dull sounds of random objects hitting floors and walls could be heard as well.
 
@@ -41,9 +41,9 @@ She didn’t seem battered, bruised, or otherwise maligned but but she was clear
 
 ***
 
-The scene in front of the building was more frentic in it’s own calm way than it usually was: A small crowd of neighborhood Yentas and others gathered to watch the police officers and EMS workers do whatever they were doing. The most notable thing was that most of the yentas who would typically just be sitting around all day were standing up to see what they could see.
+The scene in front of the building was more frantic in it’s own calm way than it usually was: A small crowd of neighborhood Yentas and others gathered to watch the police officers and EMS workers do whatever they were doing. The most notable thing was that most of the yentas who would typically just be sitting around all day were standing up to see what they could see.
 
-From my vantage point behind them all I saw the guy from the fourth floor being led into an ambulance. He seemed disconnected but calm; clearly dishevled and sweaty but outside of the thousand mile stare he just seem like he needed a nap and a shower to clear him up. The police were getting back into their cars and the small cadre of Yentas—who were still all standing up to see what was happening—slowly sat down and went back to being Yentas from a more comfortable position.
+From my vantage point behind them all I saw the guy from the fourth floor being led into an ambulance. He seemed disconnected but calm; clearly disheveled and sweaty but outside of the thousand mile stare he just seem like he needed a nap and a shower to clear him up. The police were getting back into their cars and the small cadre of Yentas—who were still all standing up to see what was happening—slowly sat down and went back to being Yentas from a more comfortable position.
 
 I hung around and overheard bits and pieces of this and that. Since most of the Yentas were properly gossiping in the holy gossip language of Yiddish, I had no clue what they were saying.
 
@@ -61,7 +61,7 @@ I walked closer, looked at him and he seemed calmer, cooler and a bit cleaned up
 
 He was clearly sad and crying a bit and was saying “I’m sorry…” to Johnny and others. Never saw a man crying and being honest like that in public before that day.
 
-I went back upstairs to my apartment and soon enough my dad followed. He asked me if I wanted anything to eat and said yes. No idea what he made for me, but I do remember him saying that it was sad the guy was a Vietnam War veteran and snapped like that.
+I went back upstairs to my apartment and soon enough my dad followed. He asked me if I wanted anything to eat and said yes. No idea what he made for me to eat that day. But I do remember him saying that it was sad the guy was a Vietnam War veteran and snapped like that.
 
 ***
 
