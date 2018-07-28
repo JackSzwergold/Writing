@@ -1,4 +1,4 @@
-## Vietnam Vet Flips Out
+## The Day the Vietnam Vet on the Fourth Floor Flipped Out
 ### About the Time an Upstairs Neighbor in the Building—Who was a Vietnam War Veteran—Flipped Out
 
 By Jack Szwergold
@@ -65,4 +65,4 @@ I went back upstairs to my apartment and soon enough my dad followed. He asked m
 
 ***
 
-*Vietnam Vet Flips Out (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*The Day the Vietnam Vet on the Fourth Floor Flipped Out (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
