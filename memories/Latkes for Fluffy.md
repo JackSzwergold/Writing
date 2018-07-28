@@ -27,13 +27,13 @@ They would then happily bring them over to my room, place them on my desk, I wou
 
 Fluffy was a cool dog and really liked to eat those latkes. It even got to the point where Fluffy could almost predict she would be fed latkes at certain times on certain days on the weekend and would—in anticipation—look up at my window and wait for them to be tossed down to her.
 
-This “tossing latkes to a dog” scheme worked well for a few weekends until one day Johnny came up to our apartment and asked to talk to my dad in private.
+This “tossing latkes to a dog” scheme worked well for a few weekends until one day Johnny came up to our apartment—seemingly for no reason—and asked to talk to my dad in private.
 
-It turns out that around the same time I started to toss the latkes out the window, Fluffy was getting sick and Johnny couldn’t figure out why. Turns out that fried potato pancakes might taste good, but aren’t good for dogs. Too much grease and potatoes in one lump I guess.
+It turns out that around the same time I started to toss the latkes out the window, Fluffy was getting sick and Johnny couldn’t figure out why. Turns out that fried potato pancakes might taste good, but aren’t good for dogs. Too much gpotatoes, grease and flour in one lump I guess.
 
-And after talking to my dad, my dad walked over to my room, knocked on the door, opened it up and said, “Jack you can’t throw the latkes out the window anymore.” Johnny stood next to him and chimed in an basically said the same adding, “Fluffy gets sick from them! And your mom and dad work all day making them so you can eat them.”
+And after talking to my dad, Johnny and my dad walked over to my room, knocked on the door, opened it up and said, “Jack you can’t throw the latkes out the window anymore.” Johnny stood next to him and chimed in an basically said the same adding, “Fluffy gets sick from them! And your mom and dad work all day making them so you can eat them!”
 
-I said I was sorry and I agreed to never toss latkes out the window to Fluffy ever again. They I sat there and watched as Johnny left our apartment with a small pile of latkes wrapped in aluminum foil in his hand and headed out the front door.
+I apologized to Johnny and agreed to never toss latkes out the window to Fluffy ever again. Then I sat there and watched as Johnny left our apartment with a small pile of latkes wrapped in aluminum foil in his hand and headed out the front door.
 
 ***
 
