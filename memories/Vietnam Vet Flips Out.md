@@ -15,11 +15,13 @@ Then one weekend he just flipped out.
 
 Like most every weekend when I was a pre-ten kid, I was puzting around and playing around in my room when suddenly I heard some random shouting coming from somewhere in the building. Which initially was no big deal since someone was always seemed to be shouting somewhere in the building—or near the building—at any given moment on most any day. Like the elevated train outside the window, you just learned how to block it out to get through the day.
 
-But the shouting started to become louder and louder and soon enough the sounds of objects hitting floors and walls could be heard as well.
+But within a few minutes, the shouting started to become louder and louder and soon enough the dull sounds of random objects hitting floors and walls could be heard as well.
 
-My dad showed up in my room to look out the window and try to figure out what happened.
+My dad ran into in my room to look out the window and try to figure out what was happening.
 
 “What is happening?” my dad said to me as he peered out. My mom showed up in the hallway and added another, “What is happening?” to the mix.
+
+Utterly nobody knew what was happening other than it was happening.
 
 Soon enough there was a slight pause and you could hear a window being flung open, louder shouting and now the sound of literally kitchen stuff being flung out the window.
 
