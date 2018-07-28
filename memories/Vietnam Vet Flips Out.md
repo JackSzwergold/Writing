@@ -51,7 +51,7 @@ As I meandered around the front of the building I saw my dad and Johnny—the su
 
 Johnny looked at me and smirked a “What can you do?” kinda smile. Things were weird because while people were gossiping and making a fuss, nobody seemed to be being too judgmental about the guy.
 
-Johnny said something about the guy being a Vietnam war veteran and how the guy apparently had similar flip-outs in the past. It seemed like the guy’s Vietnam veteran status exonerated him from the judgement of the building Yentas and others.
+Johnny said something about the guy being a Vietnam war veteran and how the guy apparently had similar flip-outs in the past. It seemed like the guy’s Vietnam veteran status exonerated him from the judgement of the building Yentas, Johnny and others.
 
 ***
 
