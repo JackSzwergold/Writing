@@ -3,25 +3,29 @@
 
 By Jack Szwergold
 
-While our family didn’t formally eat meals like a family, eating food and making food was a constant.
+While our family didn’t formally eat meals like a family, eating food and making food was a constant thing around the home.
 
-Seemingly each weekend during my childhood, my mom and dad would buy a huge bag of potatoes and a huge bag of onions and just make a huge pile of latkes; also known as potato pancakes.
+Seemingly each weekend during my childhood in the 1970s, my mom and dad would buy a huge bag of potatoes and a huge bag of onions and just make a huge pile of latkes; also known as potato pancakes.
 
-I am not exaggerating when I say that past take out pizza, there was no other food to eat in the house on weekends other than latkes.
+I am not exaggerating when I say that past take out pizza, there was rarely any other food to eat in the house on weekends other than latkes. Maybe some salisbury steak or some leftover chicken and a baked potato would be up for grabs. But in in general latkes—or maybe sometimes a pile of cheese blintzes—would be the centerpiece food of the household on the weekends.
 
-Sometimes they made them in anticipation of visitors coming by. Other times they would make it because there was a good deal on onions or potatoes at a local market. But in general, making latkes was a weekend tradition that I miss as an adult but grew a bit sick of as a kid.
+Sometimes my parents would make latkes in anticipation of visitors coming by. Other times they would make latkes because there was a good deal on sacks of potatoes or onions at a local market. But in general, making latkes was a weekend tradition that I miss as an adult but grew a bit sick of as a kid.
 
-I woke up in the morning, I would be offered latkes. I would come home from playing outside, I would be offered latkes. I would get ready to go to sleep at night, I would be offered latkes.
+***
 
-I was just tired of them.
+I woke up in the morning, I would be offered latkes for breakfast. I would come home from playing outside, I would be offered latkes lunch. I would get ready to go to sleep at night, I would be offered latkes for dinner.
 
-One day, instead of saying “No!” to my parents and causing unintended drama, I decided to say “Yes!” to them when latkes were offered.
+They were delicious, they were plentiful and they were seemingly in endless supply and I was just tired of them.
 
-I would sit down at my desk, take a bite of one or two of them and then toss the rest out to Fluffy, the super’s dog in the airway below.
+Some days I would say, “No!” and would be met with indignation. My parents would often then talk to each other in Yiddish, Hebrew or Polish about my refusal of Latkes as if I were on drugs or something. My refusal of their food would result in a pile of passive aggressive manupulation that sometimes was worse than overeating the latkes themselves.
 
-It even got to the point where Fluffy could almost predict she would be fed latkes at a certain hour on certain days on the weekend and would constantly look up at my window in anticipation.
+So one day, instead of bluntly saying “No!” to my parents and causing unwanted drama and bullshit, I decided to say “Yes!” to them when latkes were offered.
 
-This scheme worked well for a few weekends until one day Johnny—the super—came up to talk to my dad.
+They would happily bring them over to my room, place them on my desk, I would sit down, take a bite of one or two of them, wait for them to leave, close the door, open the window and then toss them out into the airway to Fluffy, the super’s dog who hung out in that airway all day.
+
+Fluffy really liked to eat those latkes. It even got to the point where Fluffy could almost predict she would be fed latkes at certain times on certain days on the weekend and would—in anticipation—look up at my window and wait for them to be tossed down to her.
+
+This “tossing latkes to a dog” scheme worked well for a few weekends until one day Johnny came up to our apartment and asked to talk to my dad in private.
 
 It turns out Fluffy was getting sick and nobody could figure out why. Turns out that fried potato pancakes might taste good, but aren’t good for dogs.
 
