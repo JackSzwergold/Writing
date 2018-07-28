@@ -19,13 +19,13 @@ If latkes were gold, my family would be rich.
 
 Now don’t get me wrong! I liked latkes. They were delicious, they were plentiful and they were seemingly in endless supply  in our home. It was just I was sick and tired of them.
 
-Some days I would say, “No!” and would be met with indignation. My parents would often then talk to each other in Yiddish, Hebrew or Polish about my refusal of Latkes as if I were on drugs or something. My refusal of their food would result in a pile of passive aggressive manipulation that sometimes was worse than overeating the latkes themselves.
+Some days when they were offered I would say, “No!” and would be met with indignation. My parents would often then talk to each other in Yiddish, Hebrew or Polish about my refusal of Latkes as if I were on drugs or something. My refusal of their fried potato pancakes would result in a pile of passive aggressive manipulation that sometimes was worse than overeating the latkes themselves.
 
 So one day, instead of bluntly saying “No!” to my parents and causing unwanted drama and bullshit, I decided to say “Yes!” to them when latkes were offered.
 
-They would happily bring them over to my room, place them on my desk, I would sit down, take a bite of one or two of them, wait for them to leave, close the door, open the window and then toss them out into the airway to Fluffy, the super’s dog who hung out in that airway all day.
+They would then happily bring them over to my room, place them on my desk, I would sit down, take a bite of one or two of them, wait for them to leave, close the door, open the window and then toss them out into the building’s airway to Fluffy, the super’s dog who hung out in that airway all day.
 
-Fluffy really liked to eat those latkes. It even got to the point where Fluffy could almost predict she would be fed latkes at certain times on certain days on the weekend and would—in anticipation—look up at my window and wait for them to be tossed down to her.
+Fluffy was a cool dog and really liked to eat those latkes. It even got to the point where Fluffy could almost predict she would be fed latkes at certain times on certain days on the weekend and would—in anticipation—look up at my window and wait for them to be tossed down to her.
 
 This “tossing latkes to a dog” scheme worked well for a few weekends until one day Johnny came up to our apartment and asked to talk to my dad in private.
 
