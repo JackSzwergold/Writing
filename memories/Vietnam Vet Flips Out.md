@@ -7,9 +7,9 @@ This all happened sometime in the the mid-1980s. Not too sure I remember if the 
 
 I don’t ever remember who lived on the 4th floor of the building before he moved in, but I do remember when he moved in. Mainly because he was Hispanic, had a big cookie duster of a mustache and had kinda a curly, almost-Afro-ish hair style. Not exactly like Oates of **Hall and Oates** but close enough.
 
-I was a kid so I had limited contact with him at best. But he seemed friendly. Outside in front of the building, downstairs at the mailboxes, passing each other on the staircase or even waiting for a slice of pizza around the corner at Rocco’s. Wherever and whenever I saw him, he was generally a cool adult.
+I was a kid—and he was obviously a full-grown adult—so I had limited contact with him at best in day-to-day building life. But he seemed friendly whenever and wherever I saw him. Whether it was outside in front of the building, downstairs at the mailboxes, passing each other on the staircase or even waiting for a slice of pizza around the corner at Rocco’s, no matter when and when I saw him, he was generally a cool adult.
 
-Then one weekend he flipped out.
+Then one weekend he just flipped out.
 
 ***
 
