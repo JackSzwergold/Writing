@@ -17,7 +17,7 @@ I woke up in the morning, I would be offered latkes for breakfast. I would come 
 
 They were delicious, they were plentiful and they were seemingly in endless supply and I was just tired of them.
 
-Some days I would say, “No!” and would be met with indignation. My parents would often then talk to each other in Yiddish, Hebrew or Polish about my refusal of Latkes as if I were on drugs or something. My refusal of their food would result in a pile of passive aggressive manupulation that sometimes was worse than overeating the latkes themselves.
+Some days I would say, “No!” and would be met with indignation. My parents would often then talk to each other in Yiddish, Hebrew or Polish about my refusal of Latkes as if I were on drugs or something. My refusal of their food would result in a pile of passive aggressive manipulation that sometimes was worse than overeating the latkes themselves.
 
 So one day, instead of bluntly saying “No!” to my parents and causing unwanted drama and bullshit, I decided to say “Yes!” to them when latkes were offered.
 
@@ -27,11 +27,11 @@ Fluffy really liked to eat those latkes. It even got to the point where Fluffy c
 
 This “tossing latkes to a dog” scheme worked well for a few weekends until one day Johnny came up to our apartment and asked to talk to my dad in private.
 
-It turns out Fluffy was getting sick and nobody could figure out why. Turns out that fried potato pancakes might taste good, but aren’t good for dogs.
+It turns out that around the same time I started to toss the latkes out the window, Fluffy was getting sick and Johnny couldn’t figure out why. Turns out that fried potato pancakes might taste good, but aren’t good for dogs. Too much grease and potatoes in one lump I guess.
 
-And after quietly talking to my dad a while, my dad walked over to my room, opened up the door and said, “Jack you can’t throw the latkes out the window anymore.” Johnny chimed in an basically said the same adding, “Fluffy gets sick from them! And your mom and dad work all day making them so you can eat them.”
+And after talking to my dad, my dad walked over to my room, knocked on the door, opened it up and said, “Jack you can’t throw the latkes out the window anymore.” Johnny stood next to him and chimed in an basically said the same adding, “Fluffy gets sick from them! And your mom and dad work all day making them so you can eat them.”
 
-I agreed to never toss latkes out the window to Fluffy ever again and watched as Johnny left our apartment with a small pile of latkes wrapped in aluminum foil in his hand.
+I said I was sorry and I agreed to never toss latkes out the window to Fluffy ever again. They I sat there and watched as Johnny left our apartment with a small pile of latkes wrapped in aluminum foil in his hand and headed out the front door.
 
 ***
 
