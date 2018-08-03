@@ -57,7 +57,7 @@ As I backed away I veered to the side to take a peek into the window they just p
 
 The window was open and the screen was down. A white curtain fluttered a bit in the breeze. I couldn’t see much, but all I could see was a woman seemingly asleep on a bed, and the shadows of what I assume were Andrew and Marc coming down a hallway near the room.
 
-I backed away from the window, jogged down the fire escape staircase, ran down Beach Walk and jaywalked in a sprint across the street and to head back home.
+I backed away from the window, jogged down the fire escape staircase, ran down Beach Walk and sprinted across Brighton Beach Avenue to head back home.
 
 ***
 
