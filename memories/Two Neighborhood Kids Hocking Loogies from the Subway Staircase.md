@@ -9,15 +9,15 @@ I liked watching the trains pass by and the clouds passing by as well. Occasiona
 
 Whatever the backdrop of my day was, I was basically sitting around, slacking off and not doing much of anything when I saw two kids around my age hanging out around the subway staircase. They were leaning over, hocking loogies and hoping to hit some hapless passerby on the head with their globs of spit as they walked down the street.
 
-They were mostly just standing there bent over the guard rails on the staircase and looking down for a ripe target to hit so I didn’t immediately know who they were. But when one of them stood up straight and spotted me in my window and waved at me, I knew who they were. It was one of two neighborhood kids I knew who lived across the street in Trump Village; Andrew or Marc. And I knew it was either Andrew or Marc because where ever Andrew went, Marc went… And visa-versa.
+They were mostly just standing there bent over the guard rails on the staircase and looking down for a ripe target to hit so I didn’t immediately know who they were. But when one of them stood up straight and spotted me in my window and waved at me—and I could finally see one of their faces—I knew who they were. It was one of two neighborhood kids I knew who lived across the street in Trump Village; Andrew or Marc. And I knew it was either Andrew or Marc because where ever Andrew went, Marc went… And vice-versa.
 
-I knew because my sister was friends with Andrew’s sister Michelle.
+I wasn’t really good friends with either of them, but I knew them because my sister was friends with Andrew’s sister Michelle. And sometime’s my sister’s main form of babysitting was basically just telling me to play with Michelle’s brother.
 
-We weren’t exactly friends, but we weren’t exactly enemies either. In retrospect, they were bullies and—being merely a 10 year old at the time—didn’t know much better.
+Anyway, like I saw we weren’t exactly friends. But we weren’t exactly enemies either. In retrospect, they were bullies and—being merely a 10 year old child of immigrants at the time—I didn’t know much better but to think their “bullying” was just a byproduct of the cultural differences I would eventually learn to understand. I rationalized it then as a child, but realize what they are now: Just bullies at best.
 
-Andrew waved over to me and shouted that I should come over to them. My dad heard this and asked me what was up. I pointed to them and said, “I’m going over to play with them.” He looked at me and looked at them and tentatively approved. My dad wasn’t too hot about Andrew and Marc but was open-minded enough to know that if I wanted to be with them, he wouldn’t stand in the way.
+Andrew waved over to me and shouted that I should come over to hang out them. My dad heard this and asked me what was up. I pointed to them and said, “I’m going over to play with them.” He looked at me and looked at them and tentatively approved. My dad wasn’t too hot about Andrew and Marc but was open-minded enough to know that if I wanted to be with them, he wouldn’t stand in the way.
 
-So off I went outside, down the block, up the staircase to hang out with Andrew and Marc.
+So off I went down the stairs, outside the building, down the block and up the subway staircase to hang out with Andrew and Marc.
 
 ***
 
