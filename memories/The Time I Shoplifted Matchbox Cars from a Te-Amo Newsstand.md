@@ -17,11 +17,11 @@ And beyond the candy, comics, trading cards, pranks, novelties and other random 
 
 Matchbox cars was my thing as a kid. More than comics or anything else.
 
-For $1 and some change, Matchbox cars were a decent value for kids who wanted to collect cool and sturdy stuff.
+For $1 and some change, Matchbox cars were a decent value for kids who wanted to collect cool and sturdy play stuff.
 
-Unlike modern cars you just grab off of a rack, back then the way it worked was there would be a display of that years Matchbox cars and each had a number connected to them.
+Unlike modern toys that you just impulsively grabbed off of a rack at a store, back then the way it worked was there would be a display of that year’s Matchbox cars and each had a number connected to them.
 
-You wanted a car, you just had to look over the rack, tell the guy behind the counter what number you wanted, handed over that dollar and change and et voila, you got a literal small matchbox-sized box that had your car in it.
+If you wanted a specific car, you just had to look over the selection of cars in the display case, tell the guy behind the counter what number you wanted, handed over that dollar and change and et voila, you got a literal small matchbox-ish-sized box that had your car in it.
 
 I really liked buying Matchbox cars from this store since the guy was nice and always had a decent stock of Matchbox cars. And since it was around the corner from elementary school, I could window-shop each day when I headed home from school and would wait for Friday—and my allowance—to happen.
 
