@@ -63,9 +63,9 @@ Me and my dad left the place and my dad said that they were acting crazy. “Why
 
 ***
 
-After that incident, I began to consciously boycot the store and didn’t give them the pleasure of getting the 5 to 25 cents per day I might spend on them for candy and trading cards.
+After that incident, I began to consciously and deliberately boycot the Te-Amo. If they were going to be jerks, I wouldn’t give them the pleasure of getting the 5 to 25 cents I might occassionally spend on them for candy and trading cards.
 
-Then one day I peeked in and saw they had rearranged things and had a new Matchbox car display on a rotating carousel away from the front counter.
+This lasted for a few week, but then one day I peeked in the front door and saw they had rearranged things a bit. They even had a new Matchbox car display on a rotating carousel ner the back and away from the front counter.
 
 Curious, I went in to investigate. The display rack was nice and new, but the cars were displayed in some kind of haphazard mix. I could tell some cars were in the wrong slots because their numbers didn’t match what I remembered as being their proper numbers in the catalog.
 
