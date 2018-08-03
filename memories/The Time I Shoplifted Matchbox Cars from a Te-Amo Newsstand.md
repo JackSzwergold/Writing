@@ -39,7 +39,7 @@ A week or so passed. I wasn’t consciously boycotting the Te-Amo, but subconsci
 
 It was a nice-ish weekend day, I had a few dollars of allowance money in my pocket and felt like treating myself to a brand new Matchbox car.
 
-I looked over the selection and spotted car number 21: A Renault 5TL! I liked practical little cars like that so I asked the guy for car number 21.
+I looked over the selection of cars in the display case and spotted a car I wanted: Number 21! Which was a Renault 5TL. I know, that sounds boring but I really liked practical non-sporty cars like that so I asked the guy for car number 21.
 
 The guy looked confused and turned to his co-worker who rummaged through some boxes on a shelf and handled me a number 21 box… But this was not a Renault 5TL, it was some oddball construction vehicle Matchbox dubbed a “Rod Roller.” I didn’t want it and passed it back to the guy.
 
