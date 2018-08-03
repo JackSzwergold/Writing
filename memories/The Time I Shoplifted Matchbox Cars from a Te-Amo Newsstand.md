@@ -75,9 +75,9 @@ My heart was racing at a mile a minute and my palms were sweaty, but I did it! N
 
 “Hey!” the guy behind the counter shouted, “What do you want!” he added. I shrugged, walked out the front door and ran down the block.
 
-Once I crossed Brighton 5th street I looked behind me and started to calm down a bit when I didn’t see the store owner chasing me down the block.
+Once I crossed Brighton 5th street I looked behind me and started to calm down a bit. I was expecting to see the store owner chasing me down the block but I didn’t see him. I breathed a sigh of relief and kept on walking.
 
-I walked a few more blocks and then pulled the car out of my pocket and looked it over a bit. I gotta admit I don’t remember exactly what model I snagged that day, but I was happy to snag it.
+After a few more blocksI pulled the car out of my pocket and looked it over a bit. I gotta admit I don’t remember exactly what model I snagged that day, but I was happy to snag it.
 
 It wasn’t the car as much as the principal: These new owners didn’t treat neighborhood kids as being any better than thieves, so why not steal then?
 
