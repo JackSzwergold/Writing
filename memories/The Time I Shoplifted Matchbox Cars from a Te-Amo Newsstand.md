@@ -55,15 +55,15 @@ I waved his hand away and walked to the display case and pointed out the car at 
 
 Dejected I asked if I could buy the car in the display case and one of them simply shouted, “No!” and then grabbed the car out of the display case to shove into the storage area behind the counter.
 
-I left the place pissed off and unhappy. The new owners had no idea what they were selling and they were treating me—an 11 year old kid—like some kinda putz.
+I left the place pissed off and unhappy. The new owners had no idea what they were selling and they were treating me—an 11 year old kid—like some kinda threat to their business.
 
-I told my dad what happened and he went out with me the next day to see if he could get them to sell me that Renault 5TL. No luck. To make things even worse the guys behind the counter said that all I was doing was making problems so they wouldn’t sell the car to me.
+I told my dad what happened and he went out with me the next day to see if he could get them to sell me that number 21 Renault 5TL. Still, no luck for me; they wouldn’t sell it. To make things even worse the guys behind the counter said that all I was doing was making trouble so they wouldn’t sell the car to me.
 
 Me and my dad left the place and my dad said that they were acting crazy. “Why don’t they want to sell it to you? The money is the same!” my dad said as we walked back down the avenue.
 
 ***
 
-The next week or so I basically boycotted the store and didn’t give them the pleasure of getting the 5 to 25 cents per day I might spend on them for candy and trading cards.
+After that incident, I began to consciously boycot the store and didn’t give them the pleasure of getting the 5 to 25 cents per day I might spend on them for candy and trading cards.
 
 Then one day I peeked in and saw they had rearranged things and had a new Matchbox car display on a rotating carousel away from the front counter.
 
