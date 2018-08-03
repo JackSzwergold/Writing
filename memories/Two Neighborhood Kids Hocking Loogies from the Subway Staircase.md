@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-I don’t know if it was a Saturday, a Sunday or a holiday, but I remember it being Fall-ish—but it could have still been Spring—and I was sitting around on my desk in my room playing around with stuff and occasionally looking out the window.
+I don’t know if it was a Saturday, a Sunday or a holiday, but I remember it being Fall-ish kind of day—but it could have still been Spring for all I remember—and I was sitting at my desk in my room not doing anything much but playing around with stuff and occasionally looking out the window.
 
 I liked watching the trains pass by and the clouds up in the sky and sometimes the occasional Coast Guard or NYPD helicopter pass by.
 
