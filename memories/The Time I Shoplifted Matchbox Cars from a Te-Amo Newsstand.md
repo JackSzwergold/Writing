@@ -41,19 +41,19 @@ It was a nice-ish weekend day, I had a few dollars of allowance money in my pock
 
 I looked over the selection of cars in the display case and spotted a car I wanted: Number 21! Which was a Renault 5TL. I know, that sounds boring but I really liked practical non-sporty cars like that so I asked the guy for car number 21.
 
-The guy looked confused and turned to his co-worker who rummaged through some boxes on a shelf and handled me a number 21 box… But this was not a Renault 5TL, it was some oddball construction vehicle Matchbox dubbed a “Rod Roller.” I didn’t want it and passed it back to the guy.
+The guy looked befuddled and confused about what I was asking about. He turned to his co-worker who rummaged through some boxes on a shelf and handled me a number 21 box… But this was not a Renault 5TL, it was some oddball construction vehicle Matchbox dubbed a “Rod Roller” that was last year’s model 21. I didn’t want that thing and passed it back to the guy.
 
 “I want number 21!” I said.
 
-“This is number 21!” the guy behind the counter responded.
+“This is number 21!” the guy behind the counter shouted.
 
 “No it isn’t!” I said and then pointed out hat was number 21 in the display.
 
-Some old coot hanging out near the Lottery tickets heckled me and said, “Maybe the kid wants to the ‘21 Club!’” and poked his old coot finger near my face.
+Some old coot hanging out near the Lottery area heckled me and said, “Maybe the kid wants to go to the ‘21 Club!’” and poked his old coot finger near my face.
 
-I waved his hand away and walked to the display and pointed out the car at number 21 in the display wasn’t the same car he gave me. The guy behind the counter and his partner looked at the display, noticed the difference, spoke something to each other in a language I didn’t understand and then said, “Sorry, we don’t have it.”
+I waved his hand away and walked to the display case and pointed out the car at number 21 in the display wasn’t the same car he gave me. The guy behind the counter and his partner looked at the number 21 in the display case, noticed the difference, said something to each other in a foreign language I didn’t understand and then said, “Sorry, we don’t have it.”
 
-Dejected I asked if I could buy the car in the display to which one of them said, “No!” and then grabbed the car out of the display to shove into the storage area behind the counter.
+Dejected I asked if I could buy the car in the display case and one of them simply shouted, “No!” and then grabbed the car out of the display case to shove into the storage area behind the counter.
 
 I left the place pissed off and unhappy. The new owners had no idea what they were selling and they were treating me—an 11 year old kid—like some kinda putz.
 
