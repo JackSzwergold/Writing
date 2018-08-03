@@ -25,11 +25,11 @@ I said “Hi!” and they said “Hi!” and then they git back to their task at
 
 I looked over the rail with them and watched as they carefully timed their spits, but I never participated in the whole thing. It all seemed disgusting and stupid. But somehow I was there enabling them in my on small way.
 
-Soon enough one of them hit someone and you could hear them shout and threaten to “get us” so we ran through the train station onto the other side.
+After a few failed shots, one of them hit someone smack in the head and you could hear the hapless guy shout and threaten to “get us” so we ran through across the way to the other side of the train station entrance.
 
-Not as many people walked down that side of the avenue, so it seemed like the game was over… At least for now.
+Not as many people walked down the avenue on the other side of the station, so it seemed like the “loogie hocking” game was for all intents and purposes over… At least for now.
 
-Bored and baffled—but still having time on our hands—we tried to figure out what to do next.
+Bored and idle—but still having some free time on our hands—we all tried to figure out what to do next.
 
 “Let’s go to ‘Youth World’!” I said to which Marc and Andrew responded with a hesitant, “Okay…” so down the stairs we went.
 
