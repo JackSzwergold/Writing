@@ -65,11 +65,11 @@ Me and my dad left the place and my dad said that they were acting crazy. “Why
 
 After that incident, I began to consciously and deliberately boycot the Te-Amo. If they were going to be jerks, I wouldn’t give them the pleasure of getting the 5 to 25 cents I might occassionally spend on them for candy and trading cards.
 
-This lasted for a few week, but then one day I peeked in the front door and saw they had rearranged things a bit. They even had a new Matchbox car display on a rotating carousel ner the back and away from the front counter.
+This lasted for a few week, but then one day I peeked in the front door and saw they had rearranged things a bit. They even had a new Matchbox car display case on a rotating carousel near the back and away from the front counter.
 
-Curious, I went in to investigate. The display rack was nice and new, but the cars were displayed in some kind of haphazard mix. I could tell some cars were in the wrong slots because their numbers didn’t match what I remembered as being their proper numbers in the catalog.
+Curious, I went in to investigate. The display case was nice, new and clean, but the cars were displayed in some kind of haphazard, thoughless way. I could tell some cars were in the wrong slots because their numbers didn’t match what I remembered as being their proper numbers in the collector’s catalog I had.
 
-Still, they had some cool stuff that I wanted and as I slowly rotated the display I noticed that the plastic at the bottom could be lifted up. I played around with it with my finger, slowly looked up front and then quickly popped it up, grabbed a car and dropped it into my jacket pocket.
+Still, they had some cool stuff that I wanted and as I slowly rotated the display case I noticed that the plastic at the bottom of the display case could be lifted up. I played around with it with my finger, slowly looked up front and then quickly popped it up, grabbed a car and dropped it into my jacket pocket.
 
 My heart was racing at a mile a minute and my palms were sweaty, but I slowly walked towards the entrance to the store.
 
