@@ -5,9 +5,9 @@ By Jack Szwergold
 
 I don’t know if it was a Saturday, a Sunday or a holiday, but I remember it being Fall-ish kind of day—but it could have still been Spring for all I remember—and I was sitting at my desk in my room not doing anything much but playing around with stuff and occasionally looking out the window.
 
-I liked watching the trains pass by and the clouds up in the sky and sometimes the occasional Coast Guard or NYPD helicopter pass by.
+I liked watching the trains pass by and the clouds passing by as well. Occasionally a Coast Guard or an NYPD helicopter would pass by low and that would be cool too. The normal ebb and flow of urban shore life I guess.
 
-Regardless, I was sitting around and slacking off when I saw two kids hanging out on the subway staircase. They were leaning over and hocking loogies hoping to hit some hapless passerby on the head as they walked down the street.
+Whatever the backdrop of my day was, I was basically sitting around, slacking off and not doing much of anything when I saw two kids around my age hanging out around the subway staircase. They were leaning over, hocking loogies andn hoping to hit some hapless passerby on the head with their globs of spit as they walked down the street.
 
 They were mostly bent over and looking down but one of them stood up straight and spotted me in my window. It was Andrew or Marc; two neighborhood kids who lived in Trump Village but I knew because my sister was friends with Andrew’s sister Michelle.
 
