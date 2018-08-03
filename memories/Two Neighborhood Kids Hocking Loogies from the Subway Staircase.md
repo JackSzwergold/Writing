@@ -9,7 +9,9 @@ I liked watching the trains pass by and the clouds passing by as well. Occasiona
 
 Whatever the backdrop of my day was, I was basically sitting around, slacking off and not doing much of anything when I saw two kids around my age hanging out around the subway staircase. They were leaning over, hocking loogies and hoping to hit some hapless passerby on the head with their globs of spit as they walked down the street.
 
-They were mostly just standing there bent over the guard rails on the staircase and looking down. But then one of them stood up straight and spotted me in my window. It was Andrew or Marc; two neighborhood kids who lived in Trump Village but I knew because my sister was friends with Andrew’s sister Michelle.
+They were mostly just standing there bent over the guard rails on the staircase and looking down for a ripe target to hit. But when one of them stood up straight they spotted me in my window and waved at me. I could see their face and knew immediately who it was: It was one of two neighborhood kids I knew who lived across the street in Trump Village; Andrew or Marc.
+
+I knew because my sister was friends with Andrew’s sister Michelle.
 
 We weren’t exactly friends, but we weren’t exactly enemies either. In retrospect, they were bullies and—being merely a 10 year old at the time—didn’t know much better.
 
