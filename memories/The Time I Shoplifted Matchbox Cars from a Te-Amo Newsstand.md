@@ -3,13 +3,13 @@
 
 By Jack Szwergold
 
-We all called the store “the Te-Amo” but it was basically a junky—but beloved—neighborhood newsstand.
+We all called the store “the Te-Amo” but it was basically a junky—but beloved—neighborhood newsstand and candy store.
 
-Te-Amo wasn’t the name of the store as much as it was the name of a brand of cheap Mexican cigars that as sold around various stores across New York City at the time. Part of their marketing in the city in the 1970s was to pay for new signs for newsstands with one stipulation: Their branding would be front and center.
+Te-Amo wasn’t the name of the store as much as it was the name of a brand of cheap Mexican cigars that as sold around various corner stores across New York City at the time. Part of their marketing in the city in the 1970s was to pay for new signs for shops that carried their goods with one stipulation: Their branding would be the largest thing on the sign.
 
-So the candy store that was near Brighton 6th Street was dubbed “the Te-Amo” because there wasn’t another one in the neighborhood at the time.
+So the newsstand that was near Brighton 6th Street was dubbed “the Te-Amo” by most everyone in the neighborhood because there wasn’t another one nearby at the time. There was an “Optimo” a few blocks away but that’s a whole other story.
 
-In 1978, the store was an old drug store that sold cards at one point and then became a newsstand at one point. I don’t recall who the original owner of the place was, but I recall them being Italian or Jewish and had thick rimmed glasses and were generally nice to kids. There was always some kind of nickel candy and generally and array of crap that would appeal to kids.
+Around 1978, the store was still an old drug store at one point that then became a newsstand at some point in its history. I don’t recall who the original owner of the place was, but I recall them being Italian or Jewish and had thick rimmed glasses and were generally nice to kids. There was always some kind of nickel candy and generally and array of crap that would appeal to kids who went to nearby P.S. 253.
 
 And beyond the comics, trading cards and other random crap they had for sale, they—at least to me—had one of the best selection of Matchbox cars in the neighborhood.
 
