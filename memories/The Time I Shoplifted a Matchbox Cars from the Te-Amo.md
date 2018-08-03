@@ -1,5 +1,5 @@
-## The Time I Shoplifted Matchbox Cars from a Te-Amo Newsstand
-### About the Time I Shoplifted Some Matchbox Cars from a Local Te-Amo Newsstand
+## The Time I Shoplifted a Matchbox Cars from the Te-Amo
+### About the Time I Shoplifted a Matchbox Car from a Local Te-Amo Newsstand Because the New Owners Were Jerks
 
 By Jack Szwergold
 
@@ -85,4 +85,4 @@ When I got home I showed the car to my dad. He thought it was nice in that way p
 
 ***
 
-*The Time I Shoplifted Matchbox Cars from a Te-Amo Newsstand (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*The Time I Shoplifted a Matchbox Cars from the Te-Amo (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
