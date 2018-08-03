@@ -41,7 +41,9 @@ As we stood near Beach Walk, Marc poked Andrew in the arm, and motioned towards 
 
 “What are we going to do there?” I asked and without hestiation, Andrew said, “Don’t worry. It will be fun.”
 
-We walked down that alley and up a staircase. The building was weird as if it were built as a tiered wedding cake with one huge layer on the ground floor and two towers jutting out above it.
+With that settled we all walked down that alley and up the open and accessible fire escape staircase up one level
+
+. The building was weird as if it were built as a tiered wedding cake with one huge layer on the ground floor and two towers jutting out above it.
 
 So we climbed up those stairs and soon enough were wandering on a weird non-roof with terraces jutting out around each of the towers.
 
