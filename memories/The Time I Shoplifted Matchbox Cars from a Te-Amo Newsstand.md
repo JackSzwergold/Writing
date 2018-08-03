@@ -77,9 +77,11 @@ My heart was racing at a mile a minute and my palms were sweaty, but I did it! N
 
 Once I crossed Brighton 5th street I looked behind me and started to calm down a bit. I was expecting to see the store owner chasing me down the block but I didn’t see him. I breathed a sigh of relief and kept on walking.
 
-After a few more blocksI pulled the car out of my pocket and looked it over a bit. I gotta admit I don’t remember exactly what model I snagged that day, but I was happy to snag it.
+After walking a few more blocks I pulled the car out of my pocket and looked it over a bit. I gotta admit I don’t remember exactly what model I stole that day, but I was happy to have stolen it.
 
-It wasn’t the car as much as the principal: These new owners didn’t treat neighborhood kids as being any better than thieves, so why not steal then?
+It wasn’t the car as much as the principle of the whole thing: The new owners of the Te-Amo always treated neighborhood kids as being no better than thieves, so why not steal from them?
+
+When I got home I showed the car to my dad. He thought it was nice in that way parents thought all things their kids do or have things were nice. He had no idea I stole it and to me, it didn’t matter if he did.
 
 ***
 
