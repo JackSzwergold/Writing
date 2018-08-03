@@ -69,13 +69,9 @@ This lasted for a few week, but then one day I peeked in the front door and saw 
 
 Curious, I went in to investigate. The display case was nice, new and clean, but the cars were displayed in some kind of haphazard, thoughless way. I could tell some cars were in the wrong slots because their numbers didn’t match what I remembered as being their proper numbers in the collector’s catalog I had.
 
-Still, they had some cool stuff that I wanted and—as I slowly rotated the display case—I noticed a gap in the clear plastic on the front of the display case. I felt the edges and played around with it with my tip finger and realized I could easily push up the clear plastic on the front of the display case. I looked up, glanced at the front counter, saw the guys behind the counter looking away while they dealt with another customer
+Still, they had some cool stuff that I wanted and—as I slowly rotated the display case—I noticed a gap in the clear plastic on the front of the display case. I felt the edges and played around with it with my tip finger and realized I could easily push up the clear plastic on the front of the display case. I looked up, glanced at the front counter, saw the guys behind the counter looking away while they dealt with another customer and decided to make my move: I quickly pushed the front of the display case up, grabbed a car and dropped it into my jacket pocket.
 
-
-
- so I quickly pushed the front of the display case up, grabbed a car and dropped it into my jacket pocket.
-
-My heart was racing at a mile a minute and my palms were sweaty, but I slowly walked towards the entrance to the store.
+My heart was racing at a mile a minute and my palms were sweaty, but I did it! Now I just had to leave the store. So I slowly walked towards the entrance to the store.
 
 “Hey!” the guy behind the counter shouted, “What do you want!” he added. I shrugged, walked out the front door and ran down the block.
 
