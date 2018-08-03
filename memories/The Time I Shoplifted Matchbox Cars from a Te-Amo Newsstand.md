@@ -11,7 +11,7 @@ So the newsstand that was near Brighton 6th Street was dubbed “the Te-Amo” b
 
 Around 1978, the store was still an old drug store at one point that then became a newsstand at some point in its history. I don’t recall who the original owner of the place was, but I recall them being Italian or Jewish and had thick rimmed glasses and were generally nice to kids. There was always some kind of nickel candy and generally and array of crap that would appeal to kids who went to nearby P.S. 253.
 
-And beyond the candy, comics, trading cards and other random crap they had for sale, they—at least in my humble opinion—had one of the best selection of Matchbox cars in the neighborhood.
+And beyond the candy, comics, trading cards, pranks, novelties and other random fun crap they had for sale, they—at least in my humble opinion—had one of the best selection of Matchbox cars in the neighborhood.
 
 ***
 
