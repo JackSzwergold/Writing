@@ -47,11 +47,11 @@ So we climbed up those stairs and soon enough were wandering on a weird kind of 
 
 “What are we doing?” I asked as Andrew and Marc stooped down and—like soldiers on a mission—peered into random open windows and terraces as we all walked around.
 
-“Let’s try this one?” Marc said as Andrew climbed over the terrace railing and slowly tried to slide open the screen door.
+“Let’s try this one?” Marc said as Andrew climbed over the terrace railing and slowly tried to slide open the aluminum screen door.
 
-“Why are you doing that?” I asked as the screen door cracked open, Marc joined Andrew and both laughed creepily as they looked at me and looked inside.
+“Why are you doing that?” I asked as the screen door slowly slid open. Marc joined Andrew and both quietly laughed as they looked at me and looked inside the apartment.
 
-“Come on in Jack. Don’t worry.” Andrew whispered as I slowly backed off, but veered to the side to look into the window they peered into.
+“Come on in Jack. Don’t worry.” Andrew whispered with a giggle as I slowly backed off, but veered to the side to look into the window they peered into.
 
 The window was open and the screen was down. A white curtain fluttered a bit in the sea shore breeze. All I could see was a woman sleeping on a bed, and the shadows of what I assume were Andrew and Marc coming down a hallway near the room.
 
