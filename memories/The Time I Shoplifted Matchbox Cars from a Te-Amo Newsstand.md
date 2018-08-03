@@ -15,6 +15,8 @@ And beyond the candy, comics, trading cards, pranks, novelties and other random 
 
 ***
 
+Matchbox cars was my thing as a kid. More than comics or anything else.
+
 For $1 and some change, Matchbox cars were a decent value for kids who wanted to collect cool and sturdy stuff.
 
 Unlike modern cars you just grab off of a rack, back then the way it worked was there would be a display of that years Matchbox cars and each had a number connected to them.
