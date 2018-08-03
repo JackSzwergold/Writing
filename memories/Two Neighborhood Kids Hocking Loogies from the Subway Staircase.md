@@ -39,11 +39,11 @@ As we stood near Beach Walk, Marc poked Andrew in the arm, and motioned towards 
 
 “Hey Jack! Let’s go there!” Andrew said as he pointed to the Brighton Towers.
 
-“What are we going to do there?” I asked and without hestiation, Andrew said, “Don’t worry. It will be fun.”
+“What are we going to do there?” I asked and without hestiation, Andrew said, “Don’t worry. It’ll be fun.”
 
 With that settled we all walked down that alley and up that fire escape staircase up one flight. The building and that staircase was weird as if it were built as a tiered wedding cake with one huge layer of a parking lot on the ground floor and two towers jutting out above it.
 
-So we climbed up those stairs and soon enough were wandering on a weird non-roof with terraces jutting out around each of the towers.
+So we climbed up those stairs and soon enough were wandering on a weird kind of lower-level roof with terraces jutting out around each of the towers. Accessing the terraces was ridiculously 
 
 “What are we doing?” I asked as Andrew and Marc stooped down and peered into open windows.
 
