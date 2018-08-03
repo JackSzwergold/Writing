@@ -33,7 +33,9 @@ Bored and idle—but still having some free time on our hands—we all tried to 
 
 “Let’s go to ‘Youth World’!” I said to which Marc and Andrew responded with a hesitant, “Okay…” so down the stairs we went.
 
-Once we were downstairs we all took a few steps until we hit the weird alley that was technically Brighton 1st Street, but literally Beach Walk or some nonsense like that.
+Once we were down the stairs and on the street below we took a few steps in front of supermarket until we hit that weird alley that was technically Brighton 1st Street, but was called Beach Walk or some nonsense like that. There was no car traffic but lots of asphalt overed walking space, with weeds growing out of the cracks and random pieces of garbage here and there. It wasn’t clean nor was it garbage strewn but it was like vacant lot that was formally defined as a street by someone at some point in NYC history and left as that.
+
+
 
 Marc poked Andrew in the arm, and motioned towards the Brighton Towers. They were a newish co-op building that seemed nicer than the tenements most of us grew up in, but were dumpy in their own way.
 
