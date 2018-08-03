@@ -35,7 +35,7 @@ I headed out and headed home; the place didn’t feel the same anymore to say th
 
 ***
 
-A week or so passed. I wasn’t consciously boycotting the Te-Amo, but subconsciouly I avoided it as much as possible after the last visit. But after a while my urge to window shop Matchbox cars was just too strong.
+A week or so passed. I wasn’t consciously boycotting the Te-Amo, but subconsciously I avoided it as much as possible after the last visit. But after a while my urge to window shop Matchbox cars was just too strong.
 
 It was a nice-ish weekend day, I had a few dollars of allowance money in my pocket and felt like treating myself to a brand new Matchbox car.
 
@@ -63,11 +63,11 @@ Me and my dad left the place and my dad said that they were acting crazy. “Why
 
 ***
 
-After that incident, I began to consciously and deliberately boycot the Te-Amo. If they were going to be jerks, I wouldn’t give them the pleasure of getting the 5 to 25 cents I might occassionally spend on them for candy and trading cards.
+After that incident, I began to consciously and deliberately boycott the Te-Amo. If they were going to be jerks, I wouldn’t give them the pleasure of getting the 5 to 25 cents I might occasionally spend on them for candy and trading cards.
 
 This lasted for a few week, but then one day I peeked in the front door and saw they had rearranged things a bit. They even had a new Matchbox car display case on a rotating carousel near the back and away from the front counter.
 
-Curious, I went in to investigate. The display case was nice, new and clean, but the cars were displayed in some kind of haphazard, thoughless way. I could tell some cars were in the wrong slots because their numbers didn’t match what I remembered as being their proper numbers in the collector’s catalog I had.
+Curious, I went in to investigate. The display case was nice, new and clean, but the cars were displayed in some kind of haphazard, thoughtless way. I could tell some cars were in the wrong slots because their numbers didn’t match what I remembered as being their proper numbers in the collector’s catalog I had.
 
 Still, they had some cool stuff that I wanted and—as I slowly rotated the display case—I noticed a gap in the clear plastic on the front of the display case. I felt the edges and played around with it with my tip finger and realized I could easily push up the clear plastic on the front of the display case. I looked up, glanced at the front counter, saw the guys behind the counter looking away while they dealt with another customer and decided to make my move: I quickly pushed the front of the display case up, grabbed a car and dropped it into my jacket pocket.
 
