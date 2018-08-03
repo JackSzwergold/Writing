@@ -1,5 +1,5 @@
 ## Two Neighborhood Kids Hocking Loogies from the Subway Staircase
-### About the Time I Spotted Two Sorta Friends Hocking Loogies from the Staircase of the Subway Station from My the Window of My Room 
+### About the Time I Spotted Two Kids I Knew in the Neighborhood Hocking Loogies from the Staircase of the Subway Station
 
 By Jack Szwergold
 
