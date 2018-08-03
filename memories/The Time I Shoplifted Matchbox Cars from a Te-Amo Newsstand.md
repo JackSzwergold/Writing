@@ -23,7 +23,7 @@ Unlike modern toys that you just impulsively grabbed off of a rack at a store, b
 
 If you wanted a specific car, you just had to look over the selection of cars in the display case, tell the guy behind the counter what number you wanted, handed over that dollar and change and et voila, you got a literal small matchbox-ish-sized box that had your car in it.
 
-I really liked buying Matchbox cars from this store since the guy was nice and always had a decent stock of Matchbox cars. And since it was around the corner from elementary school, I could window-shop each day when I headed home from school and would wait for Friday—and my allowance—to happen.
+I really liked buying Matchbox cars from this store since the owners were nice to kids and always had a decent stock of Matchbox cars. And since it was around the corner from P.S. 253, I could window shop each day when I headed home from school and would wait for the weekend—and my allowance—to happen to finally pull the trigger and blow a $1 or two on some Matchbox cars.
 
 ***
 
