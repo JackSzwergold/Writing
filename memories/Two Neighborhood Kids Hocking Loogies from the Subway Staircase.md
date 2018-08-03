@@ -33,13 +33,13 @@ Bored and idle—but still having some free time on our hands—we all tried to 
 
 “Let’s go to ‘Youth World’!” I said to which Marc and Andrew responded with a hesitant, “Okay…” so down the stairs we went.
 
-Once we were down the stairs and on the street below we took a few steps in front of supermarket until we hit that weird alley that was technically Brighton 1st Street, but was called Beach Walk or some nonsense like that. There was no car traffic but lots of asphalt overed walking space, with weeds growing out of the cracks and random pieces of garbage here and there. It wasn’t clean nor was it garbage strewn but it was like vacant lot that was formally defined as a street by someone at some point in NYC history and left as that.
+Once we were down the stairs and on the street below we took a few steps in front of supermarket until we hit that weird alley that was technically Brighton 1st Street, but was called Beach Walk or some nonsense like that. There was no car traffic but lots of asphalt covered walking space, with weeds growing out of the cracks and random pieces of garbage here and there. It wasn’t clean nor was it garbage strewn but it was like vacant lot that was formally defined as a street by someone at some point in NYC history and left as that.
 
-As we stood near Beach Walk, Marc poked Andrew in the arm, and motioned towards the Brighton Towers co-ops. The buildings were a newish pair of co-op buildings that seemed nicer than the tenements most of us grew up in, but were dumpy in their own mid-centrury modern kind of way. Accessing them from Beach Walk was a simple run up a fire escape staircase away.
+As we stood near Beach Walk, Marc poked Andrew in the arm, and motioned towards the Brighton Towers co-ops. The buildings were a newish pair of co-op buildings that seemed nicer than the tenements most of us grew up in, but were dumpy in their own mid-century modern kind of way. Accessing them from Beach Walk was a simple run up a fire escape staircase away.
 
 “Hey Jack! Let’s go there!” Andrew said as he pointed to the Brighton Towers.
 
-“What are we going to do there?” I asked and without hestiation, Andrew said, “Don’t worry. It’ll be fun.”
+“What are we going to do there?” I asked and without hesitation, Andrew said, “Don’t worry. It’ll be fun.”
 
 With that settled we all walked down that alley and up that fire escape staircase up one flight. The building and that staircase was weird as if it were built as a tiered wedding cake with one huge layer of a parking lot on the ground floor and two towers jutting out above it.
 
@@ -51,7 +51,7 @@ So we climbed up those stairs and soon enough were wandering on a weird kind of 
 
 “Why are you doing that?” I asked as the screen door slowly slid open. Marc joined Andrew and both quietly laughed as they looked at me and looked inside the apartment.
 
-“Come on in Jack… Don’t worry.” Andrew whispered with a muffled giggle as he stood inside the terrace entrance. I shook my head from left to right as if to say “No…” in that slow, subtle, subconscous way that you shake your head when you don’t realize you are saying “No…” and slowly backed away from the terrace.
+“Come on in Jack… Don’t worry.” Andrew whispered with a muffled giggle as he stood inside the terrace entrance. I shook my head from left to right as if to say “No…” in that slow, subtle, subconscious way that you shake your head when you don’t realize you are saying “No…” and slowly backed away from the terrace.
 
 As I backed away I veered to the side to take a peek into the window they just peered into.
 
