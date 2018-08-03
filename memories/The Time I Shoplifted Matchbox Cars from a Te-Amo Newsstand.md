@@ -27,11 +27,11 @@ I really liked buying Matchbox cars from this store since the owners were nice t
 
 ***
 
-One day when I was headed to school, I noticed something weird. The newspapers in front of the store weren’t exactly organized. They seemed kinda messy compared to what they once looked like. Quickly looking into the window of the store I didn’t see the original owners, but some new guys who looked Indian or Pakistani. Never mind, I had to head to school so I would investigate later on.
+One day when I was headed to school and walked by the Te-Amo, and noticed something weird. The newspapers and magazines outside in front of the store weren’t exactly as organized as they usually were. Ditto with some of the candy in the street facing display case. I took a quick peek inside the store and I didn’t see the original owners, but some new guys who looked Indian or Pakistani. What was happening? I was curious, but didn’t have time to investigate any further since I had to head to school.
 
-And later on when I headed into the store, it was clear they had new owners: Things inside were slightly messier than they were before and the guy behind the counter shouted “What do you want?” and “Buy something or leave!” to any kid that was meandering in the shop.
+Later on, after school let out, I headed into the store and it was pretty clear what happened: The store had new owners. The place wasn’t as well organized as it was a week or so back and the guys behind the counter were unfriendly and barked things like “What do you want?” and “Buy something or leave!” to any kid that wandered around the shop.
 
-I headed out and headed home; the place didn’t feel nice anymore.
+I headed out and headed home; the place didn’t feel the same anymore to say the least.
 
 ***
 
