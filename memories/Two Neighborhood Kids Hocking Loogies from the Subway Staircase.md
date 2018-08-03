@@ -21,9 +21,9 @@ So off I went down the stairs, outside the building, down the block and up the s
 
 ***
 
-They said “Hi” and then go back to the task at hand: Hocking loogies on the heads of people walking down the street below.
+I said “Hi!” and they said “Hi!” and then they git back to their task at hand: Hocking loogies on the heads of hapless victims walking down the street below.
 
-I looked over with them and watched as they carefully timed their spits, but I never participated in the whole thing. It all seemed disgusting and stupid.
+I looked over the rail with them and watched as they carefully timed their spits, but I never participated in the whole thing. It all seemed disgusting and stupid. But somehow I was there enabling them in my on small way.
 
 Soon enough one of them hit someone and you could hear them shout and threaten to “get us” so we ran through the train station onto the other side.
 
