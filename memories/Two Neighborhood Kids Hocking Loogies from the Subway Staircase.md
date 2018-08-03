@@ -51,11 +51,13 @@ So we climbed up those stairs and soon enough were wandering on a weird kind of 
 
 “Why are you doing that?” I asked as the screen door slowly slid open. Marc joined Andrew and both quietly laughed as they looked at me and looked inside the apartment.
 
-“Come on in Jack. Don’t worry.” Andrew whispered with a giggle he stood inside the terrace entrance. I shook my head from left to right as if to say “No…” in that slow and subtle way that you shake your head when you don’t even realize you are saying “No…” and slowly backed off away from the terrace. As I backed away I veered to the side to look into the window they too peered into.
+“Come on in Jack… Don’t worry.” Andrew whispered with a muffled giggle as he stood inside the terrace entrance. I shook my head from left to right as if to say “No…” in that slow, subtle, subconscous way that you shake your head when you don’t realize you are saying “No…” and slowly backed away from the terrace.
 
-The window was open and the screen was down. A white curtain fluttered a bit in the sea shore breeze. All I could see was a woman sleeping on a bed, and the shadows of what I assume were Andrew and Marc coming down a hallway near the room.
+As I backed away I veered to the side to take a peek into the window they just peered into.
 
-I backed away, and walked back towards the ladder, down onto the street and jaywalked in a sprint back to my home.
+The window was open and the screen was down. A white curtain fluttered a bit in the breeze. I couldn’t see much, but all I could see was a woman seemingly asleep on a bed, and the shadows of what I assume were Andrew and Marc coming down a hallway near the room.
+
+I backed away from the window, jogged down the fire escape staircase, ran down Beach Walk and jaywalked in a sprint across the street and to head back home.
 
 ***
 
