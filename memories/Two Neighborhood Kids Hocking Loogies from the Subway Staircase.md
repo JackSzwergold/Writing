@@ -45,9 +45,9 @@ With that settled we all walked down that alley and up that fire escape staircas
 
 So we climbed up those stairs and soon enough were wandering on a weird kind of lower-level roof with terraces jutting out around each of the towers. Accessing the lower level windows and terraces was ridiculously easy.
 
-“What are we doing?” I asked as Andrew and Marc stooped down and peered into open windows.
+“What are we doing?” I asked as Andrew and Marc stooped down and—like soldiers on a mission—peered into random open windows and terraces as we all walked around.
 
-“Let’s try this one?” Marc said as Andrew climbed over the terrace fence and slowly tried to slide open a screen door.
+“Let’s try this one?” Marc said as Andrew climbed over the terrace railing and slowly tried to slide open the screen door.
 
 “Why are you doing that?” I asked as the screen door cracked open, Marc joined Andrew and both laughed creepily as they looked at me and looked inside.
 
