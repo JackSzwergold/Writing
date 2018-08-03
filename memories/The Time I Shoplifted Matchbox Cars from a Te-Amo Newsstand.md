@@ -71,11 +71,11 @@ Curious, I went in to investigate. The display case was nice, new and clean, but
 
 Still, they had some cool stuff that I wanted and—as I slowly rotated the display case—I noticed a gap in the clear plastic on the front of the display case. I felt the edges and played around with it with my tip finger and realized I could easily push up the clear plastic on the front of the display case. I looked up, glanced at the front counter, saw the guys behind the counter looking away while they dealt with another customer and decided to make my move: I quickly pushed the front of the display case up, grabbed a car and dropped it into my jacket pocket.
 
-My heart was racing at a mile a minute and my palms were sweaty, but I did it! Now I just had to leave the store. So I slowly walked towards the entrance to the store.
+My heart was racing at a mile a minute and my palms were sweaty, but I did it! Now I just had to leave the store. So I slowly walked towards the entrance.
 
 “Hey!” the guy behind the counter shouted, “What do you want!” he added. I shrugged, walked out the front door and ran down the block.
 
-Once I crossed the street I looked behind me and started to calm down a bit when I didn’t see the store owner chasing me down the block.
+Once I crossed Brighton 5th street I looked behind me and started to calm down a bit when I didn’t see the store owner chasing me down the block.
 
 I walked a few more blocks and then pulled the car out of my pocket and looked it over a bit. I gotta admit I don’t remember exactly what model I snagged that day, but I was happy to snag it.
 
