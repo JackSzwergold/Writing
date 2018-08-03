@@ -3,11 +3,9 @@
 
 By Jack Szwergold
 
-**Quick Notes**: The place had new owners (Pakistani?) and were jerks. So I lifted up the plastic from a rotating display pulled out a car and put it in my pocket.
+We all called the store “the Te-Amo” but it was basically a junky—but beloved—neighborhood newsstand.
 
-***
-
-Te-Amo wasn’t the name of a store as much as it was the name of a brand of cheap Mexican cigars that as sold around various stores across New York City at the time. Part of their marketing in the city was to pay for new signs for newsstands with one stipulation: Their branding would be front and center.
+Te-Amo wasn’t the name of the store as much as it was the name of a brand of cheap Mexican cigars that as sold around various stores across New York City at the time. Part of their marketing in the city in the 1970s was to pay for new signs for newsstands with one stipulation: Their branding would be front and center.
 
 So the candy store that was near Brighton 6th Street was dubbed “the Te-Amo” because there wasn’t another one in the neighborhood at the time.
 
