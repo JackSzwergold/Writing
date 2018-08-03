@@ -37,7 +37,7 @@ I headed out and headed home; the place didn’t feel the same anymore to say th
 
 A week or so passed. I wasn’t consciously boycotting the Te-Amo, but subconsciouly I avoided it as much as possible after the last visit. But after a while my urge to window shop Matchbox cars was just too strong.
 
-It was a nice-ish fall day and I had a few dollars in my pocket of allowance money and felt like treaying myself and buying a Matchbox car.
+It was a nice-ish weekend day, I had a few dollars of allowance money in my pocket and felt like treating myself to a brand new Matchbox car.
 
 I looked over the selection and spotted car number 21: A Renault 5TL! I liked practical little cars like that so I asked the guy for car number 21.
 
