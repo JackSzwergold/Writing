@@ -47,7 +47,11 @@ It was in good shape and sitting just outside of the swung open wooden door of t
 
 So I calmed down, walked slowly towards the Big Wheel, got it by the handles, and barely peeked into the shack they all lived in. I saw the kids and I saw what looked like a sheet draped over a bed or couch. The second I grabbed the Big Wheel, the kids turned around and saw me and shouted “Hey!” so I stopped rolling it and picked it up by the front handles and started running back down the alley.
 
-I could still hear the kids shouting.
+I could still hear the kids shouting behind me, but was more worried about what was in front of me: That screaming old lady. Howie and his friend saw me and shouted at me, “Okay! Come on!” and all that.
+
+The old lady turned around to see me running down the driveway and just exclaimed, “Oh!” paused and then we knew what was coming next: A bucket full of water or whatever.
+
+I ran harder with the drug dealers kids behind me trying to catch up.
 
 ***
 
