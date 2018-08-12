@@ -11,6 +11,10 @@ It was another boring day and it was 1975 or 1976 and I was doing what I usually
 
 On this day I was playing in front of Speedway Drugs on Ocean Parkway, right next to my building. It was bright, sunny and the air was fresh with the smell of cut grass in front of my buiding thanks to Johnny and his hand mower.
 
+At some point I decided to go into Speedway Drugs to cool off and browse the toy rack.
+
+I walked inside and waved to Jack the pharmacist. I was really proud to have the same name as someone as important as the pharmacist at the local drug store.
+
 ***
 
 *The Time I Shoplifted from Speedway Drugs (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
