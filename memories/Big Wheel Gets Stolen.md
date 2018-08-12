@@ -45,7 +45,9 @@ I was 1/2 way down the alley in no time, and slowed down a bit. I could hear the
 
 It was in good shape and sitting just outside of the swung open wooden door of the shack or garage the guy lived in. While nobody saw me sneaking up, to get the Big Wheel I definitely need to run somewhere in front of that open door.
 
-So I calmed down, walked slowly towards the Big Wheel, got it by the handles, and barely peeked into the shack they all lived in. I saw the kids and I saw what looked like a sheet draped over a bed or couch.
+So I calmed down, walked slowly towards the Big Wheel, got it by the handles, and barely peeked into the shack they all lived in. I saw the kids and I saw what looked like a sheet draped over a bed or couch. The second I grabbed the Big Wheel, the kids turned around and saw me and shouted “Hey!” so I stopped rolling it and picked it up by the front handles and started running back down the alley.
+
+I could still hear the kids shouting.
 
 ***
 
