@@ -19,9 +19,11 @@ I walked up to the toy aisle and checked out the rack. They always had a decent 
 
 Now I wasn’t some kind of Civil War nut as a kid, but these figures looked cool. Unlike classic old green toy soldiers, these soldiers were made up multiple pieces of differently colored plastic. Some parts were flesh colored, others were navy blue or light grey with some parts dark green or dark brown. Damn, I wanted them! But they were like $2.99 per pack and I had nothing saved up in my allowance to cover that. And besides, if I got a set of Union soliders I would need to get another set of Confederate soldiers, right?
 
-So I walked back to the front of the store, looked over the selection in the vending machines and dejectedly walked back out into the afternoon sun.
+So I walked back to the front of the store, looked over the selection in the vending machines near the entrance and dejectedly walked back out into the afternoon sun.
 
+When I walked outside I saw some neighborhood kid. Honestly don’t remember who, but they asked me what I got from the store. I mean, if you went into a store it was to get something right?
 
+“Nothing,” I said.
 
 ***
 
