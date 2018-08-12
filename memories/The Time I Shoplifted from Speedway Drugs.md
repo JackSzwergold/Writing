@@ -79,7 +79,33 @@ Then my dad showed up and said he wanted to talk to me.
 
 “Where did you get those toys?” he said sternly. To which I said what I said before, “I got them from a friend?”
 
-He looked at me exasperatedly
+He looked at me exasperatedly and said we needed to go upstairs. So upstairs we went.
+
+***
+
+When we got upstairs he went into my room with me, and told me to take a few of the toys downstairs with me. He wasn’t exactly angry but he wasn’t exactly happy either.
+
+I took a few of the toys, and he said we needed to go downstairs. My mom shouted, “What’s happening?” and my dad responded to her in Yiddish or Polish as we walked out of the apartment.
+
+All the way downstairs my dad looked at me weirdly. “Where are we going?” I asked. “To Speedway,” he said. “We need to talk to Jack.” he added.
+
+Now I started to get it.
+
+***
+
+I should say something like the walk to the corner felt like an eternity or nonsense like that. It didn’t. It was actually a nice day and it was around dusk and the sky was nice and calm. The ocean breeze was definitely still hovering in the air.
+
+But then when I took my first steps inside of Speedway, I started to feel tense and a bit disoriented. My hands were definitely sweaty as I held onto my plastic Civil War soldiers.
+
+Jack was behind the counter and greeted my dad with a smile. But him—and some other woman behind the counter—soon put on a shameful scowl as they looked down on me.
+
+“Jack,” my dad said to me, “Show Jack the toys you have.”
+
+And nervously I pulled a few Civil War soldiers and related junk out of my pocket.
+
+“Yeah,” Jack the pharmacist said. “Those are the ones that he took,” he added.
+
+My dad then leaned down an
 
 ***
 
