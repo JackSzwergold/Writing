@@ -73,7 +73,13 @@ The next day I woke up and it was a seemingly normal day. My dad was up earlier 
 
 I played around with those Civil War figures some more when I started to get bored and decided I should just go outside and do something.
 
-So I ran downstairs, me up with some neighborhood kids and then played around
+So I ran downstairs, me up with some neighborhood kids and then played around for a while.
+
+Then my dad showed up and said he wanted to talk to me.
+
+“Where did you get those toys?” he said sternly. To which I said what I said before, “I got them from a friend?”
+
+He looked at me exasperatedly
 
 ***
 
