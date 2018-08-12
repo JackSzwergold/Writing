@@ -35,7 +35,25 @@ We then walked a bit down the side of Speedway and he pointed to the side door.
 
 I knew what he meant. But that was stealing and that was wrong so I asked, “But that’s stealing?” and he responded, “So what?” with a confident shrug.
 
-We were both kids and I guess this was my introduction to shoplifting.
+We were both kids and I guess this was my introduction to shoplifting. So I asked, “What if I get caught? I don’t want to get in trouble.
+
+“Don’t worry!” he said. “Let’s just go in,” he added.
+
+So with that we both walked into the store together.
+
+I was a little tense and my palms were sweaty, but he seemed cool.
+
+I walked up to the toy rack and showed him the Civil War figures. “They look cool!” he said. Then he moved around from one side of me to another and said, “You first.” I looked at him, looked at Jack behind the counter not looking at us and then looked at the toys.
+
+I pulled out the front of my shirt and shoved one pack of Civil War soliders under my shirt and tried to hold it inconspiculously as if it wasn’t there. he grabbed another set and did the same.
+
+We both then slowly walked to the side door. I opened it up, he followed. The afternoon sun hit as and as the door swung closed we ran down towards my building and lept over the small brick wall, down the slight alley where they made oil deliveries and into the building lobby.
+
+I pulled out the pack of soliders I had under my shirt and he pulled the pack he had and gave it to me.
+
+“Wow!” I said, “We did it!” I added. “See!” he said, “No problem!” he added.
+
+I gave him a high five and he went back outside to play with other kids. I felt like I owed him something, but he seemed like a pro at this kinda stuff so he just smiled and didn’t say much more or ask for anything. He was simply sharing some knowledge he had with me.
 
 ***
 
