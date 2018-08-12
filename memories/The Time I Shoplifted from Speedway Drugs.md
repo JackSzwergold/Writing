@@ -3,13 +3,9 @@
 
 By Jack Szwergold
 
-**Quick Notes**: It was two sets of Civil War rack toy figures. Shoved them under my shirt and snuck out the back door.
+It was another boring day and it was 1975 or 1976 and I was doing what I usually did: Play with neighborhood kids with occasional breaks to do something else.
 
-***
-
-It was another boring day and it was 1975 or 1976 and I was doing what I usually did: Play with neighborhood kids with occassional breaks to do something else.
-
-On this day I was playing in front of Speedway Drugs on Ocean Parkway, right next to my building. It was bright, sunny and the air was fresh with the smell of cut grass in front of my buiding thanks to Johnny and his hand mower.
+On this day I was playing in front of Speedway Drugs on Ocean Parkway, right next to my building. It was bright, sunny and the air was fresh with the smell of cut grass in front of my building thanks to Johnny and his hand mower.
 
 At some point I decided to go into Speedway Drugs to cool off and browse the toy rack.
 
@@ -17,7 +13,7 @@ I walked inside and waved to Jack the pharmacist. I was really proud to have the
 
 I walked up to the toy aisle and checked out the rack. They always had a decent selection of cheap stuff. And today, I spotted something right up my alley: Some Civil War toy soldiers. One pack of Union soldiers and another pack of Confederate soldiers.
 
-Now I wasn’t some kind of Civil War nut as a kid, but these figures looked cool. Unlike classic old green toy soldiers, these soldiers were made up multiple pieces of differently colored plastic. Some parts were flesh colored, others were navy blue or light grey with some parts dark green or dark brown. Damn, I wanted them! But they were like $2.99 per pack and I had nothing saved up in my allowance to cover that. And besides, if I got a set of Union soliders I would need to get another set of Confederate soldiers, right?
+Now I wasn’t some kind of Civil War nut as a kid, but these figures looked cool. Unlike classic old green toy soldiers, these soldiers were made up multiple pieces of differently colored plastic. Some parts were flesh colored, others were navy blue or light grey with some parts dark green or dark brown. Damn, I wanted them! But they were like $2.99 per pack and I had nothing saved up in my allowance to cover that. And besides, if I got a set of Union soldiers I would need to get another set of Confederate soldiers, right?
 
 So I walked back to the front of the store, looked over the selection in the vending machines near the entrance and dejectedly walked back out into the afternoon sun.
 
@@ -45,11 +41,11 @@ I was a little tense and my palms were sweaty, but he seemed cool.
 
 I walked up to the toy rack and showed him the Civil War figures. “They look cool!” he said. Then he moved around from one side of me to another and said, “You first.” I looked at him, looked at Jack behind the counter not looking at us and then looked at the toys.
 
-I pulled out the front of my shirt and shoved one pack of Civil War soliders under my shirt and tried to hold it inconspiculously as if it wasn’t there. he grabbed another set and did the same.
+I pulled out the front of my shirt and shoved one pack of Civil War soldiers under my shirt and tried to hold it inconspicuously as if it wasn’t there. he grabbed another set and did the same.
 
-We both then slowly walked to the side door. I opened it up, he followed. The afternoon sun hit as and as the door swung closed we ran down towards my building and lept over the small brick wall, down the slight alley where they made oil deliveries and into the building lobby.
+We both then slowly walked to the side door. I opened it up, he followed. The afternoon sun hit as and as the door swung closed we ran down towards my building and leapt over the small brick wall, down the slight alley where they made oil deliveries and into the building lobby.
 
-I pulled out the pack of soliders I had under my shirt and he pulled the pack he had and gave it to me.
+I pulled out the pack of soldiers I had under my shirt and he pulled the pack he had and gave it to me.
 
 “Wow!” I said, “We did it!” I added. “See!” he said, “No problem!” he added.
 
@@ -63,7 +59,7 @@ He looked at me and accepted what I said at face value but was clearly not that 
 
 I headed into my room, opened up the packages and played with them. They weren’t the greatest toys in the world, but they were really cool to look at. Before you knew it I had some Civil War action happening on my floor.
 
-Later that evening, my dad came into my room to give me dinner and asked again, “Friends gave those to you?” he asked. And I said, “I traded for them.” And he again accepted what I said but seemed sceptical.
+Later that evening, my dad came into my room to give me dinner and asked again, “Friends gave those to you?” he asked. And I said, “I traded for them.” And he again accepted what I said but seemed skeptical.
 
 I stood up to eat but also put the soldiers out on my desk and put them on display with some of the other stuff I had on my desk.
 
@@ -105,17 +101,7 @@ And nervously I pulled a few Civil War soldiers and related junk out of my pocke
 
 “Yeah,” Jack the pharmacist said. “Those are the ones that he took,” he added.
 
-My dad then leaned down and looked me in the face and said with a thick English accent, “Why did you do this?”
-
-I looked at him and felt like crying, but didn’t and just said, “I don’t know.”
-
-He looked at me and said, “Don’t do this again, right?” And I silently nodded and said, “Okay…” as he stood up and asked Jack the pharmacist how much he owed him.
-
-Jack said something like, “No… Don’t worry…” but my dad insisted that he take some money so I saw a few dollar bills pass from my dads hands to the counter.
-
-Jack the pharmacist nodded at me and said, “Don’t steal!” and I nodded in agreement. And soon enough my dad and I were outside on the street walking back home.
-
-My dad stayed downstairs to gossip with some of the other guys just standing around out there, but I headed back upstairs to play around with the Civil War soldiers on my desk some more before heading to sleep.
+“My dad then leaned down an
 
 ***
 
