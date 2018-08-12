@@ -33,7 +33,19 @@ The front yard was overgrown but oddly beautiful. Lots of lilacs and other flowe
 
 Howie and I approached it carefully. The old lady’s corner window was opened up, but nowhere to be seen. Still, she was a risk to us kids. So we had to devise a plan.
 
-A friend of Howie’s showed up as we were thinking up a plan.
+A friend of Howie’s showed up as we were thinking up a plan. “What are you doing?” he asked. And we explained. After a while I devised the brilliant plan: The drug dealer and his kids lived in a shack or garage behind the house. One of us would have to run down the driveway, head to their shack, grab the Big Wheel and run back out.
+
+“I’ll stay out here,” said Howie. And his friend agreed. So I guess I was the one who was going to run down the driveway.
+
+“Well, you have to distract her from me when I run down there,” I said. And they nodded yeah, as they looked up. Suddenly the old lady appeared in the window and shouted “What are you doing?!?” as she looked at us.
+
+I shrugged, and just darted down the driveway. She noticed thi and paniced and shouted “What!” as Howie and his friend tried to distract them from me.
+
+I was 1/2 way down the alley in no time, and slowed down a bit. I could hear the old lady and Howie and his friend shout and scream behind me. I slowly approached the end of the driveway near the back of the house. And that’s when I saw it. The Big Wheel itself.
+
+It was in good shape and sitting just outside of the swung open wooden door of the shack or garage the guy lived in. While nobody saw me sneaking up, to get the Big Wheel I definitely need to run somewhere in front of that open door.
+
+So I calmed down, walked slowly towards the Big Wheel, got it by the handles, and barely peeked into the shack they all lived in. I saw the kids and I saw what looked like a sheet draped over a bed or couch.
 
 ***
 
