@@ -3,10 +3,6 @@
 
 By Jack Szwergold
 
-**Quick Notes**: About the time my Big Wheel was stolen when I was 11 years old by the twos kids of a neighborhood drug dealer and how I stole it back. They lived in a shack behind the house the old lady with overgrown lilacs lived in.
-
-***
-
 I was 10 or 11. Whatever the age, I was too old to ride my Big Wheel, but I still did.
 
 Yeah, I might have caught myself in the reflection of the windows of Speedway drugs as I scooted around and looked slightly ridiculous, but I didn’t care. I liked riding my Big Wheel.
@@ -51,7 +47,13 @@ I could still hear the kids shouting behind me, but was more worried about what 
 
 The old lady turned around to see me running down the driveway and just exclaimed, “Oh!” paused and then we knew what was coming next: A bucket full of water or whatever.
 
-I ran harder with the drug dealers kids behind me trying to catch up.
+I ran harder with the drug dealers kids behind me trying to catch up. Just as I got past the area just beneath the old lady’s window, I could here the sound of a bucket being dumped. But it missed me.
+
+It crashed on the ground in the alley and stopped the drug dealer’s kids in their tracks. Once I got to the sidewalk, I high fived Howie and his friend and we all started to make a beeline down the block. By then a few older people and adults came around to see what was happening.
+
+I got onto the Big Wheel and pedalled it back to my building. I waved back to Howie and his friend as I passed their building and headed back to my building deeper down the block.
+
+My dad was in front of the building sitting in a folding chair and asked, “What happened?” and I looked at him and said “Nothing!” as I got off of the Big Wheel, rolled it to the lobby of the building and got my mom to buzz me in.
 
 ***
 
