@@ -55,6 +55,26 @@ I pulled out the pack of soliders I had under my shirt and he pulled the pack he
 
 I gave him a high five and he went back outside to play with other kids. I felt like I owed him something, but he seemed like a pro at this kinda stuff so he just smiled and didn’t say much more or ask for anything. He was simply sharing some knowledge he had with me.
 
+I buzzed the buzzer and my dad let me in. I completely forgot that I had the packs of toys in my hand as I went through the front door.
+
+“What are those?” my dad asked. “Where did you get them?” he added. I stood their and paused for a second and said, “I got them from some friends,” I said. “I traded some stuff for them,” I added.
+
+He looked at me and accepted what I said at face value but was clearly not that convinced. But he didn’t take them away from me.
+
+I headed into my room, opened up the packages and played with them. They weren’t the greatest toys in the world, but they were really cool to look at. Before you knew it I had some Civil War action happening on my floor.
+
+Later that evening, my dad came into my room to give me dinner and asked again, “Friends gave those to you?” he asked. And I said, “I traded for them.” And he again accepted what I said but seemed sceptical.
+
+I stood up to eat but also put the soldiers out on my desk and put them on display with some of the other stuff I had on my desk.
+
+***
+
+The next day I woke up and it was a seemingly normal day. My dad was up earlier than me and was out shopping and I was putzing around my room.
+
+I played around with those Civil War figures some more when I started to get bored and decided I should just go outside and do something.
+
+So I ran downstairs, me up with some neighborhood kids and then played around
+
 ***
 
 *The Time I Shoplifted from Speedway Drugs (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
