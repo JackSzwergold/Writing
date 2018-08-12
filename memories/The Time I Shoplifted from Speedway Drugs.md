@@ -23,7 +23,19 @@ So I walked back to the front of the store, looked over the selection in the ven
 
 When I walked outside I saw some neighborhood kid. Honestly don’t remember who, but they asked me what I got from the store. I mean, if you went into a store it was to get something right?
 
-“Nothing,” I said.
+“Nothing,” I said. “Why?” the kid asked. “I don’t have enough money,” I said. “So what?” he responded.
+
+We then walked a bit down the side of Speedway and he pointed to the side door.
+
+“So what?” I said.
+
+“You never went in to the store that way?” he asked and I shook my head “No…”
+
+“Look, you can go into the store in the front and then shove stuff under your shirt and leave that way,” he said looking at me with this “You know what I mean?” look on his face.
+
+I knew what he meant. But that was stealing and that was wrong so I asked, “But that’s stealing?” and he responded, “So what?” with a confident shrug.
+
+We were both kids and I guess this was my introduction to shoplifting.
 
 ***
 
