@@ -19,6 +19,22 @@ So I got up, one of them got on to pedal it and the other stood up right behind 
 
 “Don’t worry!” their dad said, “They’ll bring it back.” So I walked back to the front of my building and played around with whatever kids were around.
 
+After about an hour or so the sun was setting and the church bells were ringing and I was getting concerned. I walked down the block to see if I could see anything from their alley.
+
+Then I ran into Howie and told him what happened. “Sounds like they stole it,” he said. Which I began to accept as the truth. At least the truth that existed in my 10 year old head at the time.
+
+“So what can I do?” I asked Howie. He shrugged and didn’t know and neither did I. So I suggested we just walk to the house where their driveway was and then think it out.
+
+The house was odd and somewhat “Haunted” but cool in that semi-abandoned sorta way. I know one half of the house—the right side—was either owned by or rented out to some Orthodox Jewish family because occassionally my mom would go there and I would tag along. The kids always looked pasty skinned and would react weirdly to some of the toys and things I would talk about.
+
+The other side of the house was the weirder place.
+
+The front yard was overgrown but oddly beautiful. Lots of lilacs and other flowers. You’d always hear sparrows chirping or see bees buzzing around the yard on any spring day. But all we knew about who owned it was that there was some old lady on the top floor who would flip out and start cursing gibberish if kids played near the driveway facing her windows. And if her crazy babbling old lady nonsense didn’t scare the kids away, she always seemed to have a bucket of water—at least I hope it was water—ready to toss on the kids to get the to leave the driveway.
+
+Howie and I approached it carefully. The old lady’s corner window was opened up, but nowhere to be seen. Still, she was a risk to us kids. So we had to devise a plan.
+
+A friend of Howie’s showed up as we were thinking up a plan.
+
 ***
 
 *Big Wheel Gets Stolen (c) Copyright by Jack Szwergold; written on July 21, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
