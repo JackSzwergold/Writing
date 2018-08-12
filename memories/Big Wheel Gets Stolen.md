@@ -11,7 +11,7 @@ One weekend, I rode it around to the corner of Ocean Parkway and Brighton Beach 
 
 Anyway, his two kids saw me on my Big Wheel and cornered me. They wanted to ride it. At first I said “No…” but after a while I caved in and said yes. They were both smaller and younger than me so I don’t feel so bad.
 
-So I got up, one of them got on to pedal it and the other stood up right behind him on the seat and they rode all the way down the block. Past my building, and other other buidings and down to where the private homes were and then down the driveway.
+So I got up, one of them got on to pedal it and the other stood up right behind him on the seat and they rode all the way down the block. Past my building, and other other buildings and down to where the private homes were and then down the driveway.
 
 “Don’t worry!” their dad said, “They’ll bring it back.” So I walked back to the front of my building and played around with whatever kids were around.
 
@@ -21,7 +21,7 @@ Then I ran into Howie and told him what happened. “Sounds like they stole it,�
 
 “So what can I do?” I asked Howie. He shrugged and didn’t know and neither did I. So I suggested we just walk to the house where their driveway was and then think it out.
 
-The house was odd and somewhat “Haunted” but cool in that semi-abandoned sorta way. I know one half of the house—the right side—was either owned by or rented out to some Orthodox Jewish family because occassionally my mom would go there and I would tag along. The kids always looked pasty skinned and would react weirdly to some of the toys and things I would talk about.
+The house was odd and somewhat “Haunted” but cool in that semi-abandoned sorta way. I know one half of the house—the right side—was either owned by or rented out to some Orthodox Jewish family because occasionally my mom would go there and I would tag along. The kids always looked pasty skinned and would react weirdly to some of the toys and things I would talk about.
 
 The other side of the house was the weirder place.
 
@@ -35,7 +35,7 @@ A friend of Howie’s showed up as we were thinking up a plan. “What are you d
 
 “Well, you have to distract her from me when I run down there,” I said. And they nodded yeah, as they looked up. Suddenly the old lady appeared in the window and shouted “What are you doing?!?” as she looked at us.
 
-I shrugged, and just darted down the driveway. She noticed thi and paniced and shouted “What!” as Howie and his friend tried to distract them from me.
+I shrugged, and just darted down the driveway. She noticed this and panicked and shouted “What!” as Howie and his friend tried to distract them from me.
 
 I was 1/2 way down the alley in no time, and slowed down a bit. I could hear the old lady and Howie and his friend shout and scream behind me. I slowly approached the end of the driveway near the back of the house. And that’s when I saw it. The Big Wheel itself.
 
@@ -51,7 +51,7 @@ I ran harder with the drug dealers kids behind me trying to catch up. Just as I 
 
 It crashed on the ground in the alley and stopped the drug dealer’s kids in their tracks. Once I got to the sidewalk, I high fived Howie and his friend and we all started to make a beeline down the block. By then a few older people and adults came around to see what was happening.
 
-I got onto the Big Wheel and pedalled it back to my building. I waved back to Howie and his friend as I passed their building and headed back to my building deeper down the block.
+I got onto the Big Wheel and pedaled it back to my building. I waved back to Howie and his friend as I passed their building and headed back to my building deeper down the block.
 
 My dad was in front of the building sitting in a folding chair and asked, “What happened?” and I looked at him and said “Nothing!” as I got off of the Big Wheel, rolled it to the lobby of the building and got my mom to buzz me in.
 
