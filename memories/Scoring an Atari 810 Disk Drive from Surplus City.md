@@ -2,10 +2,6 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: The store was called “Surplus City” and it was basically a huge junk store. They would buy damaged and unsold items from department stores, pile it up in their shop and just sell it. One day while goofing around with neighborhood friends, I spotted the distinctly beige case of an Atari 810 disk drive in the window. Smashed unceremoniously among the schmatas and detritus that made up the store. I found out it was for sale for $25 which was a huge bargain since it sold new for around $300 at the time. I ran home to tell my dad. He went back to the store with me. We bought it, but it was missing the data cable and power cable so I learned how to look through the phone book and call up places to get the parts I needed.
-
-***
-
 I was 13 or 14 and had an Atari 400 I got for my bar mitzvah. It was a mixed bag of a gift if I ever got one. While I liked the fact that I could play video games on it, the gift—which was ostensibly from the “whole family” but in reality from my brother and his wife at time—was loaded with expectations. Instead of playing games all day, my brother and his wife expected me to be an instantaneous programming genius who wrote video games instead of mindlessly playing them.
 
 I was 13 or 14 and all I wanted to do was play video games. But they cost too much and—besides—owning a computer like this in the early 1980s was a “rich kid” thing. And my family was far from rich.
@@ -56,7 +52,7 @@ I headed back home and told my dad about the disk drive. His response was “Twe
 
 The sun was setting but the shop was only about 4 blocks away.
 
-I went into the store with my dad, the woman behind the counter recognized me and then pulled then Atari 810 disk drive out. “See!” I said as he looked it over. After a while he said, “Okay, good. We’ll take it.” And with that my dad handed over the $25, the woman placed the bare disk drive into a used, non-descript shopping bag and we headed back home.
+I went into the store with my dad, the woman behind the counter recognized me and then pulled then Atari 810 disk drive out. “See!” I said as he looked it over. After a while he said, “Okay, good. We’ll take it.” And with that my dad handed over the $25, the woman placed the bare disk drive into a used, nondescript shopping bag and we headed back home.
 
 When we got home, my dad handed me the bag and I took the disk drive out. Yup! It was an Atari 810 disk drive. And it looked clean and good. But without a power supply or data cable, there was no way I could test it out.
 
@@ -70,7 +66,7 @@ I generally never called my brother directly and only really talked to him on th
 
 When my dad grabbed the handset I looked for a copy of the yellow pages and brought it to my room.
 
-I flipped through top the electronics section, then the computer section and started to look through the listings. I was looking for some kind of official Atari repair place and soon I found one: They were located on the Upper West Side—which was another planet compared to the ass end of Brooklyn I lived in—butv they seemed legit.
+I flipped through top the electronics section, then the computer section and started to look through the listings. I was looking for some kind of official Atari repair place and soon I found one: They were located on the Upper West Side—which was another planet compared to the ass end of Brooklyn I lived in—but they seemed legit.
 
 I wrote down their phone number and address and showed it to my dad after he got off the phone with my brother.
 
@@ -102,7 +98,23 @@ I had a diskette a friend let me borrow, so all I had to do was hook the thing u
 
 Yeah, a Jewish mother was proud of her Jewish son getting something at a deep discount. But who cared? It was a bargain and it worked great!
 
-Then the phone rang. It bwas my brother doing his weekly check in.
+Then the phone rang. It was my brother doing his weekly check in.
+
+My dad briefly mentioned that the Atari disk drive worked and then passed the phone onto me.
+
+“So it works?” my brother asked and I replied, “Yes! It works!” 
+
+He then grilled me on how I got a cable and power supply and I explained how I found a store.
+
+His voice was noticeably angry when I mentioned the power supply and he said, “You don’t need an Atari power supply! You can use any kind of power supply!”
+
+As he shouted at me I was at a loss. This was the same person who refused to help me initially when I asked him to and now he’s yelling at me because I bought an official Atari part?
+
+“It works,” I replied. Then there was a pregnant pause and he asked to be passed back to my dad and I did.
+
+While my dad talked to my brother on the phone, I went back to my room and played around with Atari DOS. Sure it was a boring system utility, but I needed to learn how to use it if I was going to use that disk drive to load and copy games.
+
+My family might have been poor, but at least we were resourceful and knew how to best use what little we had and whatever we scavenged from whatever junk store or pile of garbage we gleaned stuff from.
 
 ***
 
