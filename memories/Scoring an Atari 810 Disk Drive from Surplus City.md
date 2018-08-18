@@ -70,7 +70,17 @@ I generally never called my brother directly and only really talked to him on th
 
 When my dad grabbed the handset I looked for a copy of the yellow pages and brought it to my room.
 
-I 
+I flipped through top the electronics section, then the computer section and started to look through the listings. I was looking for some kind of official Atari repair place and soon I found one: They were located on the Upper West Side—which was another planet compared to the ass end of Brooklyn I lived in—butv they seemed legit.
+
+I wrote down their phone number and address and showed it to my dad after he got off the phone with my brother.
+
+“I think they have the parts we need,” I explained. And my dad nodded and said it was too late to call them up. So I would call them the next day.
+
+***
+
+The next day I called them up and was clearly on the phone with someone who thought it was a joke or something that some young kid was calling him up asking about an Atari 810 disk drive cable.
+
+“Sure we have that. Power supply too,” the guy said, “So what are your hours I asked?” and with that I made note of the hours, cost and everything and shared it with my dad.
 
 ***
 
