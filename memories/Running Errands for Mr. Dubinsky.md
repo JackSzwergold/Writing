@@ -24,6 +24,10 @@ Anyway, one day I was playing around in my room when my dad came in from outside
 
 I’d walk over to Speedway Drugs on the corner, meander around the toy and candy section, eventually find where those small brown bottles of hydrogen peroxide were, bring it up to the counter, pay for it and take the change and then head back into the building.
 
+I’d buzz Mr. Dubinsky’s buzzer and he would shout “Who is it!” and I’d say “It’s Jack. I have your stuff.” Sometimes I would have to say that a few times and even shout it out. But eventually he would buzz me in and I would head upstairs.
+
+He lived on the third floor—one flight up from my family’s place—in an apartmet that faced Ocean Parkway.
+
 ***
 
 *Running Errands for Mr. Dubinsky (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
