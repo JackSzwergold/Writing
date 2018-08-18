@@ -18,7 +18,17 @@ When Lauren finally found some pictures in her copy of *Teen Beat* she leaned ov
 
 The pictures sucked by 9 year old boy standards. They were basically the same crappy black and white promo shots of Mark Hamill, Harrison Ford and Carrie Fisher you saw everywhere. A few shots were casual shots of them just walking around Hollywood or wherever, but they were just boring.
 
+“So what,” I said dismissively as I passed the copy of *Teen Beat* back to Lauren. “Those are boring,” my friend added.
 
+Lauren took back her copy of *Teen Beat* and started to flip trough it again.
+
+Lori stopped eating her peanut butter and jelly sandwich and simply said, “Well, what you have to show us?”
+
+I looked at my friend and we both shrugged. I rifled through my jacket pockets but didn’t have much to show past maybe a few coins, a *Star Wars* card or two and maybe a Matchbox car.
+
+I took them out and showed them to Lori and Lauren and then just rolled their eyes.
+
+Then my friend says, “Hey! Do you want to see our pepes.” And by “pepe” he meant
 
 ***
 
