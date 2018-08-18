@@ -34,7 +34,9 @@ I’d give him the paper bag that had the hydrogen peroxide and the change. He w
 
 While Mr. Dubinsky didn’t have much in his apartment, I was blown away by his view. The apartment was facing Ocean Parkway and the windows faced the west so the place was always sun drenched.
 
-I’d run a few errands over the next few months on an off for Mr. Dubinsky, but eventually they stopped.
+I’d run a few errands over the next few months on an off for Mr. Dubinsky, but eventually they stopped. I didn’t know what happened, but months later my dad mentioned in passing that Mr. Dubinsky had died.
+
+No great fanfare or sadness. He was just dead and his apartment was rented out to someone else.
 
 ***
 
