@@ -36,6 +36,18 @@ Lori and Lauren looked at each other and then looked at us and simply asked, “
 
 I took that thumb to mean “Thumbs up! All cool!” so with that we both unzipped the zipper on our pants.
 
+“Look under the table!” he said to them.
+
+And with that, I pulled my 9 year old “pepe” out of my pants and held it there for Lori and Lauren to check out.
+
+The both leaned under the table to see what they could see. I leaned back a bit to see what was happening and then saw it: While I had my actual “pepe” out, my friend just shoved his hand down his jeans and shoved his thumb through the zipper.
+
+“You’re cheating!” I whispered and then he looked at me, gasped and said, “Why are you really showing it?!?!”
+
+We both leaned forward again as Lori and Lauren both pulled their heads out from under the table, stood up straight and looked at us… Both red faced and giggling.
+
+They didn’t say much about the difference between me and my friend either showing off a thumb versus the “real thing” but Lori was red faced and smiling at me for the rest of the lunch period as she finished off that beloved peanut butter and jelly sandwich of hers.
+
 ***
 
 *The First Time Any Gal Saw My Junk (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
