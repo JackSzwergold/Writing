@@ -6,13 +6,13 @@ By Jack Szwergold
 
 ***
 
-I was 13 or 14 and had an Atari 400 I got for my bar mitzvah. It was a mixed bag of a gift if I ever got one. While I liked the fact that I could play video games on it, the gift—which was ostensibly from the “whole family” but in reality from my brother and his wife at time—was loaded with expectations. Instead of playing games all day, my brother and his wife expected me to be an instaneous programming genius who wrote video games instead of mindlessly playing them.
+I was 13 or 14 and had an Atari 400 I got for my bar mitzvah. It was a mixed bag of a gift if I ever got one. While I liked the fact that I could play video games on it, the gift—which was ostensibly from the “whole family” but in reality from my brother and his wife at time—was loaded with expectations. Instead of playing games all day, my brother and his wife expected me to be an instantaneous programming genius who wrote video games instead of mindlessly playing them.
 
 I was 13 or 14 and all I wanted to do was play video games. But they cost too much and—besides—owning a computer like this in the early 1980s was a “rich kid” thing. And my family was far from rich.
 
 So I learned how to pirate games instead.
 
-Since I only had a Atari 410 cassette tape drive at the time, pirating was easy-ish. I figured out how to connect two portable radios with cassette decks with an improvised 3.5mm headphon jack dubbing cable made from the leftover cables of two busted 3.5mm stereo headphones.
+Since I only had a Atari 410 cassette tape drive at the time, pirating was easy-ish. I figured out how to connect two portable radios with cassette decks with an improvised 3.5mm headphone jack dubbing cable made from the leftover cables of two busted 3.5mm stereo headphones.
 
 While the cable was electrically crap and literally held together with cheap scotch tape and not much else. But if someone I knew had a cool Atari game on a cassette tape, all I needed was a blank tape, that cable and two cassette recorders and some time to dub myself a copy.
 
@@ -28,7 +28,9 @@ My $2 a week allowance was good for small kid things, but even if I didn’t spe
 
 So I was resigned to my life of being stuck with data cassettes for the glorified video game system my Atari 400 became.
 
-*** 
+***
+
+ 
 
 ***
 
