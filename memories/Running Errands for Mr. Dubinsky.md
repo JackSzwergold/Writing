@@ -12,7 +12,11 @@ Errands basically consisted of the predictable: A loaf of bread here, a containe
 
 Occasionally, though I would run errands for an old man in the building named Mr. Dubinsky. He kinda looked like my dad, but was clearly older than him. My dad—who had me when he was older—was in his 50s and I am pretty sure Mr. Dubinsky was in his late 60s when I was a kid.
 
-I didn’t know much about Mr. Dubinsky other than I always saw him hanging out in front of the building wearing a darkish raincoat or overcoat or something like that.
+I didn’t know much about Mr. Dubinsky other than I always saw him hanging out in front of the building wearing a darkish raincoat or overcoat or something like that. Seemed like a decent guy. Can’t say much past that.
+
+Occassionally at home, my dad would volunteer some trivial facts about Mr. Dubinsky seemingly out of nowhere. I don’t remember much other than Mr. Dubinsky was a war veteran of some kind. Maybe in the Polish army or some other Eastern European armed force… Definitely not the U.S. army.
+
+Anyway, one day I was playing around in my room when my dad came in from outside and asked me if I wanted to go and run an errand for Mr. Dubinsky.
 
 ***
 
