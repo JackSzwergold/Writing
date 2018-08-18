@@ -30,7 +30,7 @@ I took them out and showed them to Lori and Lauren and then just rolled their ey
 
 Then my friend says, “Hey! Do you want to see our pepes.” And by “pepe” he meant “pipi” which all us kids knew to be a reference to the penis.
 
-Lori and Lauren looked at each other and then looked at us and simply asked, “Where?” Lori began eating her peanut butter and jelly sandwich again awating our response.
+Lori and Lauren looked at each other and then looked at us and simply asked, “Where?” Lori began eating her peanut butter and jelly sandwich again awaiting our response.
 
 “Here!” my friend said as he looked at me and shook his thumb at me under the table while he looked at me.
 
