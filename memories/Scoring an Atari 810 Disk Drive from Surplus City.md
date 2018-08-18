@@ -82,6 +82,28 @@ The next day I called them up and was clearly on the phone with someone who thou
 
 “Sure we have that. Power supply too,” the guy said, “So what are your hours I asked?” and with that I made note of the hours, cost and everything and shared it with my dad.
 
+“Okay, next weekend. Good?” he said and I agreed.
+
+The next weekend my dad had already figured out what train we needed to take. I am pretty sure we needed to get to 72nd Street on the Upper West Side and my dad had already mapped it out.
+
+So we headed out there, got of the train and headed to some tree-lined block filled with old buildings. When we got to the place, it wasn’t a regular storefront but rather one of those basement stores that just had some tin sign hanging out front.
+
+I went downstairs with my dad and headed to the counter. Seemed like the place was a service and repair shop so it made sense they were in this basement space. The guy behind the counter was a bit stunned when he realized I was the kid that called up a week earlier, but was happy to oblige.
+
+He pulled out what looked to be a clean and solid homemade Atari disk drive cable and an official Atari disk drive AC adapter, wrote out a receipt, my dad paid for it and we headed outside and back home.
+
+***
+
+I had a diskette a friend let me borrow, so all I had to do was hook the thing up to the Atari 400 and see if it worked. And lo and behold, it booted! It worked! I was so excited and happy!
+
+“It works?” my dad said. “Yes!” I shouted; happy and excited. My mom waddled over to my room to see what was happening and my dad explained it to her.
+
+“This was cheap, right?” she asked to which I replied, “Yes, it was!” And I pulled out some catalog or newspaper ad to show her the retail price for it. “$299 and you pay $25? Very good!” she said kissing me on my head.
+
+Yeah, a Jewish mother was proud of her Jewish son getting something at a deep discount. But who cared? It was a bargain and it worked great!
+
+Then the phone rang. It bwas my brother doing his weekly check in.
+
 ***
 
 *Scoring an Atari 810 Disk Drive from Surplus City (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
