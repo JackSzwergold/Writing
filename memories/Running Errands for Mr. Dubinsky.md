@@ -26,7 +26,15 @@ I’d walk over to Speedway Drugs on the corner, meander around the toy and cand
 
 I’d buzz Mr. Dubinsky’s buzzer and he would shout “Who is it!” and I’d say “It’s Jack. I have your stuff.” Sometimes I would have to say that a few times and even shout it out. But eventually he would buzz me in and I would head upstairs.
 
-He lived on the third floor—one flight up from my family’s place—in an apartmet that faced Ocean Parkway.
+He lived on the third floor—one flight up from my family’s place—in an apartmet that faced Ocean Parkway. Once I got to his hallway you could even see the light from the peephole flicker as he looked down to the hallway to see if it was me.
+
+Then when I got to the door, he’d open up the door, and let me into his apartment.
+
+The apartment was sparse and barely furnished. A few pots, pans plates in the kitchen near the doorway, a few token pictures on the wall and maybe one dresser, one bed and a few chairs. From my recollections, pretty much all of what he owned could probably shoved into one medium sized suitcase. Clearly nobody else lived with him.
+
+I’d give him the paper bag that had the hydrogen peroxide and the change. He would look over the contents of the bag, the receipt inside and count the change and then give me back the bulk of the change.
+
+“Thank you,” he would say with a thick European accent has he handed me a small pile of coins.
 
 ***
 
