@@ -2,10 +2,6 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: Before I got a “real” job I ran errands for an old man in the building. He was a war veteran, lived alone and would give me $1 to buy hydrogen peroxide. Let me keep the change. His apartment was drenched in sunlight.
-
-***
-
 I was maybe 8 or 9. I didn’t necessarily want or need a job—my $2 a week allowance worked well for my needs at the time—but my dad would get me to run errands and let me keep some of the change every now and then.
 
 Errands basically consisted of the predictable: A loaf of bread here, a container of milk there… Maybe a newspaper? Who knew. It was sporadic and mainly consisted of getting odds and ends when my parents were too tired or lazy to get them themselves.
@@ -30,11 +26,15 @@ He lived on the third floor—one flight up from my family’s place—in an apa
 
 Then when I got to the door, he’d open up the door, and let me into his apartment.
 
-The apartment was sparse and barely furnished. A few pots, pans plates in the kitchen near the doorway, a few token pictures on the wall and maybe one dresser, one bed and a few chairs. From my recollections, pretty much all of what he owned could probably shoved into one medium sized suitcase. Clearly nobody else lived with him.
+The apartment was sparse and barely furnished. There was pretty much no carpeting and just a small rug near his bed; the floors were exposed hardwood and worn out in spots. A few pots, pans plates could be spotted in the kitchen near the doorway and a few token pictures on the wall and maybe one dresser, one bed and a few chairs could be spotted in the main part of the apartment. From my recollections, pretty much all of what he owned could probably shoved into one medium sized suitcase; the rest could easilly have been abandoned and tossed in the trash. Clearly nobody else lived with him.
 
 I’d give him the paper bag that had the hydrogen peroxide and the change. He would look over the contents of the bag, the receipt inside and count the change and then give me back the bulk of the change.
 
-“Thank you,” he would say with a thick European accent has he handed me a small pile of coins.
+“Thank you,” he would say with a thick European accent has he handed me a small pile of coins as we both walked back to the front door.
+
+While Mr. Dubinsky didn’t have much in his apartment, I was blown away by his view. The apartment was facing Ocean Parkway and the windows faced the west so the place was always sun drenched.
+
+I’d run a few errands over the next few months on an off for Mr. Dubinsky, but eventually they stopped.
 
 ***
 
