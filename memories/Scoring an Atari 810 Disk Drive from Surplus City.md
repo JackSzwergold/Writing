@@ -16,7 +16,19 @@ Since I only had a Atari 410 cassette tape drive at the time, pirating was easy-
 
 While the cable was electrically crap and literally held together with cheap scotch tape and not much else. But if someone I knew had a cool Atari game on a cassette tape, all I needed was a blank tape, that cable and two cassette recorders and some time to dub myself a copy.
 
-But that is also a long way of saying that dubbing cassette tapes in realtime was/is a very tedious and time consuming process. 
+But that is also a long way of saying that dubbing cassette tapes in realtime was/is a very tedious and time consuming process.
+
+Depending on how big the game was, dubbing tapes could take a lot of time. Also, unless your home had two cassette recorders, you had to borrow a cassette recorder from someone and that became a whole production.
+
+At the end of the day, cassette tapes for data sucked and my dream as a kid was getting a disk drive. But they were expensive and my family was poor.
+
+The base model Atari 810 disk drive retailed for around $299 back in the early 1980s and that was basically close to the cost of the Atari 400 I had.
+
+My $2 a week allowance was good for small kid things, but even if I didn’t spend it it would take me nearly 3 years to save that up on my own.
+
+So I was resigned to my life of being stuck with data cassettes for the glorified video game system my Atari 400 became.
+
+*** 
 
 ***
 
