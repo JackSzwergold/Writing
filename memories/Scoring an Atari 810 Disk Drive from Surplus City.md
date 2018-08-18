@@ -60,7 +60,17 @@ I went into the store with my dad, the woman behind the counter recognized me an
 
 When we got home, my dad handed me the bag and I took the disk drive out. Yup! It was an Atari 810 disk drive. And it looked clean and good. But without a power supply or data cable, there was no way I could test it out.
 
-“Maybe you should talk to Ben about this?” my dad asked. And with that I went over to the 
+“Maybe you should talk to Ben about this?” my dad asked. And with that I went over to the phone and dialed up my brother.
+
+***
+
+I generally never called my brother directly and only really talked to him on the phone if he called up and asked for me or my dad called him up and he asked for me. So this was technically the first time I called him as an independent person asking him for help.
+
+“Why did you buy this?” he immediately said when I told him about the disk drive. “It was cheap and I am sure it works!” I said, to which he responded “I don’t know. I don’t have time for this.” There was a pregnant pause and I simply said, “I’ll let you talk to dad.” And with that I passed the phone over to my father.
+
+When my dad grabbed the handset I looked for a copy of the yellow pages and brought it to my room.
+
+I 
 
 ***
 
