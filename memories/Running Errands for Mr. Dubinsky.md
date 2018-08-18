@@ -22,7 +22,7 @@ Anyway, one day I was playing around in my room when my dad came in from outside
 
 “Okay,” I said as I put on my jacket, took the money and headed outside.
 
-
+I’d walk over to Speedway Drugs on the corner, meander around the toy and candy section, eventually find where those small brown bottles of hydrogen peroxide were, bring it up to the counter, pay for it and take the change and then head back into the building.
 
 ***
 
