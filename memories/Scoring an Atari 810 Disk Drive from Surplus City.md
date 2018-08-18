@@ -42,6 +42,10 @@ And when she pulled it out, I was stunned: It was an Atari 810 disk drive!
 
 “What is this? You want it?” she asked and I said yes. She shouted out to someone in the backroom asking for a price and they shouted back “Twenty five dollars! As is!”
 
+“Okay! $25. You want it?” she asked. And I basically said, “Yeah, but I need to get the money.” And with that she put it behind the counter and said, “When you get the money come back.”
+
+
+
 ***
 
 *Scoring an Atari 810 Disk Drive from Surplus City (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
