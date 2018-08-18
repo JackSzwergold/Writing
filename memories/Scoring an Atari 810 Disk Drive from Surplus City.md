@@ -44,6 +44,20 @@ And when she pulled it out, I was stunned: It was an Atari 810 disk drive!
 
 “Okay! $25. You want it?” she asked. And I basically said, “Yeah, but I need to get the money.” And with that she put it behind the counter and said, “When you get the money come back.”
 
+I walked out of the store and told my friends they wanted $25 for it. One responded, “That’s cheap! You should get it.” But someone else pointed out that it didn’t come with any cables and you can’t tell if it works. And they were right. But my thoughts were for $25 it was worth the gamble. And besides, my brother was an electrical engineer so he could help me fix it if need be.
+
+***
+
+I headed back home and told my dad about the disk drive. His response was “Twenty five dollars? Are you sure this is a good thing?”
+
+“Yes!” I said. Also, when he started talking to my mom about it I realized she basically knew the people who owned the store so if the thing was dead and my brother couldn’t fix it, we could haggle them to accept a return.
+
+“Okay, let’s go,” my dad said and with that we both headed outside.
+
+The sun was setting but the shop was only about 4 blocks away.
+
+I went into the store with my dad, the woman behind the counter recognized me and then pulled then Atari 810 disk drive out. “See!” I said as he looked it over. After a while he said, “Okay, good. We’ll take it.” And with that my dad handed over the $25, the woman placed the bare disk drive into a used, non-descript shopping bag and we headed back home.
+
 
 
 ***
