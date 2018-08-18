@@ -10,9 +10,9 @@ I was maybe 8 or 9. I didn’t necessarily want or need a job—my $2 a week all
 
 Errands basically consisted of the predictable: A loaf of bread here, a container of milk there… Maybe a newspaper? Who knew. It was sporadic and mainly consisted of getting odds and ends when my parents were too tired or lazy to get them themselves.
 
-Occasionally, though I would run errands for an old man in the building named Mr. Dubinsky. He kinda looked like my dad, but was clearly older than him. My dad was in his 50s and I am pretty sure Mr. Dubinsky was in his late 60s when I was a kid.
+Occasionally, though I would run errands for an old man in the building named Mr. Dubinsky. He kinda looked like my dad, but was clearly older than him. My dad—who had me when he was older—was in his 50s and I am pretty sure Mr. Dubinsky was in his late 60s when I was a kid.
 
-
+I didn’t know much about Mr. Dubinsky other than I always saw him hanging out in front of the building wearing a darkish raincoat or overcoat or something like that.
 
 ***
 
