@@ -6,4 +6,8 @@ By Jack Szwergold
 
 ***
 
+I was maybe 8 or 9. I didn’t necessarily want or need a job—my $2 a week allowance worked well for my needs at the time—but my dad would get me to run errands and let me keep some of the change every now and then.
+
+***
+
 *Running Errands for Mr. Dubinsky (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
