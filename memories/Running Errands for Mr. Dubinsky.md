@@ -18,6 +18,12 @@ Occassionally at home, my dad would volunteer some trivial facts about Mr. Dubin
 
 Anyway, one day I was playing around in my room when my dad came in from outside and asked me if I wanted to go and run an errand for Mr. Dubinsky.
 
+“Sure,” I said. “What should I do?” My dad came into my room, gave me one or two dollars and said, “Get a bottle of hydrogren peroxide and bring it to Mr. Dubinsky’s apartment.”
+
+“Okay,” I said as I put on my jacket, took the money and headed outside.
+
+
+
 ***
 
 *Running Errands for Mr. Dubinsky (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
