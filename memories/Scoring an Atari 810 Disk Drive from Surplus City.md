@@ -34,6 +34,14 @@ One day I was playing around Brighton Beach Avenue and ran past the window of Su
 
 On this day it was just me and a bunch of kids horsing around when I noticed something in the front window of Surplus City. There mixed in with the literal tons of smashed, stacked and shoved schmatas on a shelf on a window was the unmistakable brownish beige color of an Atari peripheral.
 
+I walked closer to the window and checked it out and based on what I could see, it looked like it was either an Atari 810 disk drive or an Atari 820 receipt printer.
+
+I walked into the store and asked the old lady behind the counter if I could see it. She had no idea what I was talking about, so I had to guide her to pull it out of the pile of junk in the window.
+
+And when she pulled it out, I was stunned: It was an Atari 810 disk drive!
+
+“What is this? You want it?” she asked and I said yes. She shouted out to someone in the backroom asking for a price and they shouted back “Twenty five dollars! As is!”
+
 ***
 
 *Scoring an Atari 810 Disk Drive from Surplus City (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
