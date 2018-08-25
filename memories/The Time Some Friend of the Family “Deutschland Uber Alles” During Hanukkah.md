@@ -34,7 +34,17 @@ So that Hanukkah we all headed out to Eastchester to celebrate the holiday with 
 
 ***
 
-When I showed up everyone was there
+When I showed up everyone else was there already. The in-laws, my brother and his wife, some other miscellaenous family members and Lieszel.
+
+Lieszel was a family friend of the in-laws and was pretty much a central casting example of a dowdy, middle-aged German housewife. Might have been a widower since I never met her husband or even knew if she had children. But in general, she was a stern-faced German-Jewish woman with a poofy blonde hairdo and a judgementaln demeanor.
+
+My side of the family was never really friendly to her, but we weren’t unfriendly to her either. She was just this odd creature at these “celebrations” we had to deal with because she was friends with the in-laws.
+
+Now despite the negativity I’m portraying, there were sometimes brief moments of joy at these things. These moments woud typically come once the majority of guests arrievd and would end shortly before the real “celebration” (typically an overly formal dinner) would happen.
+
+People would be sitting their, talking laughing and joking. Sometimes snacking as well. These moments actually reminded me of the celebrations my family would have at our home, but without the stupid formal dinner that followed. My parents would basically acknowledge the event, pass gifts and well wishes around, and then just hang out. To me that is what a happy celbrarion would be.
+
+So in the middle of one of these brief, seemingly accidental moments of joy, 
 
 ***
 
