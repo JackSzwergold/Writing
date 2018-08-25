@@ -48,7 +48,7 @@ So in the middle of one of these brief, seemingly accidental moments of joy, Lie
 
 That was the German national anthem that was hijacked by the Nazis during World War II to shove nationalism down the throats of all. It was quickly dropped after World War II because of the Nazi connections.
 
-But despite these associations, 
+But despite these associations, Lieszel decided to start singing the first stanza—the one most famously used and overused by the Nazis—
 
 ***
 
