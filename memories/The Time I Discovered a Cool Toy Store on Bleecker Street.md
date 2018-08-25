@@ -26,7 +26,15 @@ So I walked over and looked in the window. It was definitely a toy store, but no
 
 That was cute, but of no interest to my 1970s kid sensibilities. Then I saw something in the window that grabbed my attention: A huge bowl filled with what looked like wind-up R2-D2s! What the eff was that? I already had a small collection of Kenner *Star Wars* figures, but never saw a wind-up R2-D2 before. They looked similar to the Kenner figure but had a tag with Japanese text on it.
 
-I gasped and checked my pocket for money. I had some quarter and change on me; maybe I could score a wind-up R2-D2? So I looked at my sister and
+I gasped and checked my pocket for money. I had some quarter and change on me; maybe I could score a wind-up R2-D2? So I looked at my sister and asked her if we could go into the store.
+
+“No!” she said. “We need to go back!” she added. And this went on for a little bit until I accepted the futility of the struggle, caved in and headed back to the sandal shop with her.
+
+As we walked away I made a mental note of the cross-streets. Perhaps I could convince my dad to go to this toy store next weekend?
+
+Anyway, after walking a short bit back to West 4th Street we were back at the sandal store. My sister’s husband was out in front waiting with his brother and instantly complaining about her being late.
+
+“Jack saw a toy store,” she said to her husband. Her husband then looked at me and 
 
 ***
 
