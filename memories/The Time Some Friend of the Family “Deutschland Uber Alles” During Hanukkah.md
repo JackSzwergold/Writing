@@ -8,7 +8,7 @@ By Jack Szwergold
 
 I’m not too sure when exactly it happened. Pretty sure I was 10 or 11 years old at the time which would have placed it happening square in 1978 or 1979. Regardless, it happened during Hanukkah withthe family in Eastchester.
 
-Nobody in my direct family was from Eastchester, but my brothers in-laws lived in Eastchester.
+Nobody in my direct family was from Eastchester, but my brother’s in-laws lived in Eastchester.
 
 ***
 
