@@ -48,7 +48,17 @@ So in the middle of one of these brief, seemingly accidental moments of joy, Lie
 
 That was the German national anthem that was hijacked by the Nazis during World War II to shove nationalism down the throats of all. It was quickly dropped after World War II because of the Nazi connections.
 
-But despite these associations, Lieszel decided to start singing the first stanza—the one most famously used and overused by the Nazis—
+But despite these associations, Lieszel decided to start singing the first stanza—the one most famously used and overused by the Nazis—during this family holiday event.
+
+I remember her standing up, singing that bullshit and then sitting down again. But I also remember another thing: Other than my mom and dad instantly getting upset at this bizarre display, nobody else said anything.
+
+My parents were basically flipped out and yelling at my brother about it, but he didn’t think it was a big deal. Neither did his wife or his in-laws. The kids that were around—which consisted of me and my niece from my sister’s side barely understood what just happened and were basically just stunned and silent.
+
+After Lieszel sat down, my brother’s mother-in-law came over and started to whisper in German in Lieszel’s ear as they both looked around at us.
+
+I might have been a kid at the time, but neither of them seemed to broken up about the incident despite the fact it was—frankly—crazy.
+
+Needless to say, the fun and laughter stopped and we all just sat around and waited awkwardlt
 
 ***
 
