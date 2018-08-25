@@ -56,9 +56,15 @@ My parents were basically flipped out and yelling at my brother about it, but he
 
 After Lieszel sat down, my brother’s mother-in-law came over and started to whisper in German in Lieszel’s ear as they both looked around at us.
 
-I might have been a kid at the time, but neither of them seemed to broken up about the incident despite the fact it was—frankly—crazy.
+I might have been a kid at the time, but neither of them seemed to broken up about the incident despite the fact it was—frankly—crazy. Not to mention that at no point did Lieszel even attempt to apoligize. The look on her face reminded me of the stern and judgemental—and frankly shitty—elementary school teachers I dealt with growing up. But at least when it came to teachers, I could go home at the end of the day. Now somehow we all had to sit down and break bread with this unapologetic loonball.
 
-Needless to say, the fun and laughter stopped and we all just sat around and waited awkwardlt
+Needless to say, the fun and laughter stopped and we all just sat around and awkwardly waited for dinner to start.
+
+In the case of Hanukkah, dinner only started after the Hanukkah Menorahs were lit. So when the Menorahs were pulled out, we all gathered, lit the Menorahs and then sat down to dinner.
+
+***
+
+To say it was awkward was an understatement at best. The dinner that happened after all of that was fileld with pregnant pauses and awkward interactions.
 
 ***
 
