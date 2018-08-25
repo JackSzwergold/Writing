@@ -38,7 +38,21 @@ Anyway, after walking a short bit back to West 4th Street we were back at the sa
 
 While the Village was filled old school NYC brick buildings, my sister’s husband’s brother lived in something that looked like a drab condo building on Cornellia Street. Quite possibly the ugliest building on the block.
 
-We went inside, rode up the elevator and we in his place. Inside, his apartment seemed cool
+We went inside, rode up the elevator and we in his place. Inside, his apartment seemed cool. It was filled with sun, plants and wood furniture. It kinda looked like the cover to Carole King’s “Tapestry” in its own way.
+
+I walked inside and sat on a couch. Not much for a kid to do in this place. They gave me a glass of water and I basically sat around and stared for a bit.
+
+After a while, my sister, her husband and his brother sat down near the coffee table. My sister’s husband started to roll up a joint and his brother talked in hushed tones as he looked at me. My sister just sat there, pretty catatonic.
+
+At some point I spotted something to play with: A Play-Doh barbershop set! Cool! It was still in it’s box, so I walked over grabbed it and started to open the box when my sister’s husband’s brother stood up, grabbed it out of my hand and said, “No… That’s not for you.” And put it up on a table.
+
+By then, the literaln joint was lit and my sister’s husband inhaled and then passed it onto his brother. My sister sat still and didn’t participate. This went on for a while with the two guys smoking and joking and me—being a kid—feeling trapped and my sister sitting there and doing nothing like a robot that had shut down.
+
+At some point, my sister said something and her husband stood up and just shoved her back onto the couch and yelled at her. She sat their like a sack of rocks and just took it; head down, pigeon toed and silent.
+
+I had no idea what to do, but I looked at the my sister’s husband and his brother and half expected them to start bullying me.
+
+I turned and looked out the window and found some comfort in the sun and shadows cast by the plants in the window.
 
 ***
 
