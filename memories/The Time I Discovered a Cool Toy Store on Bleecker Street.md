@@ -8,17 +8,17 @@ By Jack Szwergold
 
 I don’t remember the exact year but I know it was 1978 or 1979 and I was in Greenwich Village with my sister, her husband and her husband’s brother.
 
-I often got dragged around on horseshit trips like this because my parents were old, and my siblings were younger and thought I would like being dragged along on their afternoon dates. Nevermind the fact that I liked playing out on the street in front of my building instead of hanging around with people in their 30s, they always seemed to figure out a way to drag me along. As if dragging me out of the home and neighborhood I loved was a “good deed” or some shit like that.
+I often got dragged around on horse-shit trips like this because my parents were old, and my siblings were younger and thought I would like being dragged along on their afternoon dates. Never mind the fact that I liked playing out on the street in front of my building instead of hanging around with people in their 30s, they always seemed to figure out a way to drag me along. As if dragging me out of the home and neighborhood I loved was a “good deed” or some shit like that.
 
-Anyway, my first memory of the trip was going to some sandal shop on West 4th Street near Jones Street. Apparently my sister’s husband wanted to get some leather sandals and my pressence sitting aorund and doing nothing was required.
+Anyway, my first memory of the trip was going to some sandal shop on West 4th Street near Jones Street. Apparently my sister’s husband wanted to get some leather sandals and my presence sitting around and doing nothing was required.
 
-I remember him and his brother were—pressumably—high and laughing and goofing around in the sandal shop while my sister and I waited.
+I remember him and his brother were—presumably—high and laughing and goofing around in the sandal shop while my sister and I waited.
 
 At some point I stood up and said I was bored. And after some complaints and negotiation, my sister agreed to walk me around the block to alleviate my boredom.
 
 I think this was the first time I was ever in Greenwich Village, and the place seemed interesting. The streets were tree-lined and nice. I didn’t see signs of the poor working class life I knew in Brooklyn, but things seemed nice and friendly.
 
-As we walked around, at some point we hit Bleecker Street. I remember it being sun drenched and pleasant. Just as we were about to turn down to head backn to the sandal shop, I spotted what looked like a carousel horse in a store window.
+As we walked around, at some point we hit Bleecker Street. I remember it being sun drenched and pleasant. Just as we were about to turn down to head back to the sandal shop, I spotted what looked like a carousel horse in a store window.
 
 “I want to go there!” I told my sister who then said, “We don’t have time! We need to go back.” And this went on for a bit until I convinced her to just let me look in the window of the shop.
 
@@ -36,7 +36,7 @@ Anyway, after walking a short bit back to West 4th Street we were back at the sa
 
 “Jack saw a toy store,” she said to her husband. Her husband then looked at me and said, “No toys today.” And with that we all headed down the block to his brother’s place.
 
-While the Village was filled old school NYC brick buildings, my sister’s husband’s brother lived in something that looked like a drab condo building on Cornellia Street. Quite possibly the ugliest building on the block.
+While the Village was filled old school NYC brick buildings, my sister’s husband’s brother lived in something that looked like a drab condo building on Cornelia Street. Quite possibly the ugliest building on the block.
 
 We went inside, rode up the elevator and we in his place. Inside, his apartment seemed cool. It was filled with sun, plants and wood furniture. It kinda looked like the cover to Carole King’s “Tapestry” in its own way.
 
@@ -46,7 +46,7 @@ After a while, my sister, her husband and his brother sat down near the coffee t
 
 At some point I spotted something to play with: A Play-Doh barbershop set! Cool! It was still in it’s box, so I walked over grabbed it and started to open the box when my sister’s husband’s brother stood up, grabbed it out of my hand and said, “No… That’s not for you.” And put it up on a table.
 
-By then, the literaln joint was lit and my sister’s husband inhaled and then passed it onto his brother. My sister sat still and didn’t participate. This went on for a while with the two guys smoking and joking and me—being a kid—feeling trapped and my sister sitting there and doing nothing like a robot that had shut down.
+By then, the literal joint was lit and my sister’s husband inhaled and then passed it onto his brother. My sister sat still and didn’t participate. This went on for a while with the two guys smoking and joking and me—being a kid—feeling trapped and my sister sitting there and doing nothing like a robot that had shut down.
 
 At some point, my sister said something and her husband stood up and just shoved her back onto the couch and yelled at her. She sat their like a sack of rocks and just took it; head down, pigeon toed and silent.
 
