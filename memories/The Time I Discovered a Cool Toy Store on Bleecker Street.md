@@ -34,7 +34,11 @@ As we walked away I made a mental note of the cross-streets. Perhaps I could con
 
 Anyway, after walking a short bit back to West 4th Street we were back at the sandal store. My sister’s husband was out in front waiting with his brother and instantly complaining about her being late.
 
-“Jack saw a toy store,” she said to her husband. Her husband then looked at me and 
+“Jack saw a toy store,” she said to her husband. Her husband then looked at me and said, “No toys today.” And with that we all headed down the block to his brother’s place.
+
+While the Village was filled old school NYC brick buildings, my sister’s husband’s brother lived in something that looked like a drab condo building on Cornellia Street. Quite possibly the ugliest building on the block.
+
+We went inside, rode up the elevator and we in his place. Inside, his apartment seemed cool
 
 ***
 
