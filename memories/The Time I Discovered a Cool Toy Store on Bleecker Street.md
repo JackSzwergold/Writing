@@ -18,7 +18,13 @@ At some point I stood up and said I was bored. And after some complaints and neg
 
 I think this was the first time I was ever in Greenwich Village, and the place seemed interesting. The streets were tree-lined and nice. I didn’t see signs of the poor working class life I knew in Brooklyn, but things seemed nice and friendly.
 
-As we walked around, at some point we hit Bleecker Street. I remember it being sun drenched and pleasant. Just as we were 
+As we walked around, at some point we hit Bleecker Street. I remember it being sun drenched and pleasant. Just as we were about to turn down to head backn to the sandal shop, I spotted what looked like a carousel horse in a store window.
+
+“I want to go there!” I told my sister who then said, “We don’t have time! We need to go back.” And this went on for a bit until I convinced her to just let me look in the window of the shop.
+
+So I walked over and looked in the window. It was definitely a toy store, but not like any toy store I knew. For one, the window not only had a carousel horse in it, but there were also all kinds of old toys nicely displayed in the window.
+
+That was cute, but of no interest to my 1970s kid sensibilities. Then I saw something in the
 
 ***
 
