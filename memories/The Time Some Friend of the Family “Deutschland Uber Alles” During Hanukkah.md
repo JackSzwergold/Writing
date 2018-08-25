@@ -24,7 +24,11 @@ Anyway, a year or so before the incident, my mom and dad both—for all intents 
 
 As for me, I always saw them as “snotty” and “conceited.” Every visit I had with them I felt like I was being treated as a rescue animal or special case. To be fair, most people treated me as if I was weird as a kid since my parents were old and immigrants. But my brother’s in-law’s always “kicked it up a notch” in their interactions; I always got the general sense they were patronizing me but tolerated it since during the holidays I would get some decent money or gifts from them.
 
+So back to the incident: By the time Hanukkah came around that year, my parents were hard-set on not going to any more of the in-laws celebrations.
 
+My brother—as expected—chastized them for thinking and behaving that way, but I saw their point. Why have a supposedly “proper” Hanukkah celebration when the people throwing it were just snooty, bourgeois and  passively nasty to the people they invited?
+
+But I was a young kid and bit idealistic at the time. I convinced my dad and mom that not going to the in-laws Hanukkah celbration was not nice. Not nice to who? I dunno. But in general, to me—as a kid—it seemed not nice. And being nice was important. 
 
 ***
 
