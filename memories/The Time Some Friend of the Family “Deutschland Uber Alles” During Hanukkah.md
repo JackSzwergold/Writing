@@ -20,6 +20,10 @@ I should also state that all of them—my parents and my brother’s in-laws—w
 
 ***
 
+Anyway, a year or so before the incident, my mom and dad both—for all intents and purposes—declared they were sick of these in-law celebrations. Phrases like “enitled” or “privledged” really didn’t exist in common language back then. And even if they did my parents weren’t fluent enough in English to use them. But based on the arguments I would hear them engage my brother in on the phone, that’s basically their complaint about the in-laws.
+
+As for me, I always saw them as “snotty” and “conceited.” Every visit I had with them I felt like I was being treated as a rescue animal or special case. To be fair, most people treated me as if I was weird as a kid since my parents were old and immigrants. But my brother’s in-law’s always “kicked it up a notch” in their interactions; I always got the general sense they were patronizing me but tolerated it since during the holidays I would get some decent money or gifts from them.
+
 
 
 ***
