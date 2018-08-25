@@ -72,6 +72,9 @@ After the dinner, the kids would wait for gifts to arrive and sometimes we would
 
 And again, at no point did Lieszel apologize for anything despite the fact that even my mom and dad were arguing with my brother in Polish at sporadic times during the night about how she behaved. My general impression is my brother thought it was no big deal and our parents were overreacting. I had watched my brother fight with our parents tons of times. But this time it was different. Instead of defending his own parents against the bullying of others, he was clearly apologizing and defending the bully.
 
+Lieszel deciding to sing a Nazi anthem was one thing; the reaction of others was another. That Hanukkah, the Hanukkah I insisted my parents should put differences aside to celebrate the holiday as a family was the one where this crap happened. And my brother had nothing to say past claiming my parents were overreacting to it all.
+
+Saying my brother’s behavior was a betrayl of his own family seems too simple. Calling it gaslighting would also be too cut and dry. But from that moment on I finally understood honestly and fully why my parents hated their in-laws: They were bigots in their own genteel way and their own son was buying their bigotry hook, line and sinker for little to no good reason.
 
 ***
 
