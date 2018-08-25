@@ -2,10 +2,6 @@
 
 By Jack Szwergold
 
-**QUICK NOTES**: About the time in the late 1970s when my sister and her abusive husband took me on a trip to Greenwich Village so they could buy custom sandals on West 4th Street. I got bored and asked to walk around the neighborhood. We walked down Jones Street and I spotted what looked like an antique toy shop but it also had a display of Japanese toys in the window. Including a wind-up R2-D2 I never saw before. My sister didn’t let me go in. I screamed about it but she insisted we had to go to her bother-in-law’s place on Jones Street. We went there. It was in a co-op building. He had a Play-Doh barber shop set and when I reached for it, he smacked my hand and pulled it away. Next thing you know they were smoking pot and laughing. I don’t know why must at some point her husband yelled at her. She sat frozen, with hands folded between her legs, head down and visibly shaking a bit. They left her like that and they just went back to smoking pot and laughing. The room was sunlit like that Carole King album cover. I sat or stood somewhere frozen; that’s the only detail I don’t remember.
-
-***
-
 I don’t remember the exact year but I know it was 1978 or 1979 and I was in Greenwich Village with my sister, her husband and her husband’s brother.
 
 I often got dragged around on horse-shit trips like this because my parents were old, and my siblings were younger and thought I would like being dragged along on their afternoon dates. Never mind the fact that I liked playing out on the street in front of my building instead of hanging around with people in their 30s, they always seemed to figure out a way to drag me along. As if dragging me out of the home and neighborhood I loved was a “good deed” or some shit like that.
