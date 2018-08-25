@@ -44,7 +44,11 @@ Now despite the negativity I’m portraying, there were sometimes brief moments 
 
 People would be sitting their, talking laughing and joking. Sometimes snacking as well. These moments actually reminded me of the celebrations my family would have at our home, but without the stupid formal dinner that followed. My parents would basically acknowledge the event, pass gifts and well wishes around, and then just hang out. To me that is what a happy celbrarion would be.
 
-So in the middle of one of these brief, seemingly accidental moments of joy, 
+So in the middle of one of these brief, seemingly accidental moments of joy, Lieszel inexplicably stood up from wherever she was was sitting—couch or chair—and started to loudly sing, “Deutschland, Deutschland über alles, über alles in der Welt.”
+
+That was the German national anthem that was hijacked by the Nazis during World War II to shove nationalism down the throats of all. It was quickly dropped after World War II because of the Nazi connections.
+
+But despite these associations, 
 
 ***
 
