@@ -14,7 +14,11 @@ Anyway, my first memory of the trip was going to some sandal shop on West 4th St
 
 I remember him and his brother were—pressumably—high and laughing and goofing around in the sandal shop while my sister and I waited.
 
-At some point I stood up and said I was bored. And after some complaints and negotiation, 
+At some point I stood up and said I was bored. And after some complaints and negotiation, my sister agreed to walk me around the block to alleviate my boredom.
+
+I think this was the first time I was ever in Greenwich Village, and the place seemed interesting. The streets were tree-lined and nice. I didn’t see signs of the poor working class life I knew in Brooklyn, but things seemed nice and friendly.
+
+As we walked around, at some point we hit Bleecker Street. I remember it being sun drenched and pleasant. Just as we were 
 
 ***
 
