@@ -101,7 +101,17 @@ And nervously I pulled a few Civil War soldiers and related junk out of my pocke
 
 “Yeah,” Jack the pharmacist said. “Those are the ones that he took,” he added.
 
-“My dad then leaned down an
+My dad then leaned down and looked me in the face and said with a thick English accent, “Why did you do this?”
+
+I looked at him and felt like crying, but didn’t and just said, “I don’t know.”
+
+He looked at me and said, “Don’t do this again, right?” And I silently nodded and said, “Okay…” as he stood up and asked Jack the pharmacist how much he owed him.
+
+Jack said something like, “No… Don’t worry…” but my dad insisted that he take some money so I saw a few dollar bills pass from my dads hands to the counter.
+
+Jack the pharmacist nodded at me and said, “Don’t steal!” and I nodded in agreement. And soon enough my dad and I were outside on the street walking back home.
+
+My dad stayed downstairs to gossip with some of the other guys just standing around out there, but I headed back upstairs to play around with the Civil War soldiers on my desk some more before heading to sleep.
 
 ***
 
