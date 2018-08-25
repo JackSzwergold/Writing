@@ -70,7 +70,8 @@ I honestly liked the brisket, but the Nazi anthem thing kinda ruined it.
 
 After the dinner, the kids would wait for gifts to arrive and sometimes we would play Dreidel. If we were lucky, my brother’s father-in-law would turn on the TV so I could sit and just stare at flashing pictures on a screen until it was time to go home.
 
-And again, at no point did Lieszel apologize for anything despite the fact that even my mom and dad were arguing with my brother in Polish at sporadic times during the night about how she behaved. My general impression is my brother thought it was no big deal and our parents were overreacting. I had watched my brother fight with our parents tons of times. But this time it was different.
+And again, at no point did Lieszel apologize for anything despite the fact that even my mom and dad were arguing with my brother in Polish at sporadic times during the night about how she behaved. My general impression is my brother thought it was no big deal and our parents were overreacting. I had watched my brother fight with our parents tons of times. But this time it was different. Instead of defending his own parents against the bullying of others, he was clearly apologizing and defending the bully.
+
 
 ***
 
