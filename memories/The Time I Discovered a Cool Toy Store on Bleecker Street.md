@@ -6,4 +6,16 @@ By Jack Szwergold
 
 ***
 
+I don’t remember the exact year but I know it was 1978 or 1979 and I was in Greenwich Village with my sister, her husband and her husband’s brother.
+
+I often got dragged around on horseshit trips like this because my parents were old, and my siblings were younger and thought I would like being dragged along on their afternoon dates. Nevermind the fact that I liked playing out on the street in front of my building instead of hanging around with people in their 30s, they always seemed to figure out a way to drag me along. As if dragging me out of the home and neighborhood I loved was a “good deed” or some shit like that.
+
+Anyway, my first memory of the trip was going to some sandal shop on West 4th Street near Jones Street. Apparently my sister’s husband wanted to get some leather sandals and my pressence sitting aorund and doing nothing was required.
+
+I remember him and his brother were—pressumably—high and laughing and goofing around in the sandal shop while my sister and I waited.
+
+At some point I stood up and said I was bored. And after some complaints and negotiation, 
+
+***
+
 *The Time I Discovered a Cool Toy Store on Bleecker Street (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
