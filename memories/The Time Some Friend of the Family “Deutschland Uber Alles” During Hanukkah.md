@@ -64,7 +64,11 @@ In the case of Hanukkah, dinner only started after the Hanukkah Menorahs were li
 
 ***
 
-To say it was awkward was an understatement at best. The dinner that happened after all of that was fileld with pregnant pauses and awkward interactions.
+To say it was awkward was an understatement at best. The dinner that happened after all of that was fileld with pregnant pauses and awkward interactions. I don’t recall what we ate, but it was most likely some shity brisket, beans, sweet potatoes and other crap like that.
+
+I honestly liked the brisket, but the Nazi anthem thing kinda ruined it.
+
+After the dinner 
 
 ***
 
