@@ -24,7 +24,9 @@ As we walked around, at some point we hit Bleecker Street. I remember it being s
 
 So I walked over and looked in the window. It was definitely a toy store, but not like any toy store I knew. For one, the window not only had a carousel horse in it, but there were also all kinds of old toys nicely displayed in the window.
 
-That was cute, but of no interest to my 1970s kid sensibilities. Then I saw something in the
+That was cute, but of no interest to my 1970s kid sensibilities. Then I saw something in the window that grabbed my attention: A huge bowl filled with what looked like wind-up R2-D2s! What the eff was that? I already had a small collection of Kenner *Star Wars* figures, but never saw a wind-up R2-D2 before. They looked similar to the Kenner figure but had a tag with Japanese text on it.
+
+I gasped and checked my pocket for money. I had some quarter and change on me; maybe I could score a wind-up R2-D2? So I looked at my sister and
 
 ***
 
