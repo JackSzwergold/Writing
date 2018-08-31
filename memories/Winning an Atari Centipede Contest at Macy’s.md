@@ -102,6 +102,20 @@ After a minute or so the game was loaded and I started to play it.
 
 My dad came into my room to watch me play the game. “Oh, it looks good!” he said in that way parents who care—but don’t care—do.
 
+“Yeah,” I said as I stared at the screen and played the game.
+
+***
+
+Soon enough, I started to play that game every day after school as if it was a homework assignment.
+
+This went on for weeks and—in my mind—I was getting better at it with each new play.
+
+***
+
+Soon enough, the weekend of the Atari contest came around. I barely slept the night before, but still felt rested and excited.
+
+“Big day!” my dad said as we both got ready to head into “The City” and enter the contest.
+
 ***
 
 *Winning an Atari Centipede Contest at Macy’s (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
