@@ -96,7 +96,11 @@ When I got home to Ocean Parkway, I ran down the stairs, jumped the small fence 
 
 ***
 
-I ran in the door, took off my jacket
+I ran in the door, took off my jacket, pulled the game out of the brown paper bag, shoved it into the Atari 410 cassette drive and let it load up.
+
+After a minute or so the game was loaded and I started to play it.
+
+My dad came into my room to watch me play the game. “Oh, it looks good!” he said in that way parents who care—but don’t care—do.
 
 ***
 
