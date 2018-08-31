@@ -56,6 +56,48 @@ With that he smiled, nodded and handed me a promotional flyer for the game. I lo
 
 ***
 
+I got back home just as the sun was setting. It was fall so the beach was empty and the breeze was refreshing. The dusky sunlight was warm and welcoming.
+
+I headed upstairs and my dad immediately asked me if I wanted to eat anything, “Sure.” I said as I headed back into my room.
+
+I took out the *Megalegs* flyer and looked it over. I had about $8 saved up at the time. Should I hit my dad up for the rest? I dunno.
+
+“What is that?” my dad said as he brought a plate of food to my room. “It’s a new game,” I said as I passed the flyer over to him to check out. He looked it over and said, “$29? That’s expensive!” I simply shrugged in response and left it at that.
+
+Pretty sure my dad expected me to ask him for money to buy the game, but I didn’t ask him. Saving up money was not a strong point for me at that time and I alredy hit him up for advances on my allowance a lot already during the summer.
+
+***
+
+The next Monday, when I headed into school I showed the flyer to some friends. “I need to pratice if I want to win that contest,” I said. And they agreed as they looked over the flyer.
+
+“That game looks cool!” said one friend who had an Atari 800. “How about this: Let’s go 50/50 on the game,” he said. “What do you mean?” I asked. “Well, I pay $15 and you pay $15 and we can copy the game anyway so just let me have a copy.”
+
+What a great idea! We all just learned how to pirate Atari program cassettes. So if we went in 50/50 on a game like that, one of us could keep the original game and just make a copy to give to the other person.
+
+“Okay, but I get to keep the cassette and packaging,” I said. “Fine with me!” he said.
+
+And with that a deal was struck.
+
+***
+
+After school I talked to my dad and explained the 50/50 deal. Since I already had $8, all I needed was $7 more to get the game with my friend paying the rest.
+
+“He will pay for the rest?” my dad asked. “Sure,” I said.
+
+And with that, my dad gave me the $7 and I headed over to my friends house to get the rest and then head into “The City” and get *Megalegs*.
+
+***
+
+I went to the Computer Center, bought the cassette verison of *Megalegs* and they put it in a plain brown paper bag for me.
+
+I was excited all the way home on the subway and would peek inside the brown paper bag every now and then to just look at the game.
+
+When I got home to Ocean Parkway, I ran down the stairs, jumped the small fence near my building and headed upstairs to the family apartment.
+
+***
+
+I ran in the door, took off my jacket
+
 ***
 
 *Winning an Atari Centipede Contest at Macy’s (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
