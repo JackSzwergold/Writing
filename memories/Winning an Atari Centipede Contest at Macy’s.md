@@ -24,11 +24,11 @@ I sat and stared at the blank page in my notebook and started to wonder, “I ne
 
 After school I went to Captain’s Quarters and decided to play some games of *Centipede*. Captain’s Quarters was a huge storefront arcade on Brighton Beach Avenue near Coney Island Avenue. As an adult it’s clear to me some shady shit happened there and it might have been a front for something. But I didn’t care. It was a well stocked and well maintained arcade in a neighborhood filled with junk stores and fruit stands.
 
-I stuck my dollar into the change machine, got me 4 quaters and started to play.
+I stuck my dollar into the change machine, got me 4 quarters and started to play.
 
 I kinda sucked. By the time I was on my 3rd quarter, the game wasn’t fun to play.
 
-I liked the graphics and it seemed fun, but the track ball that the game used felt awkward and I also started to realize something: A videogame for a home computer system wouldn’t use a track ball anyway. It would use that standard black Atari joystick. This kind of practice on the arcade machine would not help me.
+I liked the graphics and it seemed fun, but the track ball that the game used felt awkward and I also started to realize something: A video game for a home computer system wouldn’t use a track ball anyway. It would use that standard black Atari joystick. This kind of practice on the arcade machine would not help me.
 
 So by the time I lost my last player on that 3rd round of *Centipede*, I just picked up my schoolbag and headed back home.
 
@@ -40,7 +40,7 @@ One day, I was made a trip over to the Computer Center on 32nd Street to browse 
 
 I walked over to the modest display and watched as one of the guys from the store played the game. Holy shit, it was a *Centipede* clone.
 
-The graphics were not as good as the arcade verison of *Centipede* but the gameplay seemed 100% the same.
+The graphics were not as good as the arcade version of *Centipede* but the gameplay seemed 100% the same.
 
 After the guy from the store finished playing the game I asked if I could play. “Sure,” he said as he stepped aside and passed the joystick over to me.
 
@@ -64,11 +64,11 @@ I took out the *Megalegs* flyer and looked it over. I had about $8 saved up at t
 
 “What is that?” my dad said as he brought a plate of food to my room. “It’s a new game,” I said as I passed the flyer over to him to check out. He looked it over and said, “$29? That’s expensive!” I simply shrugged in response and left it at that.
 
-Pretty sure my dad expected me to ask him for money to buy the game, but I didn’t ask him. Saving up money was not a strong point for me at that time and I alredy hit him up for advances on my allowance a lot already during the summer.
+Pretty sure my dad expected me to ask him for money to buy the game, but I didn’t ask him. Saving up money was not a strong point for me at that time and I already hit him up for advances on my allowance a lot already during the summer.
 
 ***
 
-The next Monday, when I headed into school I showed the flyer to some friends. “I need to pratice if I want to win that contest,” I said. And they agreed as they looked over the flyer.
+The next Monday, when I headed into school I showed the flyer to some friends. “I need to practice if I want to win that contest,” I said. And they agreed as they looked over the flyer.
 
 “That game looks cool!” said one friend who had an Atari 800. “How about this: Let’s go 50/50 on the game,” he said. “What do you mean?” I asked. “Well, I pay $15 and you pay $15 and we can copy the game anyway so just let me have a copy.”
 
@@ -88,7 +88,7 @@ And with that, my dad gave me the $7 and I headed over to my friends house to ge
 
 ***
 
-I went to the Computer Center, bought the cassette verison of *Megalegs* and they put it in a plain brown paper bag for me.
+I went to the Computer Center, bought the cassette version of *Megalegs* and they put it in a plain brown paper bag for me.
 
 I was excited all the way home on the subway and would peek inside the brown paper bag every now and then to just look at the game.
 
