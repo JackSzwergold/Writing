@@ -10,6 +10,12 @@ It was the fall of 1981 and I was flipping through the *Daily News* one  Sunday 
 
 My jaw dropped: *Centipede* was a popular arcade game, and the release of a home version was exciting. I barely had my Atari 400 for a year and was already bored with the few legal—and pirated—games I had.
 
+I showed the ad to my dad who smiled and basically said, “That’s nice!” and agreed to take me to the contest when it happened.
+
+I was excited and ready to share the news of this contest with friends of mine in school
+
+***
+
 ***
 
 *Winning an Atari Centipede Contest at Macy’s (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
