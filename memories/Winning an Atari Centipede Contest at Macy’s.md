@@ -8,7 +8,7 @@ By Jack Szwergold
 
 It was the fall of 1981 and I was flipping through the *Daily News* one  Sunday when I saw it: An ad for some kinda of “CityKids” Atari contest at *Macy’s* in Manhattan. The first prize was an Atari 400 and the second prize was Atari *Centipede* cartridge for Atari Computers.
 
-My jaw dropped: *Centipede* was a popular arcade game, and the release of a home version was exciting. I 
+My jaw dropped: *Centipede* was a popular arcade game, and the release of a home version was exciting. I barely had my Atari 400 for a year and was already bored with the few legal—and pirated—games I had.
 
 ***
 
