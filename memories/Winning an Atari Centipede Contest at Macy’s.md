@@ -176,7 +176,7 @@ I held up my two fingers in a “V for Victory” formatation and the Atari guy�
 
 Was a bit pissed about that but who cared.
 
-The guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well.
+The guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well,
 
 ***
 
@@ -191,6 +191,10 @@ After a while—just when it started to feel real awkward—me and my dad peeled
 Just after getting into the subway station, I saw a payphone and decided to call up one of my neighborhood friends (Alex) and share the good news with him.
 
 He answered the phone, said “Hello…” and then I told him the good news: “I won second prize in that *Centipede* contest!” and without a beat he simply said, “Who cares?” and then I explained I won a *Centipede* cartridge and he said, “Okay…” and then with that I just said goodbye, hung up the phone and headed down into the subway station to head back home.
+
+***
+
+About 6 weeks later I asked my dad if anything
 
 ***
 
