@@ -180,7 +180,15 @@ The guy asked us for a mailing address and phone number so they could send me a 
 
 ***
 
-Just as we finished up, some people dressed as Pac-Man and a red ghost showed up and apparently there was a small promotional “parade” that was going to wind it’s way through the store.
+Just as we finished up, some people dressed as Pac-Man and a red ghost showed up and apparently there was a small promotional “parade” that was going to wind it’s way through the store. In my dellusional enthusiam at my winning 2nd place at the comptetition I thought the parade was for us kids and we could march along with them.
+
+So me and my dad tagged along as Pac-Man and the red ghost meandered around Macy’s that afternoon.
+
+After a while—just when it started to feel real awkward—me and my dad peeled ourselves away from the parade, headed down the escaltors and headed back into the subway to go home.
+
+***
+
+Just after getting into the 
 
 ***
 
