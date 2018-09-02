@@ -152,7 +152,13 @@ One of them opened up the Atari’s cartridge port to see if they could see the 
 
 A woman from the Atari team came by to fix the situation. She looked around the computer and asked someone else for help. She was a bit panicked, but I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari cassette drive. I guess the cartridges weren’t manufactured yet, so this contest would be running the game from the cassette drive.
 
-I walked over and said, “I can help.” And switched off the computer
+I walked over and said, “I can help.” And switched off the computer, held down the “Start” key, waited for a beep and then hit the “Return” key and the program started loading.
+
+“I have one at home,” I told the woman from Atari. She smiled as the other guy running the thing came over, saw what was happening and said, “Yeah, the kid fixed it. We just have to wait now.”
+
+After a while *Centipede* loaded and the guy running the comptetion all asked us to come up front. He basically said he would be starting the competition and it would go by the order of people on the sign-up list.
+
+I knew I wasn’t at the top of the list, so I knew I wasn’t first. But I checked the list and there wasn’t more than one or two other people signed up after me.
 
 ***
 
