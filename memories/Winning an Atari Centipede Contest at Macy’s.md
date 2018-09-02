@@ -124,9 +124,9 @@ We headed into Macy’s and started to look around for the contest. The ad clear
 
 After checking some signage and asking around we made our way up the electronics floor. We passed by this place tons of times and even checked out the video game displays they had in the past, but this contest was not on the main floor. Rather it was in a small conference room near the end of the floor.
 
-The conference room was beige. As beige as a 1980s conference room could be. Some chairs were stacked away on the sides of the room and there were a few Atari posters on the walls. A few balloons as well. But right near the front of the room was pressumably where this contest was happening. It was a setup with a few Atari computers lined up and a projector TV projecting the game onto a screen right up front.
+The conference room was beige. As beige as a 1980s conference room could be. Some chairs were stacked away on the sides of the room and there were a few Atari posters on the walls. A few balloons as well. But right near the front of the room was presumably where this contest was happening. It was a setup with a few Atari computers lined up and a projector TV projecting the game onto a screen right up front.
 
-Some people with Atari came up to us and asked us if we were there for the contest. I responded yes. They looked us over as if we were some misfit freaks. While I was 14 at the time, my dad was 63 and looked older thanks to the stresses of suriving the Holocaust and World War II. We didn’t look like father and son as much as grandfather and grandchild. “Okay, well here let me write down your name,” and with that the guy wrote down my name on some list of contest entrants. I looked at the list and it was small, but clearly had a few other entrants on it. They asked us what borough we were from and I could clearly see I was the only kid from Brooklyn; everyone else was from Manhattan.
+Some people with Atari came up to us and asked us if we were there for the contest. I responded yes. They looked us over as if we were some misfit freaks. While I was 14 at the time, my dad was 63 and looked older thanks to the stresses of surviving the Holocaust and World War II. We didn’t look like father and son as much as grandfather and grandchild. “Okay, well here let me write down your name,” and with that the guy wrote down my name on some list of contest entrants. I looked at the list and it was small, but clearly had a few other entrants on it. They asked us what borough we were from and I could clearly see I was the only kid from Brooklyn; everyone else was from Manhattan.
 
 We puttered around the conference room and I asked if we could play the game. “Sure,” the guy said and handed me a joystick.
 
@@ -134,13 +134,13 @@ This was the first time I was playing the actual home computer version of *Centi
 
 I was doing well, but not great. My idea that I could somehow practice by playing *Megalegs* was clearly not a great plan. The gameplay and patterns were clearly different despite the games visually looking similar.
 
-But I was doing pretty well. At some point while I was playing some kid came in—pressumably one of the kids I would be up against—and watched me play. “Wow!” he said. “You’re pretty good,” he added.
+But I was doing pretty well. At some point while I was playing some kid came in—presumably one of the kids I would be up against—and watched me play. “Wow!” he said. “You’re pretty good,” he added.
 
 “Yeah,” I said to him while still in the middle of playing. “I’ve been practicing at home,” I added.
 
 The kid gasped and said, “You cheated!” since we all knew the game was out already.
 
-“No I didn’t. It’s this other game *Megalegs*,” I explained. And with that he and some of his friends moved aside and started talking amoungst themselves.
+“No I didn’t. It’s this other game *Megalegs*,” I explained. And with that he and some of his friends moved aside and started talking amongst themselves.
 
 I finished playing my practice game and scored a pretty solid score. The guy running the thing came over and said, “Wow! You’re sure to win now!” Just as my dad came by.
 
@@ -156,13 +156,13 @@ I walked over and said, “I can help.” And switched off the computer, held do
 
 “I have one at home,” I told the woman from Atari. She smiled as the other guy running the thing came over, saw what was happening and said, “Yeah, the kid fixed it. We just have to wait now.”
 
-After a while *Centipede* loaded and the guy running the comptetion all asked us to come up front. He basically said he would be starting the competition and it would go by the order of people on the sign-up list.
+After a while *Centipede* loaded and the guy running the competition all asked us to come up front. He basically said he would be starting the competition and it would go by the order of people on the sign-up list.
 
 I knew I wasn’t at the top of the list, so I knew I wasn’t first. But I checked the list and there wasn’t more than one or two other people signed up after me.
 
 I watched as other kids played. They did well, but nowhere near my score. Then one kid started playing and blew my score away. I was worried, but tried to be cool.
 
-Soon it was my turn. I did pretty well depsite my palms being incredibly sweaty and my hands shaking a bit.
+Soon it was my turn. I did pretty well despite my palms being incredibly sweaty and my hands shaking a bit.
 
 When the digital dust settled my score was high, but not high enough. It was lower than my practice score and lower than that other kids, but it was still high.
 
@@ -170,21 +170,21 @@ The next kid bombed hard. I barely think he shot anything at all when I think of
 
 The last kid was nowhere to be found. So when the dust settled, the contest was over and I was in second place! No first place, but hey… I won something!
 
-They had me pose with the winner. It was an awkward photo at best since I was the only kid there that looked like a scrappy street kid even when I was cleaned up. The othe kids were basically WASPy kids from either the Upper East Side or Upper West Side and seemed to have matching Izod Lacoste polo shirts on.
+They had me pose with the winner. It was an awkward photo at best since I was the only kid there that looked like a scrappy street kid even when I was cleaned up. The other kids were basically WASPy kids from either the Upper East Side or Upper West Side and seemed to have matching Izod Lacoste polo shirts on.
 
-I held up my two fingers in a “V for Victory” formatation and the Atari guy—who was takig pics with a Polaroid—said something like “Two fingers! For second place! Nice!”
+I held up my two fingers in a “V for Victory” formation and the Atari guy—who was taking pics with a Polaroid—said something like “Two fingers! For second place! Nice!”
 
 Was a bit pissed about that but who cared.
 
-The guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well,
+The guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well.
 
 ***
 
-Just as we finished up, some people dressed as Pac-Man and a red ghost showed up and apparently there was a small promotional “parade” that was going to wind it’s way through the store. In my dellusional enthusiam at my winning 2nd place at the comptetition I thought the parade was for us kids and we could march along with them.
+Just as we finished up, some people dressed as Pac-Man and a red ghost showed up and apparently there was a small promotional “parade” that was going to wind it’s way through the store. In my delusional enthusiasm at my winning 2nd place at the competition I thought the parade was for us kids and we could march along with them.
 
 So me and my dad tagged along as Pac-Man and the red ghost meandered around Macy’s that afternoon.
 
-After a while—just when it started to feel real awkward—me and my dad peeled ourselves away from the parade, headed down the escaltors and headed back into the subway to go home.
+After a while—just when it started to feel real awkward—me and my dad peeled ourselves away from the parade, headed down the escalators and headed back into the subway to go home.
 
 ***
 
@@ -194,7 +194,15 @@ He answered the phone, said “Hello…” and then I told him the good news: �
 
 ***
 
-About 6 weeks later I asked my dad if anything
+About 6 weeks later I asked my dad if anything came in the mail for me from Atari. “No,” he said as I went back into my room.
+
+I looked at my calendar and 6 weeks had passed and I still didn’t get that *Centipede* cartridge in the mail. So I pulled out the business card the guy gave me at the competition and called him up. It was about 4:00pm and he was a bit tired sounding on his side of the phone.
+
+“What?” the guy asked. “I won the *Centipede* contest a few weeks ago and I still haven’t got the cartridge in the mail.” “What’s your name?” he asked as he shuffled through some papers. I told him my name, he read off my address, I confirmed it was correct and he said he would send it off today.
+
+A few days later the cartridge showed up in the mail. The packaging was crushed since it just shoved it in a plan manilla envelope, but the game was still good despite the manual being creased.
+
+I popped it in my Atari 400 and started to play it. I was definitely fun, but nowhere near as fun as *Megalegs* was. The truth was I had played *Megalegs* so much since getting it *Centipede* seemed sluggish by comparison.
 
 ***
 
