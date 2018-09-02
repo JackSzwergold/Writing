@@ -122,6 +122,8 @@ The subway trip from the ass end of Brooklyn to 34th Street in Manhattan went as
 
 We headed into Macy’s and started to look around for the contest. The ad clearly said what floor it was on, but Macy’s was a huge place.
 
+After checking some signage and asking around we made our way up the electronics floor.
+
 ***
 
 *Winning an Atari Centipede Contest at Macy’s (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
