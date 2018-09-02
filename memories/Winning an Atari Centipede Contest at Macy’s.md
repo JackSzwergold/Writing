@@ -160,6 +160,28 @@ After a while *Centipede* loaded and the guy running the comptetion all asked us
 
 I knew I wasn’t at the top of the list, so I knew I wasn’t first. But I checked the list and there wasn’t more than one or two other people signed up after me.
 
+I watched as other kids played. They did well, but nowhere near my score. Then one kid started playing and blew my score away. I was worried, but tried to be cool.
+
+Soon it was my turn. I did pretty well depsite my palms being incredibly sweaty and my hands shaking a bit.
+
+When the digital dust settled my score was high, but not high enough. It was lower than my practice score and lower than that other kids, but it was still high.
+
+The next kid bombed hard. I barely think he shot anything at all when I think of it.
+
+The last kid was nowhere to be found. So when the dust settled, the contest was over and I was in second place! No first place, but hey… I won something!
+
+They had me pose with the winner. It was an awkward photo at best since I was the only kid there that looked like a scrappy street kid even when I was cleaned up. The othe kids were basically WASPy kids from either the Upper East Side or Upper West Side and seemed to have matching Izod Lacoste polo shirts on.
+
+I held up my two fingers in a “V for Victory” formatation and the Atari guy—who was takig pics with a Polaroid—said something like “Two fingers! For second place! Nice!”
+
+Was a bit pissed about that but who cared.
+
+The guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP.
+
+***
+
+Just as we finished up, some people dressed as Pac-Man and a red ghost showed up and apparently there was a small promotional “parade” that was going to wind it’s way through the store.
+
 ***
 
 *Winning an Atari Centipede Contest at Macy’s (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
