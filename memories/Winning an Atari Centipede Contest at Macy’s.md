@@ -118,7 +118,9 @@ Soon enough, the weekend of the Atari contest came around. I barely slept the ni
 
 ***
 
+The subway trip from the ass end of Brooklyn to 34th Street in Manhattan went as it always went. Lots of waiting. Lots of sitting around and doing not much of anything. Momentary excitement as we headed over the Manhattan Bridge and then there at 34th Street we were.
 
+We headed into Macy’s and started to look around for the contest. The ad clearly said what floor it was on, but Macy’s was a huge place.
 
 ***
 
