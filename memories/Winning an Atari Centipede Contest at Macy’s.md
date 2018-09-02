@@ -122,7 +122,11 @@ The subway trip from the ass end of Brooklyn to 34th Street in Manhattan went as
 
 We headed into Macy’s and started to look around for the contest. The ad clearly said what floor it was on, but Macy’s was a huge place.
 
-After checking some signage and asking around we made our way up the electronics floor.
+After checking some signage and asking around we made our way up the electronics floor. We passed by this place tons of times and even checked out the video game displays they had in the past, but this contest was not on the main floor. Rather it was in a small conference room near the end of the floor.
+
+The conference room was beige. As beige as a 1980s conference room could be. Some chairs were stacked away on the sides of the room and there were a few Atari posters on the walls. A few balloons as well. But right near the front of the room was pressumably where this contest was happening. It was a setup with a few Atari computers lined up and a projector TV projecting the game onto a screen right up front.
+
+Some people with Atari came up to us and asked us if we were there for the contest. I responded yes. They looked us over as if we were some misfit freaks. While I was 14 at the time, my dad was 63 and looked older thanks to the stresses of suriving the Holocaust and World War II. We didn’t look like father and son as much as grandfather and grandchild. “Okay, well here let me write down your name,” and with that the guy wrote down my name on some list of contest entrants. I looked at the list and it was small, but clearly had a few other entrants on it. They asked us what borough we were from and I could clearly see I was the only kid from Brooklyn; everyone else was from Manhattan.
 
 ***
 
