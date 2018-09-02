@@ -176,7 +176,7 @@ I held up my two fingers in a “V for Victory” formatation and the Atari guy�
 
 Was a bit pissed about that but who cared.
 
-The guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP.
+The guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well.
 
 ***
 
