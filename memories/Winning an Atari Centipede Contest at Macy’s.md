@@ -128,6 +128,32 @@ The conference room was beige. As beige as a 1980s conference room could be. Som
 
 Some people with Atari came up to us and asked us if we were there for the contest. I responded yes. They looked us over as if we were some misfit freaks. While I was 14 at the time, my dad was 63 and looked older thanks to the stresses of suriving the Holocaust and World War II. We didn’t look like father and son as much as grandfather and grandchild. “Okay, well here let me write down your name,” and with that the guy wrote down my name on some list of contest entrants. I looked at the list and it was small, but clearly had a few other entrants on it. They asked us what borough we were from and I could clearly see I was the only kid from Brooklyn; everyone else was from Manhattan.
 
+We puttered around the conference room and I asked if we could play the game. “Sure,” the guy said and handed me a joystick.
+
+This was the first time I was playing the actual home computer version of *Centipede* and not that *Megalegs* knock-off I had at home.
+
+I was doing well, but not great. My idea that I could somehow practice by playing *Megalegs* was clearly not a great plan. The gameplay and patterns were clearly different despite the games visually looking similar.
+
+But I was doing pretty well. At some point while I was playing some kid came in—pressumably one of the kids I would be up against—and watched me play. “Wow!” he said. “You’re pretty good,” he added.
+
+“Yeah,” I said to him while still in the middle of playing. “I’ve been practicing at home,” I added.
+
+The kid gasped and said, “You cheated!” since we all knew the game was out already.
+
+“No I didn’t. It’s this other game *Megalegs*,” I explained. And with that he and some of his friends moved aside and started talking amoungst themselves.
+
+I finished playing my practice game and scored a pretty solid score. The guy running the thing came over and said, “Wow! You’re sure to win now!” Just as my dad came by.
+
+“You did good?” my dad asked and I pointed to the screen and showed him. “Wow! That’s pretty good,” he said as if he actually knew what a high score in *Centipede* might be but still being supportive.
+
+Those kids who I was up against came up to the computer and started to fiddle around with it.
+
+One of them opened up the Atari’s cartridge port to see if they could see the actual *Centipede* cartridge in it… But there was none there! I walked over as the kids quickly closed the lid and the computer booted up to the default “Atari Computer Memo Pad” application.
+
+A woman from the Atari team came by to fix the situation. She looked around the computer and asked someone else for help. She was a bit panicked, but I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari cassette drive. I guess the cartridges weren’t manufactured yet, so this contest would be running the game from the cassette drive.
+
+I walked over and said, “I can help.” And switched off the computer
+
 ***
 
 *Winning an Atari Centipede Contest at Macy’s (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
