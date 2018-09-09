@@ -33,9 +33,9 @@ A friend of Howie’s showed up as we were thinking up a plan. “What are you d
 
 “I’ll stay out here,” said Howie. And his friend agreed. So I guess I was the one who was going to run down the driveway.
 
-“Well, you have to distract her from me when I run down there,” I said. And they nodded yeah, as they looked up. Suddenly the old lady appeared in the window and shouted “What are you doing?!?” as she looked at us.
+“Well, you guys have to distract her from me when I run down there,” I said. And they nodded in agreement when they suddenly looked up: The old lady appeared in the window and started shouting at us as she looked at us.
 
-I shrugged, and just darted down the driveway. She noticed this and panicked and shouted “What!” as Howie and his friend tried to distract them from me.
+Seeing that I just shrugged, and just ran straight down the driveway. She noticed this and panicked and shouted “What!” as Howie and his friend tried to distract them from me.
 
 I was 1/2 way down the alley in no time, and slowed down a bit. I could hear the old lady and Howie and his friend shout and scream behind me. I slowly approached the end of the driveway near the back of the house. And that’s when I saw it. The Big Wheel itself.
 
