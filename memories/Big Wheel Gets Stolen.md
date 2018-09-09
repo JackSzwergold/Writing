@@ -3,13 +3,13 @@
 
 By Jack Szwergold
 
-I was 1978 or 1978 and I was 10 or 11 years old. A little bit vague on the exact year and age, but whatever the year was or my age was, I was definitely aware of the fact I was too old to ride my Big Wheel aorund the block. But I still did becuase I liked to do it.
+I was 1978 or 1978 and I was 10 or 11 years old. A little bit vague on the exact year and age, but whatever the year was or my age was, I was definitely aware of the fact I was too old to ride my Big Wheel around the block. But I still did because I liked to do it.
 
 Yeah, I might have caught myself in the reflection of the windows of Speedway Drugs as I scooted around and realized I looked slightly ridiculous, but I didn’t care. I liked riding that Big Wheel.
 
 One weekend while riding it around the block, I rode it around to the corner of Ocean Parkway and Brighton Beach Avenue and ran into the neighborhood drug dealer and his kids. That description makes it sound so ominous; “drug dealer.” And from my perspective as a young kid, he was definitely a drug dealer and a bookie. But he wasn’t any kind of big deal guy doing shady stuff you wanted to rub the wrong way. He was just poor and kinda sketchy guy who did what he did to get by.
 
-Anyway, his two kids saw me on my Big Wheel and cornered me right near subway entrace. They wanted to ride the Big Wheel and at first I said “No…” but after a few back and forth rounds, I caved in and said “Yes.” They were both smaller and younger than me so I didn’t feel like I was being bullied or anything like that.
+Anyway, his two kids saw me on my Big Wheel and cornered me right near subway entrance. They wanted to ride the Big Wheel and at first I said “No…” but after a few back and forth rounds, I caved in and said “Yes.” They were both smaller and younger than me so I didn’t feel like I was being bullied or anything like that.
 
 So I stood up and got out of the seat and one of them immediately sat down to pedal it and the jumped on the back and stood up right behind as they rode that beat up Big Wheel all the way down the block. Past my building, past the other buildings and all the down to where the oddball private homes were and then they made a right down a driveway.
 
@@ -17,7 +17,7 @@ So I stood up and got out of the seat and one of them immediately sat down to pe
 
 After about an hour or so the sun was setting and the church bells were ringing and I was getting concerned. I walked down the block to see if I could see anything down the alley they went into.
 
-As I walked donw the block, I ran into Howie and told him what happened. “Sounds like they stole it,” he said pretty matter-of-factly. Which when I heard those words said out loud, I began to accept as the truth. At least the truth that existed in my young kid’s head at the time.
+As I walked down the block, I ran into Howie and told him what happened. “Sounds like they stole it,” he said pretty matter-of-factly. Which when I heard those words said out loud, I began to accept as the truth. At least the truth that existed in my young kid’s head at the time.
 
 “So what can I do?” I asked Howie. He shrugged and didn’t know and neither did I. So I suggested we just walk to the house where their driveway was and think it out.
 
