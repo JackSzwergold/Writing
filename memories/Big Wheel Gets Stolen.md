@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-I was 10 or 11. Whatever the age, I was too old to ride my Big Wheel, but I still did.
+I was 1978 or 1978 and I was 10 or 11 years old. A little bit vague on the exact year and age, but whatever the year was or my age was, I was definitely aware of the fact I was too old to ride my Big Wheel aorund the block. But I still did becuase I liked it.
 
 Yeah, I might have caught myself in the reflection of the windows of Speedway drugs as I scooted around and looked slightly ridiculous, but I didn’t care. I liked riding my Big Wheel.
 
