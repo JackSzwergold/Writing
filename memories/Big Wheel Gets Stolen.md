@@ -11,7 +11,7 @@ One weekend while riding it around the block, I rode it around to the corner of 
 
 Anyway, his two kids saw me on my Big Wheel and cornered me right near subway entrace. They wanted to ride the Big Wheel and at first I said “No…” but after a few back and forth rounds, I caved in and said “Yes.” They were both smaller and younger than me so I didn’t feel like I was being bullied or anything like that.
 
-So I got up, one of them got on to pedal it and the other stood up right behind him on the seat and they rode all the way down the block. Past my building, and other other buildings and down to where the private homes were and then down the driveway.
+So I stood up and got out of the seat and one of them immediately sat down to pedal it and the jumped on the back and stood up right behind as they rode that beat up Big Wheel all the way down the block. Past my building, past the other buildings and all the down to where the oddball private homes were and then they made a right down a driveway.
 
 “Don’t worry!” their dad said, “They’ll bring it back.” So I walked back to the front of my building and played around with whatever kids were around.
 
