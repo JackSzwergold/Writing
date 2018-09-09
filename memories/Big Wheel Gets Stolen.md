@@ -47,7 +47,7 @@ I could hear the kids shouting as they chased after me, but was more worried abo
 
 The old lady turned her head to see me running down the driveway and just exclaimed, “Oh!?!” paused, ducked inside and then we knew that  bucket full of water or whatever the hell she had was going to come flying out that window at any moment.
 
-I ran harder with the kids behind me trying to catch up. Just as I got past the area right beneath the old lady’s window, I could hear the sound of a bucket of kiquid being dumped. But it thankfully missed me.
+Knowing that, I ran harder with the kids behind me trying to catch up. Just as I got past the area beneath the old lady’s window, I could hear the sound of a bucket of liquid being dumped. It smacked straight onto th ground, but it thankfully missed me.
 
 It crashed on the ground in the alley and stopped the drug dealer’s kids in their tracks. Once I got to the sidewalk, I high fived Howie and his friend and we all started to make a beeline down the block. By then a few older people and adults came around to see what was happening.
 
