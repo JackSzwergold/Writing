@@ -7,7 +7,7 @@ I was 1978 or 1978 and I was 10 or 11 years old. A little bit vague on the exact
 
 Yeah, I might have caught myself in the reflection of the windows of Speedway Drugs as I scooted around and realized I looked slightly ridiculous, but I didn’t care. I liked riding that Big Wheel.
 
-One weekend, I rode it around to the corner of Ocean Parkway and Brighton Beach Avenue when I ran into the neighborhood drug dealer and his kids. That makes it sound so ominous; “drug dealer.” And from my kids perspective he was definitely a drug dealer and a bookie. But he wasn’t any kinda big guy you wanted to rub the wrong way. He was just poor and a bit sketchy.
+One weekend while riding it around the block, I rode it around to the corner of Ocean Parkway and Brighton Beach Avenue and ran into the neighborhood drug dealer and his kids. That description makes it sound so ominous; “drug dealer.” And from my perspective as a young kid, he was definitely a drug dealer and a bookie. But he wasn’t any kind of big deal guy doing shady stuff you wanted to rub the wrong way. He was just poor and kinda sketchy guy who did what he did to get by.
 
 Anyway, his two kids saw me on my Big Wheel and cornered me. They wanted to ride it. At first I said “No…” but after a while I caved in and said yes. They were both smaller and younger than me so I don’t feel so bad.
 
