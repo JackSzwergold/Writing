@@ -29,7 +29,7 @@ The front yard was overgrown but oddly beautiful. Lots of lilacs and other flowe
 
 So knowing that, Howie and I approached that driveway as carefully as we could. The old lady’s corner window was opened up, but she was nowhere to be seen. Still, she was a risk to us kids. So we had to devise a plan.
 
-A friend of Howie’s showed up as we were thinking up a plan. “What are you doing?” he asked and we explained the whole situation to him. After a while I devised the brilliant plan: The drug dealer and his kids lived in a shack or garage behind the house. One of us would have to run down the driveway, head to their shack, grab the Big Wheel and run back out.
+A friend of Howie’s showed up as we were thinking up a plan. “What are you doing?” he asked and we explained the whole situation to him. After a while I devised a brilliant plan: The drug dealer and his kids lived in some kind of shack—or modified garage—behind the house. One of us would run down the driveway, head to their shack, grab the Big Wheel and run back out.
 
 “I’ll stay out here,” said Howie. And his friend agreed. So I guess I was the one who was going to run down the driveway.
 
