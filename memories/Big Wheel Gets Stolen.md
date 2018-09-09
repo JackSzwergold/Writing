@@ -39,13 +39,13 @@ Seeing that I just shrugged, and just ran straight down the driveway. She notice
 
 I was more than half way down the alley in no time, and slowed down a bit. I could hear the old lady and Howie and his friend shout and scream behind me, but that wasn’t my concern at that moment. As I moved close to the way and slowly walked down the last few steps of the driveway, that’s when I saw it: The Big Wheel itself.
 
-It was in good shape and sitting just outside of the swung open wooden door of the shack or garage the guy lived in. While nobody saw me sneaking up, to get the Big Wheel I definitely need to run somewhere in front of that open door.
+It was in good shape and sitting just outside of the swung open wooden door of the shack they all lived in. While nobody—except that old lady—saw me sneaking up, to get the Big Wheel I needed to basically run in front of that open door, grab it and get out.
 
-So I calmed down, walked slowly towards the Big Wheel, got it by the handles, and barely peeked into the shack they all lived in. I saw the kids and I saw what looked like a sheet draped over a bed or couch. The second I grabbed the Big Wheel, the kids turned around and saw me and shouted “Hey!” so I stopped rolling it and picked it up by the front handles and started running back down the alley.
+So I took a few deep breaths, walked slowly towards the Big Wheel, grabbed it by the handles, and quickly peeked into the shack they all lived in as I pushed it towards the driveway. I could see the kids and I saw what looked like a sheet draped over a bed or couch. The kids didn’t initially notice me, but the second I grabbed the Big Wheel, the kids turned around, saw me and shouted “Hey!” so I stopped rolling it and picked it up by the front fork and started running back down the alley.
 
-I could still hear the kids shouting behind me, but was more worried about what was in front of me: That screaming old lady. Howie and his friend saw me and shouted at me, “Okay! Come on!” and all that.
+I could hear the kids shouting as they chased after me, but was more worried about what was in front of me: That screaming old lady. Howie and his friend saw me and shouted at me, “Okay! Come on!” and all that.
 
-The old lady turned around to see me running down the driveway and just exclaimed, “Oh!” paused and then we knew what was coming next: A bucket full of water or whatever.
+The old lady turned her head to see me running down the driveway and just exclaimed, “Oh!?!” paused, ducked inside and then we knew what was coming next: A bucket full of water or whatever the hell she had 
 
 I ran harder with the drug dealers kids behind me trying to catch up. Just as I got past the area just beneath the old lady’s window, I could here the sound of a bucket being dumped. But it missed me.
 
