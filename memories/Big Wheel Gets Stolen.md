@@ -23,13 +23,13 @@ As I walked donw the block, I ran into Howie and told him what happened. “Soun
 
 The house was odd and had a somewhat “haunted”—but cool—look about it in that semi-abandoned house sorta way. I knew that one half of the house—the right side—was either owned by or rented out to some Orthodox Jewish family because occasionally my mom would go there and I would tag along. Those Orthodox kids always looked pasty skinned and would react weirdly to some of the toys and things I would talk about.
 
-The other side of the house was the weirder place.
+The other side of the house was the really weirder part of the equation.
 
-The front yard was overgrown but oddly beautiful. Lots of lilacs and other flowers. You’d always hear sparrows chirping or see bees buzzing around the yard on any spring day. But all we knew about who owned it was that there was some old lady on the top floor who would flip out and start cursing gibberish if kids played near the driveway facing her windows. And if her crazy babbling old lady nonsense didn’t scare the kids away, she always seemed to have a bucket of water—at least I hope it was water—ready to toss on the kids to get the to leave the driveway.
+The front yard was overgrown but oddly beautiful. Lots of lilacs and other flowers. You’d always hear sparrows chirping or see bees buzzing around the yard on any spring day. But all we knew about who owned it was that there was some old lady on the top floor who would flip out and start shouting gibberish sprinkled with curses if kids played near the driveway facing her windows. And if her crazy babbling old lady nonsense didn’t scare the kids away, she always seemed to have a bucket of water—at least we all hoped it was water—ready to toss on the kids to get them to leave the driveway.
 
-Howie and I approached it carefully. The old lady’s corner window was opened up, but nowhere to be seen. Still, she was a risk to us kids. So we had to devise a plan.
+So knowing that, Howie and I approached that driveway as carefully as we could. The old lady’s corner window was opened up, but she was nowhere to be seen. Still, she was a risk to us kids. So we had to devise a plan.
 
-A friend of Howie’s showed up as we were thinking up a plan. “What are you doing?” he asked. And we explained. After a while I devised the brilliant plan: The drug dealer and his kids lived in a shack or garage behind the house. One of us would have to run down the driveway, head to their shack, grab the Big Wheel and run back out.
+A friend of Howie’s showed up as we were thinking up a plan. “What are you doing?” he asked and we explained the whole situation to him. After a while I devised the brilliant plan: The drug dealer and his kids lived in a shack or garage behind the house. One of us would have to run down the driveway, head to their shack, grab the Big Wheel and run back out.
 
 “I’ll stay out here,” said Howie. And his friend agreed. So I guess I was the one who was going to run down the driveway.
 
