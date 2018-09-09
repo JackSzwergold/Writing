@@ -47,11 +47,11 @@ I could hear the kids shouting as they chased after me, but was more worried abo
 
 The old lady turned her head to see me running down the driveway and just exclaimed, “Oh!?!” paused, ducked inside and then we knew that  bucket full of water or whatever the hell she had was going to come flying out that window at any moment.
 
-Knowing that, I ran harder with the kids behind me trying to catch up. Just as I got past the area beneath the old lady’s window, I could hear the sound of a bucket of liquid being dumped. It smacked straight onto th ground, but it thankfully missed me.
+Knowing that, I ran harder with the kids behind me trying to catch up. Just as I got past the area beneath the old lady’s window, I could hear the sound of a bucket of liquid being dumped. It smacked straight onto the ground behind me and thankfully missed me. But the splash did manage to stop those kids right in their tracks.
 
-It crashed on the ground in the alley and stopped the drug dealer’s kids in their tracks. Once I got to the sidewalk, I high fived Howie and his friend and we all started to make a beeline down the block. By then a few older people and adults came around to see what was happening.
+Once I got to the sidewalk, I high fived Howie and his friend and we all started to make a beeline down the block. By then a few older people and other miscellaneous adults came around to see what the commotion was about.
 
-I got onto the Big Wheel and pedaled it back to my building. I waved back to Howie and his friend as I passed their building and headed back to my building deeper down the block.
+With the coast being pretty much clear, I got onto the Big Wheel, waved back to Howie and his friend and just rode it straight back to my building.  
 
 My dad was in front of the building sitting in a folding chair and asked, “What happened?” and I looked at him and said “Nothing!” as I got off of the Big Wheel, rolled it to the lobby of the building and got my mom to buzz me in.
 
