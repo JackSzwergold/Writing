@@ -3,9 +3,9 @@
 
 By Jack Szwergold
 
-I was 1978 or 1978 and I was 10 or 11 years old. A little bit vague on the exact year and age, but whatever the year was or my age was, I was definitely aware of the fact I was too old to ride my Big Wheel aorund the block. But I still did becuase I liked it.
+I was 1978 or 1978 and I was 10 or 11 years old. A little bit vague on the exact year and age, but whatever the year was or my age was, I was definitely aware of the fact I was too old to ride my Big Wheel aorund the block. But I still did becuase I liked to do it.
 
-Yeah, I might have caught myself in the reflection of the windows of Speedway drugs as I scooted around and looked slightly ridiculous, but I didn’t care. I liked riding my Big Wheel.
+Yeah, I might have caught myself in the reflection of the windows of Speedway Drugs as I scooted around and realized I looked slightly ridiculous, but I didn’t care. I liked riding that Big Wheel.
 
 One weekend, I rode it around to the corner of Ocean Parkway and Brighton Beach Avenue when I ran into the neighborhood drug dealer and his kids. That makes it sound so ominous; “drug dealer.” And from my kids perspective he was definitely a drug dealer and a bookie. But he wasn’t any kinda big guy you wanted to rub the wrong way. He was just poor and a bit sketchy.
 
