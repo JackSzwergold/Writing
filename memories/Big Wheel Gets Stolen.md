@@ -9,7 +9,7 @@ Yeah, I might have caught myself in the reflection of the windows of Speedway Dr
 
 One weekend while riding it around the block, I rode it around to the corner of Ocean Parkway and Brighton Beach Avenue and ran into the neighborhood drug dealer and his kids. That description makes it sound so ominous; “drug dealer.” And from my perspective as a young kid, he was definitely a drug dealer and a bookie. But he wasn’t any kind of big deal guy doing shady stuff you wanted to rub the wrong way. He was just poor and kinda sketchy guy who did what he did to get by.
 
-Anyway, his two kids saw me on my Big Wheel and cornered me. They wanted to ride it. At first I said “No…” but after a while I caved in and said yes. They were both smaller and younger than me so I don’t feel so bad.
+Anyway, his two kids saw me on my Big Wheel and cornered me right near subway entrace. They wanted to ride the Big Wheel and at first I said “No…” but after a few back and forth rounds, I caved in and said “Yes.” They were both smaller and younger than me so I didn’t feel like I was being bullied or anything like that.
 
 So I got up, one of them got on to pedal it and the other stood up right behind him on the seat and they rode all the way down the block. Past my building, and other other buildings and down to where the private homes were and then down the driveway.
 
