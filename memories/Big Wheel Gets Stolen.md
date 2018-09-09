@@ -45,9 +45,9 @@ So I took a few deep breaths, walked slowly towards the Big Wheel, grabbed it by
 
 I could hear the kids shouting as they chased after me, but was more worried about what was in front of me: That screaming old lady. Howie and his friend saw me and shouted at me, “Okay! Come on!” and all that.
 
-The old lady turned her head to see me running down the driveway and just exclaimed, “Oh!?!” paused, ducked inside and then we knew what was coming next: A bucket full of water or whatever the hell she had 
+The old lady turned her head to see me running down the driveway and just exclaimed, “Oh!?!” paused, ducked inside and then we knew that  bucket full of water or whatever the hell she had was going to come flying out that window at any moment.
 
-I ran harder with the drug dealers kids behind me trying to catch up. Just as I got past the area just beneath the old lady’s window, I could here the sound of a bucket being dumped. But it missed me.
+I ran harder with the kids behind me trying to catch up. Just as I got past the area right beneath the old lady’s window, I could hear the sound of a bucket of kiquid being dumped. But it thankfully missed me.
 
 It crashed on the ground in the alley and stopped the drug dealer’s kids in their tracks. Once I got to the sidewalk, I high fived Howie and his friend and we all started to make a beeline down the block. By then a few older people and adults came around to see what was happening.
 
