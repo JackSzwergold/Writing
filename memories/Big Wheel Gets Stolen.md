@@ -15,9 +15,9 @@ So I stood up and got out of the seat and one of them immediately sat down to pe
 
 “Don’t worry!” their dad said, “They’ll bring it back.” So I walked back to the front of my building and played around with whatever kids were around.
 
-After about an hour or so the sun was setting and the church bells were ringing and I was getting concerned. I walked down the block to see if I could see anything from their alley.
+After about an hour or so the sun was setting and the church bells were ringing and I was getting concerned. I walked down the block to see if I could see anything down the alley they went into.
 
-Then I ran into Howie and told him what happened. “Sounds like they stole it,” he said. Which I began to accept as the truth. At least the truth that existed in my 10 year old head at the time.
+As I walked donw the block, I ran into Howie and told him what happened. “Sounds like they stole it,” he said. Which I began to accept as the truth. At least the truth that existed in my 10 year old head at the time.
 
 “So what can I do?” I asked Howie. He shrugged and didn’t know and neither did I. So I suggested we just walk to the house where their driveway was and then think it out.
 
