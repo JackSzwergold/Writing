@@ -21,7 +21,7 @@ As I walked donw the block, I ran into Howie and told him what happened. “Soun
 
 “So what can I do?” I asked Howie. He shrugged and didn’t know and neither did I. So I suggested we just walk to the house where their driveway was and think it out.
 
-The house was odd and somewhat “Haunted” but cool in that semi-abandoned sorta way. I know one half of the house—the right side—was either owned by or rented out to some Orthodox Jewish family because occasionally my mom would go there and I would tag along. The kids always looked pasty skinned and would react weirdly to some of the toys and things I would talk about.
+The house was odd and had a somewhat “haunted”—but cool—look about it in that semi-abandoned house sorta way. I knew that one half of the house—the right side—was either owned by or rented out to some Orthodox Jewish family because occasionally my mom would go there and I would tag along. Those Orthodox kids always looked pasty skinned and would react weirdly to some of the toys and things I would talk about.
 
 The other side of the house was the weirder place.
 
