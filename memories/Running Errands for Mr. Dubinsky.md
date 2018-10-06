@@ -34,9 +34,11 @@ I’d give him the small paper shopping bag that had the hydrogen peroxide bottl
 
 While Mr. Dubinsky didn’t have much in terms of objects or posessions in his apartment, I was blown away by the apartment’s westward view. Since the apartment was facing Ocean Parkway—and there were no other buildings or objects in the way—the place was always sun drenched and the view was mostly sky and tree tops.
 
-I’d run a few errands over the next few months on an off for Mr. Dubinsky, but eventually they stopped. I didn’t know what happened, but months later my dad mentioned in passing that Mr. Dubinsky had died.
+I’d run back down to my family’s apartment, put the change in my little toy safe on my desk and then go back to doing whatever kid stuff I did.
 
-No great fanfare or sadness. He was just dead and his apartment was rented out to someone else.
+Over the next few months I’d run a few errands every now and then for Mr. Dubinsky, but eventually they just kind of stopped without any explanation. I didn’t know what happened, but months later my dad mentioned in passing that Mr. Dubinsky had died and that was that.
+
+There wasn’t any great fanfare or sadness about that. One day Mr. Dubinsky was alive and then the next he was just dead and—eventually—his apartment was rented out to someone else whose name I never knew.
 
 ***
 
