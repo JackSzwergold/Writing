@@ -6,7 +6,7 @@ It was the 1970s and I was maybe 8 or 9 years old at the time. I didn’t necess
 
 The errands consisted of of the most basic and predictable stuff a kid would be asked to do: Go out and buy loaf of bread here, or buy a container of milk there… Maybe go out and score a newspaper? The errands were unpredictable but managable for a kid to handled. They were arbitrary, sporadic and mainly consisted of me running outside to get odds and ends when my parents were too tired or lazy to get them themselves.
 
-Occasionally, though I would run errands for an old man in the building named Mr. Dubinsky. He kinda looked like my dad, but was clearly older than him. My dad—who had me when he was older—was in his 50s and I am pretty sure Mr. Dubinsky was in his late 60s when I was a kid.
+Occasionally, though my dad would get me to run errands for another old man in the building named Mr. Dubinsky. He kinda looked like my dad, but was clearly older than him. My dad—who had me when he was in his late 40s—was in his 50s when I was a kid and I am pretty sure Mr. Dubinsky was in his late 60s around that time in the 1970s.
 
 I didn’t know much about Mr. Dubinsky other than I always saw him hanging out in front of the building wearing a darkish raincoat or overcoat or something like that. Seemed like a decent guy. Can’t say much past that.
 
