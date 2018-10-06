@@ -30,15 +30,15 @@ Then my friend—seemingly out of nowhere—blurts out, “Hey! Do you want to s
 
 Lori and Lauren looked at each other, then looked at us and simply asked, “Where?” Lori stared at us and began eating her peanut butter and jelly sandwich again while awaiting our response.
 
-“Here!” my friend said as he looked at me while shaking his thumb at me under the table.
+“Here!” my friend said as he looked at me while shaking his thumb at me under the table and nodding “Yes!” to me.
 
-I took that thumb to mean “Thumbs up! All cool!” so with that we both unzipped the zipper on our pants.
+I took that thumb to mean “Thumbs up! All cool!” and didn’t think too hard about it meaning anything else. So with that we both unzipped the zippers on our pants and got ready to show them something.
 
 “Look under the table!” he said to them.
 
-And with that, I pulled my 9 year old “pepe” out of my pants and held it there for Lori and Lauren to check out.
+And with that, I pulled my 9 year old “pepe” out of my pants and held it out there for Lori and Lauren to check out.
 
-The both leaned under the table to see what they could see. I leaned back a bit to see what was happening and then saw it: While I had my actual “pepe” out, my friend just shoved his hand down his jeans and shoved his thumb through the zipper.
+They both leaned under the table to see what they could see. I leaned back a bit to see what was happening and then saw it: While I had my actual “pepe” out, my friend just shoved his hand down his jeans and shoved his thumb through the zipper.
 
 “You’re cheating!” I whispered and then he looked at me, gasped and said, “Why are you really showing it?!?!”
 
