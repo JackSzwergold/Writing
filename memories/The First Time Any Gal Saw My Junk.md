@@ -20,9 +20,9 @@ The pictures really sucked by 9 year old boy standards. They were basically the 
 
 Lauren, a bit dejected, took back the copy of *Teen Beat* and started to flip trough it again.
 
-Lori stopped eating her peanut butter and jelly sandwich and simply said, “Well, what you have to show us?”
+Lori looked at Lauren, stopped eating her peanut butter and jelly sandwich and simply said, “Well, what you have to show us?”
 
-I looked at my friend and we both shrugged. I rifled through my jacket pockets but didn’t have much to show past maybe a few coins, a *Star Wars* card or two and maybe a Matchbox car.
+I looked at my friend and we both shrugged. What the heck did Lori want us to show them? I rifled through my jacket pockets but didn’t have much to show past maybe a few coins, a *Star Wars* card or two and maybe a Matchbox car.
 
 I took them out and showed them to Lori and Lauren and then just rolled their eyes.
 
