@@ -24,7 +24,7 @@ I’d buzz Mr. Dubinsky’s buzzer and he would shout “Who is it!” and I’d
 
 He lived on the third floor on our side of the building—one flight up from my family’s place—in an apartment that looked out of the front of the building faced Ocean Parkway. Once I got to his hallway you could sometimes see the light from the peephole flicker a bit as he opened it up to look down to the hallway and see who was coming.
 
-Then when I got to the door, he’d open up the door, and let me into his apartment.
+Then when I got to the door, he’d open it up and let me into his apartment.
 
 The apartment was sparse and barely furnished. There was pretty much no carpeting and just a small rug near his bed; the floors were exposed hardwood and worn out in spots. A few pots, pans plates could be spotted in the kitchen near the doorway and a few token pictures on the wall and maybe one dresser, one bed and a few chairs could be spotted in the main part of the apartment. From my recollections, pretty much all of what he owned could probably shoved into one medium sized suitcase; the rest could easily have been abandoned and tossed in the trash. Clearly nobody else lived with him.
 
