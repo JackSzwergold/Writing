@@ -28,7 +28,7 @@ I took whatever I had out, showed it to Lori and Lauren and then they just rolle
 
 Then my friend—seemingly out of nowhere—blurts out, “Hey! Do you want to see our pepes.” And by “pepe” he meant “pipi” and by “pipi” he meant “penis” since all of us kids knew “pipi” was just cute slang for the “penis.”
 
-Lori and Lauren looked at each other and then looked at us and simply asked, “Where?” Lori began eating her peanut butter and jelly sandwich again awaiting our response.
+Lori and Lauren looked at each other, then looked at us and simply asked, “Where?” Lori stared at us and began eating her peanut butter and jelly sandwich again while awaiting our response.
 
 “Here!” my friend said as he looked at me and shook his thumb at me under the table while he looked at me.
 
