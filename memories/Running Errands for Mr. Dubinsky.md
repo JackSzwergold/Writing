@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-I was maybe 8 or 9. I didn’t necessarily want or need a job—my $2 a week allowance worked well for my needs at the time—but my dad would get me to run errands and let me keep some of the change every now and then.
+It was the 1970s and I was maybe 8 or 9 years old at the time. I didn’t necessarily want or need a job—my $2 a week allowance worked well for my humble needs at the time—but my dad would get me to run errands every now and then and let me keep some of the left-over change from the transaction.
 
 Errands basically consisted of the predictable: A loaf of bread here, a container of milk there… Maybe a newspaper? Who knew. It was sporadic and mainly consisted of getting odds and ends when my parents were too tired or lazy to get them themselves.
 
