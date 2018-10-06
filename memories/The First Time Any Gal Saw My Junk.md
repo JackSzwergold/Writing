@@ -30,7 +30,7 @@ Then my friend—seemingly out of nowhere—blurts out, “Hey! Do you want to s
 
 Lori and Lauren looked at each other, then looked at us and simply asked, “Where?” Lori stared at us and began eating her peanut butter and jelly sandwich again while awaiting our response.
 
-“Here!” my friend said as he looked at me and shook his thumb at me under the table while he looked at me.
+“Here!” my friend said as he looked at me while shaking his thumb at me under the table.
 
 I took that thumb to mean “Thumbs up! All cool!” so with that we both unzipped the zipper on our pants.
 
