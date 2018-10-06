@@ -26,7 +26,7 @@ He lived on the third floor on our side of the building—one flight up from my 
 
 Then when I got to the door, he’d open it up and let me into his apartment.
 
-Mr. Dubinsky’s apartment was sparse and barely furnished if you could call it furnished at all. There was pretty much no carpeting and just a small rug near his bed; the floors were exposed hardwood and worn out in spots. A few pots, pans plates could be spotted in the kitchen near the doorway and a few token pictures on the wall and maybe one dresser, one bed and a few chairs could be spotted in the main part of the apartment. From my recollections, pretty much all of what he owned could probably shoved into one medium sized suitcase; the rest could easily have been abandoned and tossed in the trash. Clearly nobody else lived with him.
+Mr. Dubinsky’s apartment was sparse and barely furnished if you could call it furnished at all. There was pretty much no carpeting and just a small rug near his bed; the floors were exposed hardwood and worn out in spots. A few pots, pans plates could be spotted in the kitchen near the doorway and a few token pictures on the wall and maybe one dresser, one bed and a few chairs were in the main area of the apartment. From my recollections, pretty much all of what he owned could probably shoved into one medium sized suitcase; the rest could easily have been abandoned and tossed in the trash. Clearly nobody else lived with him.
 
 I’d give him the paper bag that had the hydrogen peroxide and the change. He would look over the contents of the bag, the receipt inside and count the change and then give me back the bulk of the change.
 
