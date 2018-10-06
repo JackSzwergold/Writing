@@ -28,7 +28,7 @@ Then when I got to the door, he’d open it up and let me into his apartment.
 
 Mr. Dubinsky’s apartment was sparse and barely furnished if you could call it furnished at all. There was pretty much no carpeting and just a small rug near his bed; the floors were exposed hardwood and worn out in spots. A few pots, pans plates could be spotted in the kitchen near the doorway and a few token pictures on the wall and maybe one dresser, one bed and a few chairs were in the main area of the apartment. From my recollections, pretty much all of what he owned could probably shoved into one medium sized suitcase or kept in a small closet; the rest could easily have been abandoned and tossed in the trash without much care or concern. It was clear even to me as a kid that nobody else lived with him.
 
-I’d give him the paper bag that had the hydrogen peroxide and the change. He would look over the contents of the bag, the receipt inside and count the change and then give me back the bulk of the change.
+I’d give him the small paper shopping bag that had the hydrogen peroxide bottle in it as well as the change I got back from the transacation. He would open up the bag, check out the hydrogen peroxide bottle and look over the receipt inside, count the change and then pretty much gave me back the bulk of the change as my “tip” for running the errand.
 
 “Thank you,” he would say with a thick European accent has he handed me a small pile of coins as we both walked back to the front door.
 
