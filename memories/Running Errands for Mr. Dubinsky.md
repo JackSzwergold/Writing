@@ -4,7 +4,7 @@ By Jack Szwergold
 
 It was the 1970s and I was maybe 8 or 9 years old at the time. I didn’t necessarily want or need a job—my $2 a week allowance worked well for my humble needs at the time—but my dad would get me to run errands every now and then and let me keep some of the left-over change from the transaction.
 
-Errands basically consisted of the predictable: A loaf of bread here, a container of milk there… Maybe a newspaper? Who knew. It was sporadic and mainly consisted of getting odds and ends when my parents were too tired or lazy to get them themselves.
+The errands consisted of of the most basic and predictable stuff a kid would be asked to do: A loaf of bread here, a container of milk there… Maybe a newspaper? Who knew. It was sporadic and mainly consisted of getting odds and ends when my parents were too tired or lazy to get them themselves.
 
 Occasionally, though I would run errands for an old man in the building named Mr. Dubinsky. He kinda looked like my dad, but was clearly older than him. My dad—who had me when he was older—was in his 50s and I am pretty sure Mr. Dubinsky was in his late 60s when I was a kid.
 
