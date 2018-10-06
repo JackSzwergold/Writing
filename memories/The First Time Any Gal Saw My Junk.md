@@ -24,9 +24,9 @@ Lori looked at Lauren, stopped eating her peanut butter and jelly sandwich and s
 
 I looked at my friend and we both shrugged. What the heck did Lori want us to show them? I rifled through my jacket pockets but didn’t have much to show past maybe a few coins, a *Star Wars* card or two and maybe a Matchbox car. Basically just elementary school boy bullshit and lint and not much else.
 
-I took whatever I had out, showed it to Lori and Lauren and then they just rolled their eyes and went back to whatever they were doing.,
+I took whatever I had out, showed it to Lori and Lauren and then they just rolled their eyes and went back to whatever they were doing.
 
-Then my friend says, “Hey! Do you want to see our pepes.” And by “pepe” he meant “pipi” which all us kids knew to be a reference to the penis.
+Then my friend—seemingly out of nowhere—blurts out, “Hey! Do you want to see our pepes.” And by “pepe” he meant “pipi” and by “pipi” which all us kids knew to be a reference to the penis.
 
 Lori and Lauren looked at each other and then looked at us and simply asked, “Where?” Lori began eating her peanut butter and jelly sandwich again awaiting our response.
 
