@@ -1,4 +1,5 @@
 ## The First Time Any Gal Saw My Junk
+### About the Time Me and an Elementary School Friend Played an Improvised Game of ”Show and Tell”
 
 By Jack Szwergold
 
