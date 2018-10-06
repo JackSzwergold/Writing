@@ -10,7 +10,7 @@ Occasionally, though my dad would get me to run errands for another old man in t
 
 As a kid, I didn’t know much about Mr. Dubinsky other than I always saw him hanging out in front of our building wearing a darkish raincoat or overcoat or something like that. Gossiping, hanging out and watching the days pass with the other old yentas and their folding chairs in front of the building. He seemed like a decent guy from all I could tell and I can’t say much past that.
 
-Occasionally at home, my dad would volunteer some trivial facts about Mr. Dubinsky seemingly out of nowhere during the course of the day. I don’t remember much other than Mr. Dubinsky was a war veteran of some kind. Maybe in the Polish army or some other Eastern European armed force… Definitely not the U.S. army.
+Occasionally at home, my dad would volunteer some trivial facts about Mr. Dubinsky seemingly out of nowhere during the course of the day. Like my dad would be vaccuming and I would hear about how Mr. Dubinsky served in such-and-such army in Eastern Europe during World War II. Or this happened to him or that happened to him. I don’t remember much other than Mr. Dubinsky was a war veteran of some kind. Maybe in the Polish army or some other Eastern European armed force… Definitely not the U.S. army. All I knew is it seemed like my dad and Mr. Dubinsky bonded over World War II experiences on a deeper level than most.
 
 Anyway, one day I was playing around in my room when my dad came in from outside and asked me if I wanted to go and run an errand for Mr. Dubinsky.
 
