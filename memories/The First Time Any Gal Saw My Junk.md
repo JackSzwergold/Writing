@@ -40,7 +40,7 @@ And with that, I pulled my 9 year old “pepe” out of my pants and held it out
 
 They both leaned under the table to see what they could see. I leaned back a bit to see what was happening and then saw it: While I had my actual “pepe” out, my friend just shoved his hand down his jeans and shoved his thumb through the zipper.
 
-“You’re cheating!” I whispered and then he looked at me, gasped and said, “Why are you really showing it?!?!”
+“You’re cheating!” I whispered and then he looked at me, gasped and said, “Why are you really showing it?!?”
 
 We both leaned forward again as Lori and Lauren both pulled their heads out from under the table, stood up straight and looked at us… Both red faced and giggling.
 
