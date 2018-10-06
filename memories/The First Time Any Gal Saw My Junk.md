@@ -14,11 +14,11 @@ Her pal Lori—who always sat right next to her—had longish blonde hair that w
 
 When Lauren finally found some pictures in her copy of *Teen Beat* she leaned over to Lori, showed them to her and they both giggled and then showed the pictures to me and my friend.
 
-The pictures sucked by 9 year old boy standards. They were basically the same crappy black and white promo shots of Mark Hamill, Harrison Ford and Carrie Fisher you saw everywhere. A few shots were casual shots of them just walking around Hollywood or wherever, but they were just boring paparazzi star-gazing shots.
+The pictures really sucked by 9 year old boy standards. They were basically the same crappy black and white promo shots of Mark Hamill, Harrison Ford and Carrie Fisher you saw everywhere at the time. A few shots were just shots of them casually walking around Hollywood or wherever doing not much of anything. They were just boring paparazzi star-gazing shots that I couldn’t care less for.
 
 “So what,” I said dismissively as I passed the copy of *Teen Beat* back to Lauren. “Those are boring,” my friend added.
 
-Lauren took back her copy of *Teen Beat* and started to flip trough it again.
+Lauren, a bit dejected, took back the copy of *Teen Beat* and started to flip trough it again.
 
 Lori stopped eating her peanut butter and jelly sandwich and simply said, “Well, what you have to show us?”
 
