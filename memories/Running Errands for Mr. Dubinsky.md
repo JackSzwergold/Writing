@@ -14,11 +14,11 @@ Occasionally at home, my dad would volunteer some trivial facts about Mr. Dubins
 
 Anyway, one day I was playing around in my room when my dad came in from outside and asked me if I wanted to go and run an errand for Mr. Dubinsky.
 
-“Sure,” I said. “What should I do?” My dad came into my room, gave me one or two dollars and said, “Get a bottle of hydrogen peroxide and bring it to Mr. Dubinsky’s apartment.”
+“Sure,” I said. “What should I do?” My dad then gave me one or two dollars and said, “Get a bottle of hydrogen peroxide from Speedway Drugs and bring it to Mr. Dubinsky.”
 
 “Okay,” I said as I put on my jacket, took the money and headed outside.
 
-I’d walk over to Speedway Drugs on the corner, meander around the toy and candy section, eventually find where those small brown bottles of hydrogen peroxide were, bring it up to the counter, pay for it and take the change and then head back into the building.
+I walked over to Speedway Drugs—which was right next to our building and right on the corner—meander around the vending machines, and then check out the toy and candy section, eventually find where those small brown bottles of hydrogen peroxide were, bring it up to the counter, pay for it and take the change and then head back into the building.
 
 I’d buzz Mr. Dubinsky’s buzzer and he would shout “Who is it!” and I’d say “It’s Jack. I have your stuff.” Sometimes I would have to say that a few times and even shout it out. But eventually he would buzz me in and I would head upstairs.
 
