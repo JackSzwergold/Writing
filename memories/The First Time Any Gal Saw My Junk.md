@@ -4,7 +4,9 @@ By Jack Szwergold
 
 It was the fall of 1977 and every kid in the neighborhood either had seen *Star Wars* already or knew what *Star Wars* was in some way.
 
-That sets the scene for the odd encounter I had with two classmates—Lori and Lauren—at a table in the cafeteria at P.S. 253. Me and a friend of mine were sitting at a cafeteria table in the lunch room across from Lori and Lauren. By 9 year old standards, we were flirting with them but we were all too young to really understand that.
+That sets the scene for the odd encounter I had with two classmates—Lori and Lauren—at a table in the cafeteria at P.S. 253.
+
+Me and a friend of mine were sitting at a cafeteria table in the lunch room across from Lori and Lauren. By 9 year old standards we were flirting with them, but we were all too young to really understand what flirting was past petty acts of teasing.
 
 Lauren was thumbing through a copy of *Teen Beat* magazine that featured Mark Hamill on the cover. She was a bit chubby and sleepy eyed and asked me “So, you like *Star Wars*.” To which I replied, “Yeah, I do.” She then flipped through her copy of *Teen Beat* to try and find some pictures of Mark Hamill and stuff like that.
 
