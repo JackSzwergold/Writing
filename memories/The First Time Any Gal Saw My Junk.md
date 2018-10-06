@@ -6,9 +6,9 @@ It was the fall of 1977 and every kid in the neighborhood either had seen *Star 
 
 That sets the scene for the odd encounter I had with two classmates—Lori and Lauren—at a table in the cafeteria at P.S. 253.
 
-Me and a friend of mine were sitting at a cafeteria table in the lunch room across from Lori and Lauren. By 9 year old standards we were flirting with them, but we were all too young to really understand what flirting was past petty acts of teasing.
+Me and a friend of mine were sitting at a cafeteria table in the lunch room across from Lori and Lauren. By 9 year old standards we were flirting with each other, but we were all too young to really understand what flirting was past petty acts of teasing that didn’t exactly devolve into bullying.
 
-Lauren was thumbing through a copy of *Teen Beat* magazine that featured Mark Hamill on the cover. She was a bit chubby and sleepy eyed and asked me “So, you like *Star Wars*.” To which I replied, “Yeah, I do.” She then flipped through her copy of *Teen Beat* to try and find some pictures of Mark Hamill and stuff like that.
+Lauren—who was a bit chubby and sleepy eyed—was flipping through a copy of *Teen Beat* magazine that featured Mark Hamill on the cover and asked me “So, you like *Star Wars*.” To which I replied, “Yeah, I do.” She then looked through her copy of *Teen Beat* to try and find some pictures of Mark Hamill and *Star Wars* related stuff like that.
 
 Her pal Lori say right next to her. She had longish blonde hair that was braided on both sides and a huge honking set of braces in her mouth. Despite the fact she was an extremely slow eater—she was eating that peanut butter and jelly sandwich like sloth—she was really cute in my estimation.
 
