@@ -22,7 +22,7 @@ I walked over to Speedway Drugs—which was right next to our building on the co
 
 I’d buzz Mr. Dubinsky’s buzzer and he would shout “Who is it!” and I’d say “It’s Jack. I have your stuff.” Sometimes I would have to say—and even shout—that a few times so he could here me. But eventually he would buzz me into and I would head upstairs to his apartment.
 
-He lived on the third floor—one flight up from my family’s place—in an apartment that faced Ocean Parkway. Once I got to his hallway you could even see the light from the peephole flicker as he looked down to the hallway to see if it was me.
+He lived on the third floor on our side of the building—one flight up from my family’s place—in an apartment that looked out of the front of the building faced Ocean Parkway. Once I got to his hallway you could even see the light from the peephole flicker a bit as he looked down to the hallway to see who was coming.
 
 Then when I got to the door, he’d open up the door, and let me into his apartment.
 
