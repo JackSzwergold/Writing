@@ -32,7 +32,7 @@ I’d give him the small paper shopping bag that had the hydrogen peroxide bottl
 
 “Thank you,” he would say with a thick European accent has he handed me a small pile of coins as we both walked back to the front door.
 
-While Mr. Dubinsky didn’t have much in his apartment, I was blown away by his apartment’s view. Since the apartment was facing Ocean Parkway—and there were no other buildings or objects in the way—so the place was always sun drenched.
+While Mr. Dubinsky didn’t have much in terms of objects or posessions in his apartment, I was blown away by the apartment’s westward view. Since the apartment was facing Ocean Parkway—and there were no other buildings or objects in the way—the place was always sun drenched and the view was mostly sky and tree tops.
 
 I’d run a few errands over the next few months on an off for Mr. Dubinsky, but eventually they stopped. I didn’t know what happened, but months later my dad mentioned in passing that Mr. Dubinsky had died.
 
