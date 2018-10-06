@@ -18,7 +18,7 @@ Anyway, one day I was playing around in my room when my dad came in from outside
 
 “Okay,” I said as I put on my jacket, took the money and headed outside.
 
-I walked over to Speedway Drugs—which was right next to our building and right on the corner—meander around the vending machines, and then check out the toy and candy section, eventually find where those small brown bottles of hydrogen peroxide were, bring it up to the counter, pay for it and take the change and then head back into the building.
+I walked over to Speedway Drugs—which was right next to our building on the corner—meander around the vending machines, then check out the toy and candy section and eventually find where those small brown bottles of hydrogen peroxide were, bring it up to the counter, pay for it and take the change and then head back to our building.
 
 I’d buzz Mr. Dubinsky’s buzzer and he would shout “Who is it!” and I’d say “It’s Jack. I have your stuff.” Sometimes I would have to say that a few times and even shout it out. But eventually he would buzz me in and I would head upstairs.
 
