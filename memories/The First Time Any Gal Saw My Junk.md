@@ -10,7 +10,7 @@ Me and a friend of mine were sitting at a cafeteria table in the lunch room acro
 
 Lauren—who was a bit chubby and sleepy eyed—was flipping through a copy of *Teen Beat* magazine that featured Mark Hamill on the cover and asked me “So, you like *Star Wars*?” To which I replied, “Yeah, I do.” She then looked through her copy of *Teen Beat* and tried to find some pictures of Mark Hamill and *Star Wars* related stuff like that.
 
-Her pal Lori—who always sat right next to her—had longish blonde hair that was braided on both sides and a huge honking set of braces in her mouth. Despite the fact she was an extremely slow eater—she was eating that peanut butter and jelly sandwich like sloth—she was really cute in my estimation.
+Her pal Lori—who always sat right next to her—had longish blonde hair that was braided on both sides and a huge honking set of braces in her mouth. Despite the fact she Lori was known as an extremely slow eater—she was eating that peanut butter and jelly sandwich slower than sloth chewing on a twig—she was really cute by my own elementary school standards.
 
 When Lauren finally found some pictures in her copy of *Teen Beat* she leaned over to Lori, showed them to her and they both giggled and then showed the pictures to me and my friend.
 
