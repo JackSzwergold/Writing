@@ -65,7 +65,7 @@ I headed into my room, opened up the packages and played with those toys. Likemo
 
 Later that evening, my dad came into my room to give me dinner and asked me about those toys again, “Friends gave those to you?” he asked. And I said, “Yes! I traded stuff for them.” And he again accepted what I said but still seemed skeptical.
 
-I got up of of the floor to go and eat but also made sure to put the soldiers out on my desk and put them on display with some of the other stuff I had on my desk. They were nicer to look at than play with.
+I got up of of the floor to go and eat but also made sure to put the soldiers out on my desk and put them on display with some of the other stuff I had on my desk. Honestly, they were nicer to look at than play with.
 
 ***
 
