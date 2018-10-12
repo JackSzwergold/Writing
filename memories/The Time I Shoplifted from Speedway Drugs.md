@@ -45,7 +45,7 @@ We walked up to the toy rack and I showed him the Civil War figures. “They loo
 
 I pulled out the front of my t-shirt and shoved one pack of Civil War soldiers under my shirt while trying to hold it inconspicuously as if it wasn’t there shoved under my shirt. He went ahead and grabbed another set and did the same thing.
 
-We both then carefully—and inconspicuously—walked to the side door. I opened the side door went outside and he followed close behind. The afternoon sun hit as and as the door swung closed we ran down towards my building and leapt over the small brick wall, down the slight alley where they made oil deliveries and into the building lobby.
+We both then carefully—and inconspicuously—walked to the side door. I opened the door, went outside and he followed close behind. The afternoon sun was bright and almost blinding. And as the door swung closed, without missing a beat, we ran stright up the block  towards my building and leapt over the small brick wall, down the slight alley—where they made oil deliveries—and into the building lobby.
 
 I pulled out the pack of soldiers I had under my shirt and he pulled the pack he had and gave it to me.
 
