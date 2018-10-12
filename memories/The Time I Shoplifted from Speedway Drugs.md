@@ -9,7 +9,7 @@ And on this particular day I was playing in front of Speedway Drugs which was ri
 
 At some point—when I got bored doing whatever I was doing—I decided to go into Speedway Drugs to take a break and browse the toy rack.
 
-I walked inside and waved to Jack the pharmacist behind the counter. He was a nice guy and I was personally proud to have the same name as someone as important as the pharmacist at the local corner drug store.
+I walked inside and waved to Jack the pharmacist behind the counter. He was a nice guy and I was personally proud to have the same name as someone as important as the pharmacist at the local corner drug store. It’s like I was a part of a special little “Jack” club.
 
 I walked up to the toy aisle and checked out the rack. They always had a decent selection of cheap stuff. And today, I spotted something right up my alley: Some Civil War toy soldiers. One pack of Union soldiers and another pack of Confederate soldiers.
 
