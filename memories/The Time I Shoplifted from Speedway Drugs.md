@@ -47,7 +47,7 @@ I pulled out the front of my t-shirt and shoved one pack of Civil War soldiers u
 
 We both then carefully—and inconspicuously—walked to the side door. I opened the door, went outside and he followed close behind. The afternoon sun was bright and almost blinding. And as the door swung closed, without missing a beat, we ran stright up the block  towards my building and leapt over the small brick wall, down the slight alley—where they made oil deliveries—and into the building lobby.
 
-I pulled out the pack of soldiers I had under my shirt and he pulled the pack he had and gave it to me.
+A safe distance away from the store, Ipulled out the pack of soldiers I had under my shirt and he pulled the pack he had and gave it to me.
 
 “Wow!” I said, “We did it!” I added. “See!” he said, “No problem!” he added.
 
