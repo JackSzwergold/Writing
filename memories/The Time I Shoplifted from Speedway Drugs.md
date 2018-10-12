@@ -115,7 +115,7 @@ Jack said something like, “No… Don’t worry…” but my dad insisted that 
 
 Jack the pharmacist took the money and then looked at me and said, “Don’t steal!” and I nodded silently in agreement. Shortly after that, my dad and I were outside on the street walking back home.
 
-When we got to the front of our building,  my dad stayed downstairs to gossip with some of the other guys who were just hanging around out there. I just said goodbye to him and headed back upstairs to play around with the Civil War soldiers on my desk before heading to sleep.
+When we got to the front of our building,  my dad stayed downstairs to gossip with some of the other folks who were just hanging around out in front of the building as they always did. I said goodbye to him and headed back upstairs to play around with the Civil War soldiers on my desk before heading to bed for the night.
 
 ***
 
