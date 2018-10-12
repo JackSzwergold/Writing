@@ -3,7 +3,7 @@
 
 By Jack Szwergold
 
-It was another boring day in 1975 or 1976 and I—as a kid—was doing what I normally did on such a day: Play with neighborhood kids with occasional breaks to do something else.
+It was another boring day in 1975 or 1976 and I—as a kid—was doing what I normally did on such a day: Play around with neighborhood kids on our block with occasional breaks to do something else.
 
 On this day I was playing in front of Speedway Drugs on Ocean Parkway, right next to my building. It was bright, sunny and the air was fresh with the smell of cut grass in front of my building thanks to Johnny and his hand mower.
 
