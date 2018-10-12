@@ -53,7 +53,7 @@ A safe distance away from the store, I pulled out the pack of soldiers I had und
 
 I gave him a high five and he went back outside to play with other kids. I felt like I owed him something for the effort, but he seemed like a pro at this kinda kid shoplifting stuff so he just smiled and didn’t say much more or ask for anything. He was simply sharing some knowledge he had with me and not much else.
 
-I buzzed the buzzer and my dad let me in. I was so in the moment after that shoplifting escapade I completely forgot that I had those packs of toys in my hand as I went through the front door.
+I buzzed the buzzer and my dad let me in. I was so in the moment after that shoplifting escapade I completely forgot that I had those packs of toys in my hand as my dad opened the apartment door and I headed inside.
 
 “What are those?” my dad asked. “Where did you get them?” he added. I stood their and paused for a second and said, “I got them from some friends,” I said. “I traded some stuff for them,” I added.
 
