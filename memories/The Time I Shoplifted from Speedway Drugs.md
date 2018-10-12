@@ -97,15 +97,15 @@ I should say something like the walk to the corner felt like an eternity or nons
 
 But then when I took my first steps inside of Speedway, I started to feel tense and a bit nervous and disoriented. My hands started to sweat as I held onto my plastic Civil War soldiers in my jacket pockets.
 
-Jack the pharmacist was behind the counter and greeted my dad with a smile. But him—and some other woman behind the counter—soon put on a shameful scowl as they looked down on me.
+Jack the pharmacist was behind the counter and greeted my dad with a smile. But he—and some other woman behind the counter—soon put on a shameful scowl as he looked down towards me.
 
 “Jack,” my dad said to me, “Show Jack the toys you have.”
 
-And nervously I pulled a few Civil War soldiers and related junk out of my pocket.
+And nervously I pulled a few Civil War soldiers and related junk out of my pocket and held them up so Jack the pharmacist could see them.
 
 “Yeah,” Jack the pharmacist said. “Those are the ones that he took,” he added.
 
-My dad then leaned down and looked me in the face and said with a thick English accent, “Why did you do this?”
+My dad then leaned down and looked me in the face and said with a thick accent, “Why did you do this?”
 
 I looked at him and felt like crying, but didn’t and just said, “I don’t know.”
 
