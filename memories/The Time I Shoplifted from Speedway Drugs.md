@@ -109,7 +109,7 @@ My dad then leaned down and looked me in the face and said with a thick, deliber
 
 I looked at him, looked around me, then looked down and just felt like crying, but didn’t. I just turned my head up, looked at my dad and said, “I don’t know.”
 
-He looked at me and said, “Don’t do this again, right?” And I silently nodded and said, “Okay…” as he stood up and asked Jack the pharmacist how much he owed him.
+He looked at me, shook me a bit by one of my shoulders and said, “Don’t do this again, right?” And I silently nodded and said, “Okay…” as he stood up and asked Jack the pharmacist how much he owed him.
 
 Jack said something like, “No… Don’t worry…” but my dad insisted that he take some money so I saw a few dollar bills pass from my dads hands to the counter.
 
