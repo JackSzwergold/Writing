@@ -105,9 +105,9 @@ And nervously I pulled a few Civil War soldiers and related junk out of my pocke
 
 “Yeah,” Jack the pharmacist said. “Those are the ones that he took,” he added.
 
-My dad then leaned down and looked me in the face and said with a thick accent, “Why did you do this?”
+My dad then leaned down and looked me in the face and said with a thick, deliberate accent, “Why did you do this?”
 
-I looked at him and felt like crying, but didn’t and just said, “I don’t know.”
+I looked at him, looked around me, then looked down and just felt like crying, but didn’t. I just turned my head up, looked at my dad and said, “I don’t know.”
 
 He looked at me and said, “Don’t do this again, right?” And I silently nodded and said, “Okay…” as he stood up and asked Jack the pharmacist how much he owed him.
 
