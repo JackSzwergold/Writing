@@ -27,9 +27,9 @@ I looked to where he was looking and then we both walked a bit down the block ne
 
 “You never went in to the store that way?” he asked and I shook my head “No…”
 
-“Look, you can go into the store in the front and then shove stuff under your shirt and leave that way,” he said looking at me with this “You know what I mean?” look on his face.
+“Look, you can go into the store in the front and then shove stuff under your shirt and leave this way,” he said looking at me with this “You know what I mean?” look on his face.
 
-I knew what he meant. But that was stealing and that was wrong so I asked, “But that’s stealing?” and he responded, “So what?” with a confident shrug.
+I knew what he meant. But that was stealing and that was wrong so I asked, “But that’s stealing?” and he responded, “So what?” with an ambivalent shrug.
 
 We were both kids and I guess this was my introduction to shoplifting. So I asked, “What if I get caught? I don’t want to get in trouble.
 
