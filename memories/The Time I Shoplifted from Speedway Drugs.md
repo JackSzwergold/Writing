@@ -83,9 +83,9 @@ He looked at me exasperatedly and said we needed to go upstairs. So upstairs we 
 
 ***
 
-When we got upstairs he went into my room with me, and told me to take a few of the toys downstairs with me. He wasn’t exactly angry but he wasn’t exactly happy either.
+When we got upstairs he went into my room with me, and told me to take a few of the Civil War toys downstairs with me. He wasn’t exactly angry but he wasn’t exactly happy either.
 
-I took a few of the toys, and he said we needed to go downstairs. My mom shouted, “What’s happening?” and my dad responded to her in Yiddish or Polish as we walked out of the apartment.
+So I took a few of the toys, and he said we needed to go downstairs. My mom shouted, “What’s happening?” and my dad responded to her in Yiddish or Polish as we walked out of the apartment.
 
 All the way downstairs my dad looked at me weirdly. “Where are we going?” I asked. “To Speedway,” he said. “We need to talk to Jack.” he added.
 
