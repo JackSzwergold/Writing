@@ -95,9 +95,9 @@ Now I started to understand what was happening.
 
 I should say something like the walk to the corner felt like an eternity or nonsense like that. It didn’t. It was actually a nice day and it was around dusk and the sky was nice to look at and calm. The ocean breeze still in the air and it was an overall chill night.
 
-But then when I took my first steps inside of Speedway, I started to feel tense and a bit nervous and disoriented. My hands were definitely sweaty as I held onto my plastic Civil War soldiers.
+But then when I took my first steps inside of Speedway, I started to feel tense and a bit nervous and disoriented. My hands started to sweat as I held onto my plastic Civil War soldiers in my jacket pockets.
 
-Jack was behind the counter and greeted my dad with a smile. But him—and some other woman behind the counter—soon put on a shameful scowl as they looked down on me.
+Jack the pharmacist was behind the counter and greeted my dad with a smile. But him—and some other woman behind the counter—soon put on a shameful scowl as they looked down on me.
 
 “Jack,” my dad said to me, “Show Jack the toys you have.”
 
