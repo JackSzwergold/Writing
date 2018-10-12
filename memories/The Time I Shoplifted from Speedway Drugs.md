@@ -13,7 +13,7 @@ I walked inside and waved to Jack the pharmacist behind the counter. He was a ni
 
 Then I headed straight to the toy aisle and checked out what I could see on that rack. They always had a decent selection of cheap—but fun—rack toy stuff. And today, I spotted something right up my alley: Some plastic Civil War toy soldiers. One pack of Union soldiers and another pack of Confederate soldiers.
 
-Now I wasn’t some kind of Civil War nut as a kid, but these figures looked cool. Unlike classic old green toy soldiers, these soldiers were made up multiple pieces of differently colored plastic. Some parts were flesh colored, others were navy blue or light grey with some parts dark green or dark brown. Damn, I wanted them! But they were like $2.99 per pack and I had nothing saved up in my allowance to cover that. And besides, if I got a set of Union soldiers I would need to get another set of Confederate soldiers, right?
+Now I wasn’t some kind of Civil War nut as a kid, but I learned about it on a basic level in elementary school and these figures looked cool. Unlike those classic, ubiquitous green toy soldier army men, these soldiers were made up multiple pieces of differently colored plastic and seemed to have more thought put into them. Some parts were flesh colored, others were navy blue or light grey with some parts dark green or dark brown. Damn, I wanted them! But they were like $2.99 per pack and I had nothing saved up in my allowance to cover that. And besides, if I got a set of Union soldiers I would need to get another set of Confederate soldiers, right?
 
 So I walked back to the front of the store, looked over the selection in the vending machines near the entrance and dejectedly walked back out into the afternoon sun.
 
