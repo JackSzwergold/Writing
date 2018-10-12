@@ -55,7 +55,7 @@ I gave him a high five and he went back outside to play with other kids. I felt 
 
 I buzzed the buzzer and my dad let me in. I was so in the moment after that shoplifting escapade I completely forgot that I had those packs of toys in my hand as my dad opened the apartment door and I headed inside.
 
-“What are those?” my dad asked. “Where did you get them?” he added. I stood their and paused for a second and said, “I got them from some friends,” I said. “I traded some stuff for them,” I added.
+“What are those?” my dad asked. “Where did you get them?” he added. I stood there and paused for a second and said, “I got them from some friends,” I said. “I traded some stuff for them,” I nervously added.
 
 He looked at me and accepted what I said at face value but was clearly not that convinced. But he didn’t take them away from me.
 
