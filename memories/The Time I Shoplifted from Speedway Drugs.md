@@ -7,7 +7,7 @@ It was another boring day in 1975 or 1976 and I—as a kid—was doing what I no
 
 And on this particular day I was playing in front of Speedway Drugs which was right next to my building on Ocean Parkway. It was a bright and sunny day and the air was filled with the smell of freshly cut grass in front of my building thanks to Johnny and his hand operated lawn mower.
 
-At some point I decided to go into Speedway Drugs to cool off and browse the toy rack.
+At some point—when I got bored doing whatever I was doing—I decided to go into Speedway Drugs to take a break and browse the toy rack.
 
 I walked inside and waved to Jack the pharmacist. I was really proud to have the same name as someone as important as the pharmacist at the local drug store.
 
