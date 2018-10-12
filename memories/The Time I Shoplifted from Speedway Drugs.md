@@ -77,7 +77,7 @@ So I ran downstairs, met up with some neighborhood kids and played around with t
 
 Then my dad showed up and said he wanted to talk to me.
 
-“Where did you get those toys?” he said sternly. To which I said what I said before, “I got them from a friend?”
+“Where did you get those toys?” he said a bit more sternly than the other times he asked the same question. To which I said what I said before, “I got them from a friend.”
 
 He looked at me exasperatedly and said we needed to go upstairs. So upstairs we went.
 
