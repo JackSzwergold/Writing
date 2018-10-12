@@ -33,9 +33,9 @@ I knew what he meant. But that was stealing and that was wrong so I asked, “Bu
 
 We were both kids and I guess this was my childhood introduction to shoplifting. So I asked, “What if we get caught? I don’t want to get in trouble.
 
-“Don’t worry!” he said. “Let’s just go in,” he added.
+“Don’t worry!” he said. “Let’s just do it,” he added.
 
-So with that we both walked into the store together.
+So with that we both walked into the store to do the deed.
 
 I was a little tense and my palms were sweaty, but he seemed cool.
 
