@@ -15,11 +15,11 @@ Then I headed straight to the toy aisle and checked out what I could see on that
 
 Now I wasn’t some kind of Civil War nut as a kid, but I learned about it on a basic level in elementary school and these figures looked cool. Unlike those classic, ubiquitous green toy soldier army men, these soldiers were made up multiple pieces of differently colored plastic and seemed to have more thought put into them. Some parts of them were flesh colored, others were navy blue or light grey with some parts dark green or dark brown. And damn, did I want them! But they were like $2.99 per pack and I had nothing saved up in my allowance to cover that kind of purchase. And besides, if I got a set of Union soldiers I would need to get another set of Confederate soldiers, right? So that’s like a $6 investment right there.
 
-So I walked back to the front of the store, looked over the selection in the vending machines near the entrance and dejectedly walked back out into the afternoon sun.
+So I walked back to the front of the store, looked over the selection of items available in the vending machines near the store’s entrance and dejectedly walked back out into the afternoon sun empty-handed.
 
-When I walked outside I saw some neighborhood kid. Honestly don’t remember who, but they asked me what I got from the store. I mean, if you went into a store it was to get something right?
+When I walked outside I ran into some random neighborhood kid. Honestly don’t remember who, but he asked me what I got from the store. I mean, if you went into a store it was to get something right?
 
-“Nothing,” I said. “Why?” the kid asked. “I don’t have enough money,” I said. “So what?” he responded.
+“Nothing,” I said. “Why?” he asked. “I don’t have enough money,” I said. “So what?” he responded.
 
 We then walked a bit down the side of Speedway and he pointed to the side door.
 
