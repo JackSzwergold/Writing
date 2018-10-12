@@ -47,11 +47,11 @@ I pulled out the front of my t-shirt and shoved one pack of Civil War soldiers u
 
 We both then carefully—and inconspicuously—walked to the side door. I opened the door, went outside and he followed close behind. The afternoon sun was bright and almost blinding. And as the door swung closed, without missing a beat, we ran stright up the block  towards my building and leapt over the small brick wall, down the slight alley—where they made oil deliveries—and into the building lobby.
 
-A safe distance away from the store, Ipulled out the pack of soldiers I had under my shirt and he pulled the pack he had and gave it to me.
+A safe distance away from the store, I pulled out the pack of soldiers I had under my shirt and he pulled the pack he had and gave it to me.
 
 “Wow!” I said, “We did it!” I added. “See!” he said, “No problem!” he added.
 
-I gave him a high five and he went back outside to play with other kids. I felt like I owed him something, but he seemed like a pro at this kinda stuff so he just smiled and didn’t say much more or ask for anything. He was simply sharing some knowledge he had with me.
+I gave him a high five and he went back outside to play with other kids. I felt like I owed him something for the effort, but he seemed like a pro at this kinda kid shoplifting stuff so he just smiled and didn’t say much more or ask for anything. He was simply sharing some knowledge he had with me and not much else.
 
 I buzzed the buzzer and my dad let me in. I completely forgot that I had the packs of toys in my hand as I went through the front door.
 
