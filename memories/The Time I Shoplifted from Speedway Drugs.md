@@ -31,7 +31,7 @@ I looked to where he was looking and then we both walked a bit down the block ne
 
 I knew what he meant. But that was stealing and that was wrong so I asked, “But that’s stealing?” and he responded, “So what?” with an ambivalent shrug.
 
-We were both kids and I guess this was my introduction to shoplifting. So I asked, “What if I get caught? I don’t want to get in trouble.
+We were both kids and I guess this was my childhood introduction to shoplifting. So I asked, “What if I get caught? I don’t want to get in trouble.
 
 “Don’t worry!” he said. “Let’s just go in,” he added.
 
