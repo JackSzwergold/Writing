@@ -89,7 +89,7 @@ So I took a few of the toys, and he said we needed to go downstairs. My mom shou
 
 All the way downstairs my dad looked at me weirdly. “Where are we going?” I asked. “To Speedway,” he said. “We need to talk to Jack.” he added.
 
-Now I started to get it.
+Now I started to understand what was happening.
 
 ***
 
