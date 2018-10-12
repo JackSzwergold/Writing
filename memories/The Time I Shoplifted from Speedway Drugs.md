@@ -61,9 +61,9 @@ He looked at me and accepted what I said at face value but was clearly not that 
 
 ***
 
-I headed into my room, opened up the packages and played with them. They weren’t the greatest toys in the world, but they were really cool to look at. Before you knew it I had some Civil War action happening on my floor.
+I headed into my room, opened up the packages and played with those toys. Likemost rack toys, they weren’t the greatest toys in the world, but they were definitely really cool to look at. Before you knew it I had some improvised Civil War action happening on my floor.
 
-Later that evening, my dad came into my room to give me dinner and asked again, “Friends gave those to you?” he asked. And I said, “I traded for them.” And he again accepted what I said but seemed skeptical.
+Later that evening, my dad came into my room to give me dinner and asked me about those toys again, “Friends gave those to you?” he asked. And I said, “Yes! I traded stuff for them.” And he again accepted what I said but still seemed skeptical.
 
 I stood up to eat but also put the soldiers out on my desk and put them on display with some of the other stuff I had on my desk.
 
