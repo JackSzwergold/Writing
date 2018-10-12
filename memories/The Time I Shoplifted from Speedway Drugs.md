@@ -19,9 +19,9 @@ So I walked back to the front of the store, looked over the selection of items a
 
 When I walked outside I ran into some random neighborhood kid. Honestly don’t remember who, but he asked me what I got from the store. I mean, if you went into a store it was to get something right?
 
-“Nothing,” I said. “Why?” he asked. “I don’t have enough money,” I said. “So what?” he responded.
+“Nothing,” I said. “Why?” he asked. “I don’t have enough money,” I said. “So what?” he responded as he turned his head and looked down the block.
 
-We then walked a bit down the side of Speedway and he pointed to the side door.
+He then  .walked a bit down the side of Speedway and he pointed to the side door.
 
 “So what?” I said.
 
