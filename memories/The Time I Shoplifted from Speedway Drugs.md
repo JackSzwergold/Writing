@@ -57,7 +57,9 @@ I buzzed the buzzer and my dad let me in. I was so in the moment after that shop
 
 “What are those?” my dad asked. “Where did you get them?” he added. I stood there and paused for a second and said, “I got them from some friends,” I said. “I traded some stuff for them,” I quickly added.
 
-He looked at me and accepted what I said at face value but was clearly not that convinced. But he didn’t take them away from me.
+He looked at me and accepted what I said at face value but was clearly not that convinced. But at least he didn’t take them away from me and that was what was important.
+
+***
 
 I headed into my room, opened up the packages and played with them. They weren’t the greatest toys in the world, but they were really cool to look at. Before you knew it I had some Civil War action happening on my floor.
 
