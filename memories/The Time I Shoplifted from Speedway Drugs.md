@@ -21,7 +21,7 @@ When I walked outside I ran into some random neighborhood kid. Honestly don’t 
 
 “Nothing,” I said. “Why?” he asked. “I don’t have enough money,” I said. “So what?” he responded as he turned his head and looked down the block.
 
-He then  .walked a bit down the side of Speedway and he pointed to the side door.
+I looked to where he was looking and then we both walked a bit down the block next to the side of Speedway and he pointed to the side door.
 
 “So what?” I said.
 
