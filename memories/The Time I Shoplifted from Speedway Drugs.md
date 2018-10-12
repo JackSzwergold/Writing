@@ -37,9 +37,11 @@ We were both kids and I guess this was my childhood introduction to shoplifting.
 
 So with that we both walked into the store to do the deed.
 
-I was a little tense and my palms were sweaty, but he seemed cool.
+***
 
-I walked up to the toy rack and showed him the Civil War figures. “They look cool!” he said. Then he moved around from one side of me to another and said, “You first.” I looked at him, looked at Jack behind the counter not looking at us and then looked at the toys.
+While I was a little tense and my palms were sweaty, he seemed cool; I guess that’s becuase he did this before.
+
+We walked up to the toy rack and I showed him the Civil War figures. “They look cool!” he said. Then he moved around from one side of me to another and said, “You first.” I looked at him, looked at Jack the pharmacist behind the counter—who was not looking at us—and then looked at the toys.
 
 I pulled out the front of my shirt and shoved one pack of Civil War soldiers under my shirt and tried to hold it inconspicuously as if it wasn’t there. he grabbed another set and did the same.
 
