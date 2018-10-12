@@ -39,13 +39,13 @@ So with that we both walked into the store to do the deed.
 
 ***
 
-While I was a little tense and my palms were sweaty, he seemed cool; I guess that’s becuase he did this before.
+While I was a little tense and my palms were sweaty, he seemed cool; I guess that’s because he did this before.
 
 We walked up to the toy rack and I showed him the Civil War figures. “They look cool!” he said. Then he moved around from one side of me to another and said, “You first.” I looked at him, looked at Jack the pharmacist behind the counter—who was not looking at us—and then looked at the toys.
 
-I pulled out the front of my t-shirt and shoved one pack of Civil War soldiers under my shirt while trying to hold it inconspicuously as if it wasn’t there shoved under my shirt. He went ahead and grabbed another set and did the same thing.
+I pulled out the front of my t-shirt and shoved one pack of Civil War soldiers under my shirt while trying to hold it inconspicuously as if it wasn’t right there shoved under my shirt. He went ahead and grabbed another set and did the same thing.
 
-We both then carefully—and inconspicuously—walked to the side door. I opened the door, went outside and he followed close behind. The afternoon sun was bright and almost blinding. And as the door swung closed, without missing a beat, we ran stright up the block  towards my building and leapt over the small brick wall, down the slight alley—where they made oil deliveries—and into the building lobby.
+We both then carefully—and inconspicuously—walked to the side door. I opened the door, went outside and he followed close behind. The afternoon sun was bright and almost blinding. And as the door swung closed, without missing a beat, we ran straight up the block  towards my building and leapt over the small brick wall, down the slight alley—where they made oil deliveries—and into the building lobby.
 
 A safe distance away from the store, I pulled out the pack of soldiers I had under my shirt and he pulled the pack he had and gave it to me.
 
@@ -61,7 +61,7 @@ He looked at me and accepted what I said at face value but was clearly not that 
 
 ***
 
-I headed into my room, opened up the packages and played with those toys. Likemost rack toys, they weren’t the greatest toys in the world, but they were definitely really cool to look at. Before you knew it I had some improvised Civil War action happening on my floor.
+I headed into my room, opened up the packages and played with those toys. Like most rack toys, they weren’t the greatest toys in the world, but they were definitely really cool to look at. Before you knew it I had some improvised Civil War action happening on my floor.
 
 Later that evening, my dad came into my room to give me dinner and asked me about those toys again, “Friends gave those to you?” he asked. And I said, “Yes! I traded stuff for them.” And he again accepted what I said but still seemed skeptical.
 
