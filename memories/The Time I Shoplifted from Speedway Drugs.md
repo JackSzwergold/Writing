@@ -69,11 +69,11 @@ I got up of of the floor to go and eat but also made sure to put the soldiers ou
 
 ***
 
-The next day I woke up and it was a seemingly normal day. My dad was up earlier than me and was out shopping and I was putzing around my room.
+The next day I woke up and it was a seemingly normal day. My dad was up earlier than me and was out shopping and I was putzing around my room doing not much of anything as per usual.
 
-I played around with those Civil War figures some more when I started to get bored and decided I should just go outside and do something.
+I played around with those Civil War figures some more when I started to get bored and decided I should just go outside and do something else.
 
-So I ran downstairs, me up with some neighborhood kids and then played around for a while.
+So I ran downstairs, met up with some neighborhood kids and played around with them for a while.
 
 Then my dad showed up and said he wanted to talk to me.
 
