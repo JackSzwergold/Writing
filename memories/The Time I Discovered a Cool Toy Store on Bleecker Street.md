@@ -8,9 +8,9 @@ I often got dragged around on these horse-shit trips like this because my parent
 
 Anyway, my first memory of the trip was going to some custom sandal shop on West 4th Street near Jones Street. Pretty sure it was Allan Block’s famous sandal shop, on West 4th but don’t quote me on that. Apparently my sister’s husband wanted to get some leather sandals and my presence sitting around and doing nothing was required for some reason.
 
-I remember him and his brother were—presumably—high on majijuana or a beer or two and laughing and goofing around in the sandal shop while my sister and I waited like dogs outside of the shop.
+I remember him and his brother were (presumably) high on majijuana or a beer or two and laughing and goofing around in the sandal shop while my sister and I waited like dogs outside of the shop.
 
-At some point I stood up and said I was bored. And after some complaints and negotiation, my sister agreed to walk me around the block to alleviate my boredom.
+At some point I stood up and literally said I was bored because what was “fun” about just sitting outside of a sandal shop while stoned family members shopped for sandals inside. So after some protests and negotiation on my part, my sister agreed to walk me around the block to alleviate my boredom.
 
 I think this was the first time I was ever in Greenwich Village, and the place seemed interesting. The streets were tree-lined and nice. I didn’t see signs of the poor working class life I knew in Brooklyn, but things seemed nice and friendly.
 
