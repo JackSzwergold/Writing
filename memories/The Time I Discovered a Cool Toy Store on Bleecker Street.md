@@ -24,7 +24,7 @@ That was cute, but of no interest to my 1970s street kid sensibilities. Then I s
 
 I gasped and immediately checked my pockets for money. I had some quarters and other miscellaneous loose change on me; maybe I could score a wind-up R2-D2 from this shop on this horse-shit “family” trip? So I went over to my sister and asked her if we could go into the store so I could buy a wind up R2-D2.
 
-“No!” she said. “We need to go back!” she added. And this went on for a little bit until I accepted the futility of the struggle, caved in and headed back to the sandal shop with her.
+“No!!!” she shouted. “We need to go back!” she added, visibly upset at me being so willful. And this went on for a little bit until I accepted the futility of the struggle, caved in to her demands and headed back to the stupid sandal shop with her.
 
 As we walked away I made a mental note of the cross-streets. Perhaps I could convince my dad to go to this toy store next weekend?
 
