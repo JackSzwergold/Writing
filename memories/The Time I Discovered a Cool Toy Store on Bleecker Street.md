@@ -26,9 +26,9 @@ I gasped and immediately checked my pockets for money. I had some quarters and o
 
 “No!!!” she shouted. “We need to go back!” she added, visibly upset at me being so willful. And this went on for a little bit until I accepted the futility of the struggle, caved in to her demands and headed back to the stupid sandal shop with her.
 
-As we walked away I made a mental note of the cross-streets. Perhaps I could convince my dad to go to this toy store next weekend?
+As we walked away from Bleecker Street I made a mental note of the cross-street we were at. Perhaps I could convince my dad to go to this toy store some other weekend?
 
-Anyway, after walking a short bit back to West 4th Street we were back at the sandal store. My sister’s husband was out in front waiting with his brother and instantly complaining about her being late.
+Anyway, after walking a short bit back to West 4th Street we were back at the beloved sandal store. My sister’s husband was out in front waiting with his brother and instantly complaining about her being late.
 
 “Jack saw a toy store,” she said to her husband. Her husband then looked at me and said, “No toys today.” And with that we all headed down the block to his brother’s place.
 
