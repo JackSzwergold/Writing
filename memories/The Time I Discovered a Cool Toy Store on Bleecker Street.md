@@ -18,9 +18,9 @@ As we walked around, at some point we hit Bleecker Street. I remember it being s
 
 “I want to go there!” I told my sister who quickly responded, “We don’t have time! We need to go back!” And this went on, back and forth, for a bit until I convinced her to just let me look in the window of the shop.
 
-So I walked over and looked in the window. It was definitely a toy store, but not like any toy store I knew. For one, the window not only had a carousel horse in it, but there were also all kinds of old toys nicely displayed in the window.
+So I walked over to the shop and took a look in the window. It was definitely a toy store, but not like any toy store I knew of. For one, the window not only had a carousel horse in it, but there were also all kinds of old toys nicely displayed in the window as if they were museum pieces.
 
-That was cute, but of no interest to my 1970s kid sensibilities. Then I saw something in the window that grabbed my attention: A huge bowl filled with what looked like wind-up R2-D2s! What the eff was that? I already had a small collection of Kenner *Star Wars* figures, but never saw a wind-up R2-D2 before. They looked similar to the Kenner figure but had a tag with Japanese text on it.
+That was cute, but of no interest to my 1970s street kid sensibilities. Then I saw something in the window that grabbed my attention: A huge bowl filled with what looked like wind-up R2-D2s! What the eff was that? I already had a small collection of Kenner *Star Wars* figures, but never saw a wind-up R2-D2 before. They looked similar to the Kenner figure but had a tag with Japanese text on it.
 
 I gasped and checked my pocket for money. I had some quarter and change on me; maybe I could score a wind-up R2-D2? So I looked at my sister and asked her if we could go into the store.
 
