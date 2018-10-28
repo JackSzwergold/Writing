@@ -34,7 +34,7 @@ Anyway, after walking a short bit back to West 4th Street we were back at the be
 
 While the Village was filled old school pre-World War II NYC brick buildings, my sister’s husband’s brother lived in something that looked like a drab soulless condo building on Cornelia Street. On a street with beautiful old New York City buildings, this guy lived in quite possibly the ugliest building on the block.
 
-We went inside, rode up the elevator and we in his place. Inside, his apartment seemed cool. It was filled with sun, plants and wood furniture. It kinda looked like the cover to Carole King’s “Tapestry” in its own way.
+We went inside, rode up the crappy elevator and before you knoew it, we were in his place. To be fair about it all, the inside of his apartment seemed cool and homey compared to the outside of the building. It was filled with sun, plants and nice-looking wood furniture. In its own wait, it kind of looked like the cover to Carole King’s “Tapestry” but without Carole King or a cat anywhere.
 
 I walked inside and sat on a couch. Not much for a kid to do in this place. They gave me a glass of water and I basically sat around and stared for a bit.
 
