@@ -22,7 +22,7 @@ So I walked over to the shop and took a look in the window. It was definitely a 
 
 That was cute, but of no interest to my 1970s street kid sensibilities. Then I saw something in the window that grabbed my attention: A huge bowl filled with what looked like wind-up R2-D2 toys! What the eff was that? I already had a small collection of Kenner *Star Wars* figures, but never saw a wind-up R2-D2 before. They looked similar to the Kenner version of the R2-D2 figure but each had a small tag with some Japanese text on it.
 
-I gasped and immediately checked my pockets for money. I had some quarters and other miscellaneous loose change on me; maybe I could score a wind-up R2-D2? So I looked at my sister and asked her if we could go into the store.
+I gasped and immediately checked my pockets for money. I had some quarters and other miscellaneous loose change on me; maybe I could score a wind-up R2-D2 from this shop on this horse-shit “family” trip? So I went over to my sister and asked her if we could go into the store so I could buy a wind up R2-D2.
 
 “No!” she said. “We need to go back!” she added. And this went on for a little bit until I accepted the futility of the struggle, caved in and headed back to the sandal shop with her.
 
