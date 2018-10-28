@@ -14,7 +14,7 @@ At some point I stood up and literally said I was bored because what was “fun�
 
 All my complains aside, this was definitely the first time I was ever in Greenwich Village, and the place seemed interesting. The streets were tree-lined and nice. I didn’t see the typical signs of the poor working class life I knew in Brooklyn on the streets of Greenwich Village—like garbage, stray cats, drunks and random piles of dog shit—but things in the neighborhood seemed nice and friendly as far as I could tell.
 
-As we walked around, at some point we hit Bleecker Street. I remember it being sun drenched and pleasant. Just as we were about to turn down to head back to the sandal shop, I spotted what looked like a carousel horse in a store window.
+As we walked around, at some point we hit Bleecker Street. I remember it being sun drenched and pleasant and more of a shopping strip than the side street we were just on. Just as we were about to turn down to head back to the sandal shop, I spotted what looked like a brightly painted carousel horse in a nearby shop window.
 
 “I want to go there!” I told my sister who then said, “We don’t have time! We need to go back.” And this went on for a bit until I convinced her to just let me look in the window of the shop.
 
