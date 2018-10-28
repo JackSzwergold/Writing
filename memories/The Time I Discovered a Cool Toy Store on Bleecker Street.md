@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-I don’t remember the exact year but I know it was 1978 or 1979 and I was in Greenwich Village with my sister, her husband and her husband’s brother.
+I don’t remember the exact year this all happened, but I do know it was 1978 or 1979 and I was in Greenwich Village with my sister, her husband and her husband’s brother on another one of their horseshit adventures.
 
 I often got dragged around on horse-shit trips like this because my parents were old, and my siblings were younger and thought I would like being dragged along on their afternoon dates. Never mind the fact that I liked playing out on the street in front of my building instead of hanging around with people in their 30s, they always seemed to figure out a way to drag me along. As if dragging me out of the home and neighborhood I loved was a “good deed” or some shit like that.
 
