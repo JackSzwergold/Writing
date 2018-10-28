@@ -44,7 +44,7 @@ At some point in the middle of my boredom I spotted something to play with: A Pl
 
 By then, the literal joint was lit and my sister’s husband took a puff and then passed it onto his brother. My sister sat still and didn’t participate and wasn’t even offered the joint. This went on for a while with the two guys smoking and joking and me—being a kid—feeling trapped in the middle of this and my sister sitting there and doing nothing like some kind of robot that had just shut down.
 
-At some point, my sister said something and her husband stood up and just shoved her back onto the couch and yelled at her. She sat their like a sack of rocks and just took it; head down, pigeon toed and silent.
+At some point, my sister seemed to “snap out of it” stand up and said something. I don’t really remember what she said, but I do know that her husband stood up and just forcefully shoved her back onto the couch and yelled at her. She sat their like a sack of rocks and just took it; head down, pigeon toed and silent.
 
 I had no idea what to do, but I looked at the my sister’s husband and his brother and half expected them to start bullying me.
 
