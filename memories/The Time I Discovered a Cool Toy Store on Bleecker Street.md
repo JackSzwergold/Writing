@@ -30,9 +30,9 @@ As we walked away from Bleecker Street I made a mental note of the cross-street 
 
 Anyway, after walking a short bit back to West 4th Street we were back at the beloved sandal store. My sister’s husband was out in front waiting with his brother and instantly complaining about her being late.
 
-“Jack saw a toy store,” she said to her husband. Her husband then looked at me and said, “No toys today.” And with that we all headed down the block to his brother’s place.
+“Jack saw a toy store,” she said condescendingly to her husband. Her husband then looked at me and sternly said said, “No toys today, Jack.” And with that we all headed down the block to his brother’s place.
 
-While the Village was filled old school NYC brick buildings, my sister’s husband’s brother lived in something that looked like a drab condo building on Cornelia Street. Quite possibly the ugliest building on the block.
+While the Village was filled old school pre-World War II NYC brick buildings, my sister’s husband’s brother lived in something that looked like a drab soulless condo building on Cornelia Street. On a street with beautiful old New York City buildings, this guy lived in quite possibly the ugliest building on the block.
 
 We went inside, rode up the elevator and we in his place. Inside, his apartment seemed cool. It was filled with sun, plants and wood furniture. It kinda looked like the cover to Carole King’s “Tapestry” in its own way.
 
