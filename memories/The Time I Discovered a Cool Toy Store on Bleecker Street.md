@@ -12,7 +12,7 @@ I remember him and his brother were (presumably) high on majijuana or a beer or 
 
 At some point I stood up and literally said I was bored because what was “fun” about just sitting outside of a sandal shop while stoned family members shopped for sandals inside. So after some protests and negotiation on my part, my sister agreed to walk me around the block to alleviate my boredom.
 
-I think this was the first time I was ever in Greenwich Village, and the place seemed interesting. The streets were tree-lined and nice. I didn’t see signs of the poor working class life I knew in Brooklyn, but things seemed nice and friendly.
+All my complains aside, this was definitely the first time I was ever in Greenwich Village, and the place seemed interesting. The streets were tree-lined and nice. I didn’t see the typical signs of the poor working class life I knew in Brooklyn on the streets of Greenwich Village—like garbage, stray cats, drunks and random piles of dog shit—but things in the neighborhood seemed nice and friendly as far as I could tell.
 
 As we walked around, at some point we hit Bleecker Street. I remember it being sun drenched and pleasant. Just as we were about to turn down to head back to the sandal shop, I spotted what looked like a carousel horse in a store window.
 
