@@ -6,9 +6,9 @@ I don’t remember the exact year this all happened, but I do know it was 1978 o
 
 I often got dragged around on these horse-shit trips like this because my parents were old, and my siblings were younger and thought I—based purely on age difference—would like being dragged along on these afternoon dates. Never mind the fact that I liked playing out on the street in front of my building instead of hanging around with people in their 30s, they always seemed to figure out a way to drag me along. As if dragging me out of the home and neighborhood I loved was a “good deed” or some self-congratulatory shit like that.
 
-Anyway, my first memory of the trip was going to some custom sandal shop on West 4th Street near Jones Street. Apparently my sister’s husband wanted to get some leather sandals and my presence sitting around and doing nothing was required for some reason.
+Anyway, my first memory of the trip was going to some custom sandal shop on West 4th Street near Jones Street. Pretty sure it was Allan Block’s famous sandal shop, on West 4th but don’t quote me on that. Apparently my sister’s husband wanted to get some leather sandals and my presence sitting around and doing nothing was required for some reason.
 
-I remember him and his brother were—presumably—high and laughing and goofing around in the sandal shop while my sister and I waited.
+I remember him and his brother were—presumably—high on majijuana or a beer or two and laughing and goofing around in the sandal shop while my sister and I waited like dogs outside of the shop.
 
 At some point I stood up and said I was bored. And after some complaints and negotiation, my sister agreed to walk me around the block to alleviate my boredom.
 
