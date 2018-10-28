@@ -38,7 +38,7 @@ We went inside, rode up the crappy elevator and before you knoew it, we were in 
 
 I walked inside and sat on a couch. Not much for a kid to do in this place; no better than just sitting in front of a sandal shop, like some dog, on West 4th Street. Someone gave me a glass of water and I basically sat around, drank some water and stared for a bit.
 
-After a while, my sister, her husband and his brother sat down near the coffee table. My sister’s husband started to roll up a joint and his brother talked in hushed tones as he looked at me. My sister just sat there, pretty catatonic.
+After a while, my sister, her husband and his brother sat down near the coffee table that filled the center of the living area. My sister’s husband started to roll up a joint and his brother talked in hushed tones as he looked at me. My sister just sat there, pretty catatonic.
 
 At some point I spotted something to play with: A Play-Doh barbershop set! Cool! It was still in it’s box, so I walked over grabbed it and started to open the box when my sister’s husband’s brother stood up, grabbed it out of my hand and said, “No… That’s not for you.” And put it up on a table.
 
