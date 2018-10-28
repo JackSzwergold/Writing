@@ -36,7 +36,7 @@ While the Village was filled old school pre-World War II NYC brick buildings, my
 
 We went inside, rode up the crappy elevator and before you knoew it, we were in his place. To be fair about it all, the inside of his apartment seemed cool and homey compared to the outside of the building. It was filled with sun, plants and nice-looking wood furniture. In its own wait, it kind of looked like the cover to Carole King’s “Tapestry” but without Carole King or a cat anywhere.
 
-I walked inside and sat on a couch. Not much for a kid to do in this place. They gave me a glass of water and I basically sat around and stared for a bit.
+I walked inside and sat on a couch. Not much for a kid to do in this place; no better than just sitting in front of a sandal shop, like some dog, on West 4th Street. Someone gave me a glass of water and I basically sat around, drank some water and stared for a bit.
 
 After a while, my sister, her husband and his brother sat down near the coffee table. My sister’s husband started to roll up a joint and his brother talked in hushed tones as he looked at me. My sister just sat there, pretty catatonic.
 
