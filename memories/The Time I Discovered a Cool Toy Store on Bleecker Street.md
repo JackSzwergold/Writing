@@ -1,4 +1,5 @@
 ## The Time I Discovered a Cool Toy Store on Bleecker Street
+### About the Time I was Dragged to Greenwich Village by My Sister and Her Husband on Some Sandal Buying Trip and Discovered a Cool Old Toy Store
 
 By Jack Szwergold
 
@@ -8,7 +9,7 @@ I often got dragged around on these horse-shit trips like this because my parent
 
 Anyway, my first memory of the trip was going to some custom sandal shop on West 4th Street near Jones Street. Pretty sure it was Allan Block’s famous sandal shop, on West 4th but don’t quote me on that. Apparently my sister’s husband wanted to get some leather sandals and my presence sitting around and doing nothing was required for some reason.
 
-I remember him and his brother were (presumably) high on majijuana or a beer or two and laughing and goofing around in the sandal shop while my sister and I waited like dogs outside of the shop.
+I remember him and his brother were (presumably) high on marijuana or a beer or two and laughing and goofing around in the sandal shop while my sister and I waited like dogs outside of the shop.
 
 At some point I stood up and literally said I was bored because what was “fun” about just sitting outside of a sandal shop while stoned family members shopped for sandals inside. So after some protests and negotiation on my part, my sister agreed to walk me around the block to alleviate my boredom.
 
@@ -34,7 +35,7 @@ Anyway, after walking a short bit back to West 4th Street we were back at the be
 
 While the Village was filled old school pre-World War II NYC brick buildings, my sister’s husband’s brother lived in something that looked like a drab soulless condo building on Cornelia Street. On a street with beautiful old New York City buildings, this guy lived in quite possibly the ugliest building on the block.
 
-We went inside, rode up the crappy elevator and before you knoew it, we were in his place. To be fair about it all, the inside of his apartment seemed cool and homey compared to the outside of the building. It was filled with sun, plants and nice-looking wood furniture. In its own wait, it kind of looked like the cover to Carole King’s “Tapestry” but without Carole King or a cat anywhere.
+We went inside, rode up the crappy elevator and before you knew it, we were in his place. To be fair about it all, the inside of his apartment seemed cool and homey compared to the outside of the building. It was filled with sun, plants and nice-looking wood furniture. In its own wait, it kind of looked like the cover to Carole King’s “Tapestry” but without Carole King or a cat anywhere.
 
 I walked inside and sat on a couch. Not much for a kid to do in this place; no better than just sitting in front of a sandal shop, like some dog, on West 4th Street. Someone gave me a glass of water and I basically sat around, drank some water and stared for a bit.
 
@@ -46,7 +47,7 @@ By then, the literal joint was lit and my sister’s husband took a puff and the
 
 At some point, my sister seemed to “snap out of it” stand up and said something. I don’t really remember what she said, but I do know that her husband instantly stood up, walked over to her and forcefully shoved her back onto the couch and just started yelling at her. With her ass back on the couch she just shut down again and sat their like a sack of potatoes and just took the abuse; head down, pigeon toed and silent.
 
-I had no idea what to do, but I looked at the my sister’s husband and his brother and half expected them to start yelling at me. But luckilly other than a brief glower or two from them I was spared from their arbitrary violent outbursts.
+I had no idea what to do, but I looked at the my sister’s husband and his brother and half expected them to start yelling at me. But luckily other than a brief glower or two from them I was spared from their arbitrary violent outbursts.
 
 I turned and looked out the window and found some comfort in the sun and shadows cast by the plants in the window. And I also made sure to keep a mental note of the cross street near that cool toy store; this trip to “the city” stunk, but at least if I remembered where that toy store was I could get something good out of all of this domestic bullshit.
 
