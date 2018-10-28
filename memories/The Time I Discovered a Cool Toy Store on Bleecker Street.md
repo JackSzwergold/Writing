@@ -46,7 +46,7 @@ By then, the literal joint was lit and my sister’s husband took a puff and the
 
 At some point, my sister seemed to “snap out of it” stand up and said something. I don’t really remember what she said, but I do know that her husband instantly stood up, walked over to her and forcefully shoved her back onto the couch and just started yelling at her. With her ass back on the couch she just shut down again and sat their like a sack of potatoes and just took the abuse; head down, pigeon toed and silent.
 
-I had no idea what to do, but I looked at the my sister’s husband and his brother and half expected them to start yelling at me. But luckilly other than a brief glower I was spared
+I had no idea what to do, but I looked at the my sister’s husband and his brother and half expected them to start yelling at me. But luckilly other than a brief glower or two from them I was spared from their 
 
 I turned and looked out the window and found some comfort in the sun and shadows cast by the plants in the window.
 
