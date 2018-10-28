@@ -40,9 +40,9 @@ I walked inside and sat on a couch. Not much for a kid to do in this place; no b
 
 After a while, my sister, her husband and his brother sat down near the coffee table that filled the center of the living area. My sister’s husband started to roll up a joint and his brother talked in hushed tones as he looked at me. My sister just sat there, pretty catatonic.
 
-At some point I spotted something to play with: A Play-Doh barbershop set! Cool! It was still in it’s box, so I walked over grabbed it and started to open the box when my sister’s husband’s brother stood up, grabbed it out of my hand and said, “No… That’s not for you.” And put it up on a table.
+At some point in the middle of my boredom I spotted something to play with: A Play-Doh barbershop set! Cool! It was still in it’s box, so I walked over grabbed it and started to open the box when my sister’s husband’s brother stood up, grabbed it out of my hand and said, “No… That’s not for you.” And put it up on a table.
 
-By then, the literal joint was lit and my sister’s husband inhaled and then passed it onto his brother. My sister sat still and didn’t participate. This went on for a while with the two guys smoking and joking and me—being a kid—feeling trapped and my sister sitting there and doing nothing like a robot that had shut down.
+By then, the literal joint was lit and my sister’s husband took a puff and then passed it onto his brother. My sister sat still and didn’t participate and wasn’t even offered the joint. This went on for a while with the two guys smoking and joking and me—being a kid—feeling trapped in the middle of this and my sister sitting there and doing nothing like some kind of robot that had just shut down.
 
 At some point, my sister said something and her husband stood up and just shoved her back onto the couch and yelled at her. She sat their like a sack of rocks and just took it; head down, pigeon toed and silent.
 
