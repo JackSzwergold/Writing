@@ -76,7 +76,7 @@ After dinner, the kids would get up from the dinner table play Dreidel or some b
 
 And again, at no point did Lieszel apologize for her outburst despite the fact that it was pretty clear my mom and dad were still upset about it and still discussing it with my brother throughout the evening.
 
-It seemed like my brother thought it was no big deal and just thought our parents were overreacting to a “minor” incident. I had watched my brother fight with our parents tons of times. But this time it was different. Instead of defending his own parents against the bullying of others, he was clearly apologizing and defending the bully.
+It seemed like my brother thought it was no big deal and just thought our parents were overreacting to—what he perceived to be—a “minor” incident. I had watched my brother fight with our parents tons of times but this time it was different. Instead of defending his own parents against the bullying of others, he was clearly apologizing and defending the bully.
 
 Lieszel deciding to sing a Nazi anthem was one thing; the reaction of others was another. That Hanukkah, the Hanukkah I insisted my parents should put differences aside to celebrate the holiday as a family was the one where this crap happened. And my brother had nothing to say past claiming my parents were overreacting to it all.
 
