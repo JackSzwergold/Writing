@@ -40,9 +40,9 @@ So that Hanukkah we all—in our own “grin and bear it” way—begrudgingly h
 
 When we all showed up everyone else was there already. The in-laws, my brother and his wife, some other miscellaneous family members I barely remember and—last but not least—there was Lieszel.
 
-Lieszel was a family friend of the in-laws from their Washington Heights days and was—pretty much—a central casting example of a dowdy, middle-aged German housewife. Might have been a widower since I never met her husband or even knew if she had children. But in general, she was a stern-faced German-Jewish woman with a poofy blonde hairdo and a judgmental demeanor.
+Lieszel was a family friend of the in-laws from their Washington Heights days and was—pretty much—a central casting example of a dowdy, middle-aged German housewife. She might have been a widower since I never met her husband or even knew if she had children. But in general, she was a stern-faced German-Jewish woman with a poofy blonde hairdo and a judgmental demeanor who showed up at these events and we had to deal with that.
 
-My side of the family was never really friendly to her, but we weren’t unfriendly to her either. She was just this odd creature at these “celebrations” we had to deal with because she was friends with the in-laws.
+My side of the family was never really friendly to her, but not due to lack of trying! She was just this odd, stern creature at these “celebrations” we had to deal with because she was friends with the in-laws and we were just guests.
 
 Now despite the negativity I’m portraying, there were sometimes brief moments of joy at these things. These moments would typically come once the majority of guests arrived and would end shortly before the real “celebration” (typically an overly formal dinner) would happen.
 
