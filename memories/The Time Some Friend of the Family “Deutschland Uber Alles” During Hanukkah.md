@@ -30,11 +30,11 @@ So back to the incident…
 
 By the time Hanukkah came around that year, my parents were hard-set on not going to any more of the in-laws celebrations no matter what.
 
-My brother—as expected—went out of his way to chastise them for thinking and behaving that way, but I understood their point of view. Why go out of your way to have a supposedly “proper” Hanukkah celebration when the people throwing it were just snooty, bourgeois and generally passive-aggresively nasty to the people they invited?
+My brother—as expected—went out of his way to chastise them for thinking and behaving that way, but I understood their point of view. Why go out of your way to have a supposedly “proper” Hanukkah celebration all the way up in Eastchester when the people who invited you were just snotty, judgemental and generally passive-aggresively nasty to the people they invited?
 
-But I was a young kid and bit idealistic at the time. I convinced my dad and mom that not going to the in-laws Hanukkah celebration was not nice. Not nice to who? I dunno. But in general, to me—as a kid—it seemed not nice. And being nice was important, right?
+But I was a young kid and bit idealistic—and naive—at the time. I convinced my dad and mom that not going to the in-laws Hanukkah celebration was rude to my brother and generally not nice. Not nice to who? I dunno. But in general, to me—as a kid—it seemed not nice. And being nice was important, right?
 
-So that Hanukkah we all headed out to Eastchester to celebrate the holiday with the in-laws.
+So that Hanukkah we all—in our own “grin and bear it” way—begrudgingly headed out to Eastchester to celebrate Hanukkah with the in-laws.
 
 ***
 
