@@ -54,9 +54,9 @@ For those who don’t know, “Deutschland Über Alles” was the—initially—
 
 But despite of the very well known, negative Nazi-related associations, Lieszel decided to start singing the first stanza of this German anthem out of the blue during this family gathering.
 
-While I remember her standing up, singing that Nazi bullshit and then sitting down again, I also remember another thing: Nobody else said much of anything or chastized her. I mean, my mom and dad instantly got upset at this bizarre outburst of German nationalism, but nobody else said anything.
+While I remember her standing up, singing that Nazi bullshit and then sitting down again, I also remember another thing: Nobody else said much of anything or even chastized her. I mean, my mom and dad instantly got upset at this bizarre outburst of German nationalism, but nobody else said anything.
 
-My parents were basically flipped out and yelling at my brother about it, but he didn’t think it was a big deal. Neither did his wife or his in-laws. The kids that were around—which consisted of me and my niece from my sister’s side barely understood what just happened and were basically just stunned and silent.
+My parents basically flipped out and started to yell at my brother about it, but my brother didn’t think it was a big deal. Neither did his wife or his in-laws. The kids that were around—which consisted of me and my niece from my sister’s side—barely understood what just happened and were just stunned and silent.
 
 After Lieszel sat down, my brother’s mother-in-law came over and started to whisper in German in Lieszel’s ear as they both looked around at us.
 
