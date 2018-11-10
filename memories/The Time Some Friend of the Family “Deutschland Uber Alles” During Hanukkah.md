@@ -84,9 +84,7 @@ That specific Hanukkah, the Hanukkah I went out of my way to insist that my pare
 
 And my brother had nothing to say about it past claiming my parents were overreacting to it all and it was no big deal.
 
-Saying my brother’s behavior was a betrayal of his own direct family seems too simple. Calling it gaslighting would also be too cut and dry. But from that moment on I finally was able to fully understand why my parents disliked their in-laws: They were bigots in their own genteel way
-
- was buying their bigotry hook, line and sinker for little to no good reason.
+Saying my brother’s behavior was a betrayal of his own direct family seems too simple. Calling it gaslighting would also be too cut and dry. But from that moment on I was finally able to fully understand why my parents disliked their in-laws: These people were classist bigots in their own genteel, German way. And my brother was simply accepting, excusing and normalizing this behavior hook, line and sinker for little to no good reason.
 
 ***
 
