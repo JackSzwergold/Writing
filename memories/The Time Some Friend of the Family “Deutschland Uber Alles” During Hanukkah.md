@@ -52,9 +52,11 @@ So in the middle of one of these brief—and seemingly accidental—moments of j
 
 For those who don’t know, “Deutschland Über Alles” was the—initially—innocuous German national anthem that was hijacked and perverted by the Nazis during World War II to shove national socialism down the throats of all. It was quickly dropped after World War II because of the unshakable Nazi connections.
 
-But despite these well known negative, Nazi-related associations, Lieszel decided to start singing the first stanza out of the blue during this family gathering.
+But despite of the very well known, negative Nazi-related associations, Lieszel decided to start singing the first stanza of this German anthem out of the blue during this family gathering.
 
-I remember her standing up, singing that bullshit and then sitting down again. But I also remember another thing: Other than my mom and dad instantly getting upset at this bizarre display, nobody else said anything.
+While I remember her standing up, singing that Nazi bullshit and then sitting down again, I also remember another thing: 
+
+Other than my mom and dad instantly getting upset at this bizarre display, nobody else said anything.
 
 My parents were basically flipped out and yelling at my brother about it, but he didn’t think it was a big deal. Neither did his wife or his in-laws. The kids that were around—which consisted of me and my niece from my sister’s side barely understood what just happened and were basically just stunned and silent.
 
