@@ -44,7 +44,7 @@ Lieszel was a family friend of the in-laws from their Washington Heights days an
 
 My side of the family was never really friendly to her, but not due to lack of trying! She was just this odd, stern creature at these “celebrations” we had to deal with because she was friends with the in-laws and we were just guests.
 
-Now despite the negativity I’m portraying, there were sometimes brief moments of joy at these things. These moments would typically come once the majority of guests arrived and would end shortly before the real “celebration” (typically an overly formal dinner) would happen.
+Now despite the negative picture I am painting at these events, sometimes there were brief moments of joy at these things. These moments would typically come once the majority of guests arrived and would end shortly before the real “celebration” (typically an overly formal dinner) would happen. The joy existed in the social cracks if you were lucky enough to experience them.
 
 People would be sitting their, talking laughing and joking. Sometimes snacking as well. These moments actually reminded me of the celebrations my family would have at our home, but without the stupid formal dinner that followed. My parents would basically acknowledge the event, pass gifts and well wishes around, and then just hang out. To me that is what a happy celebration would be.
 
