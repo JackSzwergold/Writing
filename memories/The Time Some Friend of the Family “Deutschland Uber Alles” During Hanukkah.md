@@ -68,11 +68,11 @@ In the case of Hanukkah, dinner started only after the Hanukkah Menorahs were li
 
 ***
 
-To say the dinner was awkward was an understatement at best; the dinner was filled with pregnant pauses and awkward interactions. I don’t recall what we ate, but it was most likely some basic brisket, beans, sweet potatoes and other forgetable stuff like that.
+To say the dinner was awkward was an understatement at best; the dinner was filled with pregnant pauses and awkward interactions. I don’t recall what we ate, but it was most likely some basic brisket, beans, sweet potatoes and other forgetable things like that.
 
-And honestly, while I sometimes liked the brisket the in-laws made, the “Deutschland Über Alles” appetizer kind of ruined it for me that day.
+And honestly, while I sometimes enjoyed the brisket the in-laws made, the “Deutschland Über Alles” opening act I was forced to expereince to kind of ruined it that day.
 
-After the dinner, the kids would wait for gifts to arrive and sometimes we would play Dreidel. If we were lucky, my brother’s father-in-law would turn on the TV so I could sit and just stare at flashing pictures on a screen until it was time to go home.
+After the dinner, the kids would get up from the dinner table and wait for gifts to arrive and sometimes we would play Dreidel. If we were lucky, my brother’s father-in-law would turn on the TV so I could sit and just stare at flashing pictures on a screen until it was time to go home.
 
 And again, at no point did Lieszel apologize for anything despite the fact that even my mom and dad were arguing with my brother in Polish at sporadic times during the night about how she behaved. My general impression is my brother thought it was no big deal and our parents were overreacting. I had watched my brother fight with our parents tons of times. But this time it was different. Instead of defending his own parents against the bullying of others, he was clearly apologizing and defending the bully.
 
