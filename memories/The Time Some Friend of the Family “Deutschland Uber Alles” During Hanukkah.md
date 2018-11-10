@@ -12,7 +12,7 @@ Despite all of the classic jokes and tropes about in-laws, one might not underst
 
 But the the larger—and more ethnically specific—deal was that my parents were working class Jewish-Polish immigrants. And these in-laws were middle-class and Jewish-German. The differences might be subtle to some—and that even simplifies it a lot—but there was a lot of implicit, and sometimes explicit, class related bigotry and elitism at play in the way the in-laws interacted with my family.
 
-I should also state that all of them—my parents and my brother’s in-laws—were Holocaust survivors. And to outsiders that should mean they shared a common bond through tragedy but they didn’t. They hated each other; the in-laws in a passive-aggressive entitled middle-class way and my parents in a more direct no-nonsense working class way.
+And one should also know that everyone—my parents and my brother’s in-laws—were Holocaust survivors. And to outsiders that might mean they shared a common bond through a common tragedy but they honestly didn’t. They didn’t like each other; the in-laws in a somewhat slick, passive-aggressive and entitled middle-class way and my parents in a more direct no-nonsense working class way.
 
 ***
 
