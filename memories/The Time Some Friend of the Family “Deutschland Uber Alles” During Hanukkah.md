@@ -16,9 +16,11 @@ And one should also know that everyone—my parents and my brother’s in-laws�
 
 ***
 
-Anyway, a year or so before the incident, my mom and dad both—for all intents and purposes—declared they were sick of these in-law celebrations. Phrases like “entitled” or “privileged” really didn’t exist in common language back then. And even if they did my parents weren’t fluent enough in English to use them. But based on the arguments I would hear them engage my brother in on the phone, that’s basically their complaint about the in-laws.
+A year or so before this incident happened, my mom and dad both—for all intents and purposes—declared they were sick of these in-law hosted celebrations. Phrases like “entitled” or “privileged” really didn’t exist in common language back then. And even if they did my parents weren’t fluent enough in English to use them. But based on the arguments I would hear them engage my brother in on the phone—and sometimes in person—that’s basically what their complaint about the in-laws was about.
 
-As for me, I always saw them as “snotty” and “conceited.” Every visit I had with them I felt like I was being treated as a rescue animal or special case. To be fair, most people treated me as if I was weird as a kid since my parents were old and immigrants. But my brother’s in-law’s always “kicked it up a notch” in their interactions; I always got the general sense they were patronizing me but tolerated it since during the holidays I would get some decent money or gifts from them.
+As for me, as a mere kid caught in the middle of all of this, I always saw the in-laws as “snotty” and “conceited.” During every visit I had with them I always felt like I was being treated as some kind of pitiful object that needed to be “rescued” or some kind of special case that they were attempting to rescue and rehabilitate. To be fair, most people treated me as if I was weird as a kid since my parents were old and immigrants and that stuck out like a sore thumb
+
+. But my brother’s in-law’s always “kicked it up a notch” in their interactions; I always got the general sense they were patronizing me but tolerated it since during the holidays I would get some decent money or gifts from them.
 
 So back to the incident: By the time Hanukkah came around that year, my parents were hard-set on not going to any more of the in-laws celebrations.
 
