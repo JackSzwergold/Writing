@@ -68,9 +68,9 @@ In the case of Hanukkah, dinner started only after the Hanukkah Menorahs were li
 
 ***
 
-To say it was awkward was an understatement at best. The dinner that happened after all of that was filled with pregnant pauses and awkward interactions. I don’t recall what we ate, but it was most likely some shitty brisket, beans, sweet potatoes and other crap like that.
+To say the dinner was awkward was an understatement at best; the dinner was filled with pregnant pauses and awkward interactions. I don’t recall what we ate, but it was most likely some basic brisket, beans, sweet potatoes and other forgetable stuff like that.
 
-I honestly liked the brisket, but the Nazi anthem thing kinda ruined it.
+And honestly, while I sometimes liked the brisket the in-laws made, the “Deutschland Über Alles” appetizer kind of ruined it for me that day.
 
 After the dinner, the kids would wait for gifts to arrive and sometimes we would play Dreidel. If we were lucky, my brother’s father-in-law would turn on the TV so I could sit and just stare at flashing pictures on a screen until it was time to go home.
 
