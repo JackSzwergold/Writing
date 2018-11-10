@@ -24,9 +24,13 @@ To be fair, most people treated me as if I was “weird” or “strange” as a
 
 But my brother’s in-law’s always knew how to “kick it up a notch” in their interactions; I always got the general sense they were patronizing me but I sucked it up and tolerated it since during the holidays I would get some decent money or gifts from them.
 
-So back to the incident: By the time Hanukkah came around that year, my parents were hard-set on not going to any more of the in-laws celebrations.
+So back to the incident…
 
-My brother—as expected—chastised them for thinking and behaving that way, but I saw their point. Why have a supposedly “proper” Hanukkah celebration when the people throwing it were just snooty, bourgeois and  passively nasty to the people they invited?
+***
+
+By the time Hanukkah came around that year, my parents were hard-set on not going to any more of the in-laws celebrations no matter what.
+
+My brother—as expected—went out of his way to chastise them for thinking and behaving that way, but I understood their point of view. Why go out of your way to have a supposedly “proper” Hanukkah celebration when the people throwing it were just snooty, bourgeois and generally passive-aggresively nasty to the people they invited?
 
 But I was a young kid and bit idealistic at the time. I convinced my dad and mom that not going to the in-laws Hanukkah celebration was not nice. Not nice to who? I dunno. But in general, to me—as a kid—it seemed not nice. And being nice was important, right?
 
