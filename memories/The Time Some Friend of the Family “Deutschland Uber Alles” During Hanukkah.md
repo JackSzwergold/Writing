@@ -8,7 +8,7 @@ Nobody in my direct family was from Eastchester, but my brother’s in-laws live
 
 ***
 
-Superficially, one might not understand why anyone wouldn’t like those in-laws. The husband was a baker and the wife was a housewife and after working and toiling in Washington Heights for years they finally “retired” to some condo in Eastchester. Kinda typical.
+Despite all of the classic jokes and trops about in-laws, one might not understand why anyone wouldn’t like these particular in-laws. The husband was a baker and the wife was a housewife and after working and toiling in the old—and predominantly German—part of Washington Heights for years they finally “retired” to some condo in Eastchester. Kinda typical.
 
 But the deal was that my parents were working class and Polish. The in-laws were middle-class and German. That simplifies it a lot, but there was a lot of implicit—and sometimes explicit—classism and elitism at play in the way the in-laws interacted with my family.
 
