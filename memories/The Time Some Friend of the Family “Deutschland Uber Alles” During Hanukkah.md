@@ -80,9 +80,13 @@ It seemed like my brother thought it was no big deal and just thought our parent
 
 And while Lieszel deciding to sing “Deutschland Über Alles” was one thing, the reaction—or lack of reaction—of others in the family was another.
 
-That specific Hanukkah, the Hanukkah I went out of my way to insist that my parents put aside their differences with the in-laws to celebrate the holiday as a family, ended up being the one where this crazy bullshit happened. And my brother had nothing to say about it past claiming my parents were overreacting to it all and it was no big deal.
+That specific Hanukkah, the Hanukkah I went out of my way to insist that my parents put aside their differences with the in-laws to celebrate the holiday as a family, ended up being the one where this crazy bullshit happened.
 
-Saying my brother’s behavior was a betrayal of his own direct family seems too simple. Calling it gaslighting would also be too cut and dry. But from that moment on I finally was able to fully understand why my parents disliked their in-laws: They were bigots in their own genteel way and their own son was buying their bigotry hook, line and sinker for little to no good reason.
+And my brother had nothing to say about it past claiming my parents were overreacting to it all and it was no big deal.
+
+Saying my brother’s behavior was a betrayal of his own direct family seems too simple. Calling it gaslighting would also be too cut and dry. But from that moment on I finally was able to fully understand why my parents disliked their in-laws: They were bigots in their own genteel way
+
+ was buying their bigotry hook, line and sinker for little to no good reason.
 
 ***
 
