@@ -62,9 +62,9 @@ After Lieszel sat down, my brother’s mother-in-law came over and started to wh
 
 I might have been a kid at the time, but neither of them seemed to be too broken up about the incident despite the fact it was—frankly—pretty crazy. Not to mention that at no point did Lieszel look remorseful or even attempt to apologize. The look on her face reminded me of the stern and judgmental—and frankly shitty—elementary school teachers I dealt with growing up. But at least when it came to teachers, I could go home at the end of the day and not have to share a meal with them. Now somehow we all had to sit down and break bread with this unapologetic German loon.
 
-Needless to say, the fun and laughter stopped and we all just sat around and awkwardly waited for dinner to start.
+Needless to say, the fun and laughter were suck out of the room and wel all just sat around and awkwardly waited for the holiday dinner to start.
 
-In the case of Hanukkah, dinner only started after the Hanukkah Menorahs were lit. So when the Menorahs were pulled out, we all gathered, lit the Menorahs and then sat down to dinner.
+In the case of Hanukkah, dinner started only after the Hanukkah Menorahs were lit. So when the Menorahs were pulled out, we all gathered, lit the Menorahs and then sat down to dinner.
 
 ***
 
