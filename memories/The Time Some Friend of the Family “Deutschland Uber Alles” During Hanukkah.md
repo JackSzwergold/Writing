@@ -8,7 +8,7 @@ Nobody in my direct family was from Eastchester, but my brother’s in-laws live
 
 ***
 
-Despite all of the classic jokes and tropes about in-laws, one might not understand why anyone wouldn’t like these particular in-laws. What was not to like? The husband was a baker and the wife was a housewife and after working and toiling in the old—and predominantly German—part of Washington Heights for years they finally “retired” to some condo in Eastchester in their later. Kinda typical Eastern European life path at the time.
+Despite all of the classic jokes and tropes about in-laws, one might not understand why anyone wouldn’t like these particular in-laws. What was not to like? The husband was a baker and the wife was a housewife and after working and toiling in the old—and predominantly German—part of Washington Heights for years they finally “retired” to some condo in Eastchester in their later years. Kinda typical Eastern European life path at the time.
 
 But the the larger—and more ethnically specific—deal was that my parents were working class Jewish-Polish immigrants. And these in-laws were middle-class and Jewish-German. The differences might be subtle to some—and that even simplifies it a lot—but there was a lot of implicit, and sometimes explicit, class related bigotry and elitism at play in the way the in-laws interacted with my family.
 
@@ -30,7 +30,7 @@ So back to the incident…
 
 By the time Hanukkah came around that year, my parents were hard-set on not going to any more of the in-laws celebrations no matter what.
 
-My brother—as expected—went out of his way to chastise them for thinking and behaving that way, but I understood their point of view. Why go out of your way to have a supposedly “proper” Hanukkah celebration all the way up in Eastchester when the people who invited you were just snotty, judgemental and generally passive-aggresively nasty to the people they invited?
+My brother—as expected—went out of his way to chastise them for thinking and behaving that way, but I understood their point of view. Why go out of your way to have a supposedly “proper” Hanukkah celebration all the way up in Eastchester when the people who invited you were just snotty, judgmental and generally passive-aggressively nasty to the people they invited?
 
 But I was a young kid and bit idealistic—and naive—at the time. I convinced my dad and mom that not going to the in-laws Hanukkah celebration was rude to my brother and generally not nice. Not nice to who? I dunno. But in general, to me—as a kid—it seemed not nice. And being nice was important, right?
 
@@ -46,7 +46,7 @@ My side of the family was never really friendly to her, but not due to lack of t
 
 Now despite the negative picture I am painting at these events, sometimes there were brief moments of joy at these things. These moments would typically come once the majority of guests arrived and would end shortly before the real “celebration” (typically an overly formal dinner) would happen. The joy existed in the social cracks if you were lucky enough to experience them.
 
-People would be just sitting around, talking laughing and joking. Sometimes snacking as well. These moments actually reminded me of the celebrations my family would have at our home, but without the stupid formal dinner that followed. My parents celebtations would basically center around a simple acknowledgement of the event, passing around gifts and well wishes, and then just basically hanging around and doing not much of anything. To me that is what a happy celebration is about; being together and not making a big deal out of things.
+People would be just sitting around, talking laughing and joking. Sometimes snacking as well. These moments actually reminded me of the celebrations my family would have at our home, but without the stupid formal dinner that followed. My parents celebrations would basically center around a simple acknowledgement of the event, passing around gifts and well wishes, and then just basically hanging around and doing not much of anything. To me that is what a happy celebration is about; being together and not making a big deal out of things.
 
 So in the middle of one of these brief—and seemingly accidental—moments of joy in-law family-friend Lieszel inexplicably stood up from wherever she was was sitting and started to loudly sing, “Deutschland, Deutschland über alles, über alles in der Welt!” And then sit back down.
 
@@ -54,7 +54,7 @@ For those who don’t know, “Deutschland Über Alles” was the—initially—
 
 But despite of the very well known, negative Nazi-related associations, Lieszel decided to start singing the first stanza of this German anthem out of the blue during this family gathering.
 
-While I remember her standing up, singing that Nazi bullshit and then sitting down again, I also remember another thing: Nobody else said much of anything or even chastized her. I mean, my mom and dad instantly got upset at this bizarre outburst of German nationalism, but nobody else said anything.
+While I remember her standing up, singing that Nazi bullshit and then sitting down again, I also remember another thing: Nobody else said much of anything or even chastised her. I mean, my mom and dad instantly got upset at this bizarre outburst of German nationalism, but nobody else said anything.
 
 My parents basically flipped out and started to yell at my brother about it, but my brother didn’t think it was a big deal. Neither did his wife or his in-laws. The kids that were around—which consisted of me and my niece from my sister’s side—barely understood what just happened, but we knew it was weird so we were just stunned and silent.
 
@@ -68,7 +68,7 @@ In the case of Hanukkah, dinner started only after the Hanukkah Menorahs were li
 
 ***
 
-To say the dinner was awkward was an understatement at best; the dinner was filled with pregnant pauses and awkward interactions. I don’t recall what we ate, but it was most likely some basic brisket, beans, sweet potatoes and other forgetable things like that.
+To say the dinner was awkward was an understatement at best; the dinner was filled with pregnant pauses and awkward interactions. I don’t recall what we ate, but it was most likely some basic brisket, beans, sweet potatoes and other forgettable things like that.
 
 And honestly, while I sometimes enjoyed the brisket the in-laws made, the “Deutschland Über Alles” opening act I was forced to experience that day kind of ruined the meal for me.
 
@@ -84,9 +84,9 @@ That specific Hanukkah, the Hanukkah I went out of my way to insist that my pare
 
 And my brother had nothing to say about it past claiming my parents were overreacting to it all and it was no big deal.
 
-Saying my brother’s behavior was a betrayal of his own direct family seems too simple. Calling it gaslighting would also be too cut and dry. But from that moment on I was able to fully understand why my parents disliked their in-laws and didn’t want to deal with them: These people were just classist bigots in their own genteel, European way. And my brother was simply accepting, excusing and normalizing this behavior for little to no good reason.
+Saying my brother’s behavior was a betrayal of his own direct family seems too simple. Calling it gaslighting would also be too cut and dry. But from that moment on I was able to fully understand why my parents disliked their in-laws and didn’t want to deal with them: These people were just classist bigots in their own genteel, European way. And my brother was simply accepting, excusing and normalizing this behavior for little to no good reason other than he married into this other family.
 
-And I was just 10 or 11 years old at the time when I realized this all.
+And I was just 10 or 11 years old at the time when I came to this sad realization.
 
 ***
 
