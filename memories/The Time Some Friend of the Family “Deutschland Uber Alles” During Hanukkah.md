@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-I’m not too sure when exactly it happened. Pretty sure I was 10 or 11 years old at the time which would have placed it happening square in 1978 or 1979. Regardless, it happened during Hanukkah with the family in Eastchester.
+Honestly not too sure when exactly it happened. Pretty sure I was 10 or 11 years old at the time which would have placed this all happening during the holiday season of of 1978 or 1979. Regardless, it happened during Hanukkah with the extended family in Eastchester.
 
 Nobody in my direct family was from Eastchester, but my brother’s in-laws lived in Eastchester. And since my parents really never did anything big for Hanukkah—or any of the holidays actually—the in-law’s Hanukkah celebration ended up being the de-facto “big” celebration in the family despite others not really liking the celebration or the in-laws.
 
