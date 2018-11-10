@@ -34,13 +34,13 @@ My brother—as expected—went out of his way to chastise them for thinking and
 
 But I was a young kid and bit idealistic—and naive—at the time. I convinced my dad and mom that not going to the in-laws Hanukkah celebration was rude to my brother and generally not nice. Not nice to who? I dunno. But in general, to me—as a kid—it seemed not nice. And being nice was important, right?
 
-So that Hanukkah we all—in our own “grin and bear it” way—begrudgingly headed out to Eastchester to celebrate Hanukkah with the in-laws.
+So that Hanukkah we all—in our own “grin and bear it” way—begrudgingly headed out to Eastchester to celebrate Hanukkah with the in-laws and make the best of it.
 
 ***
 
-When I showed up everyone else was there already. The in-laws, my brother and his wife, some other miscellaneous family members and Lieszel.
+When we all showed up everyone else was there already. The in-laws, my brother and his wife, some other miscellaneous family members I barely remember and—last but not least—there was Lieszel.
 
-Lieszel was a family friend of the in-laws and was pretty much a central casting example of a dowdy, middle-aged German housewife. Might have been a widower since I never met her husband or even knew if she had children. But in general, she was a stern-faced German-Jewish woman with a poofy blonde hairdo and a judgmental demeanor.
+Lieszel was a family friend of the in-laws from their Washington Heights days and was—pretty much—a central casting example of a dowdy, middle-aged German housewife. Might have been a widower since I never met her husband or even knew if she had children. But in general, she was a stern-faced German-Jewish woman with a poofy blonde hairdo and a judgmental demeanor.
 
 My side of the family was never really friendly to her, but we weren’t unfriendly to her either. She was just this odd creature at these “celebrations” we had to deal with because she was friends with the in-laws.
 
