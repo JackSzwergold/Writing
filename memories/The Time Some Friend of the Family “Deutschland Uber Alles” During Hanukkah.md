@@ -48,9 +48,9 @@ Now despite the negative picture I am painting at these events, sometimes there 
 
 People would be just sitting around, talking laughing and joking. Sometimes snacking as well. These moments actually reminded me of the celebrations my family would have at our home, but without the stupid formal dinner that followed. My parents celebtations would basically center around a simple acknowledgement of the event, passing around gifts and well wishes, and then just basically hanging around and doing not much of anything. To me that is what a happy celebration is about; being together and not making a big deal out of things.
 
-So in the middle of one of these brief, seemingly accidental moments of joy, Lieszel inexplicably stood up from wherever she was was sitting—couch or chair—and started to loudly sing, “Deutschland, Deutschland über alles, über alles in der Welt.”
+So in the middle of one of these brief—and seemingly accidental—moments of joy in-law family-friend Lieszel inexplicably stood up from wherever she was was sitting and started to loudly sing, “Deutschland, Deutschland über alles, über alles in der Welt!” And then sit back down.
 
-That was the German national anthem that was hijacked by the Nazis during World War II to shove nationalism down the throats of all. It was quickly dropped after World War II because of the Nazi connections.
+For those who don’t know, that was the German national anthem that was hijacked and perverted by the Nazis during World War II to shove national socialism down the throats of all. It was quickly dropped after World War II because of the unshakable Nazi connections.
 
 But despite these associations, Lieszel decided to start singing the first stanza—the one most famously used and overused by the Nazis—during this family holiday event.
 
