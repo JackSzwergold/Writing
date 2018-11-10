@@ -46,7 +46,7 @@ My side of the family was never really friendly to her, but not due to lack of t
 
 Now despite the negative picture I am painting at these events, sometimes there were brief moments of joy at these things. These moments would typically come once the majority of guests arrived and would end shortly before the real “celebration” (typically an overly formal dinner) would happen. The joy existed in the social cracks if you were lucky enough to experience them.
 
-People would be sitting their, talking laughing and joking. Sometimes snacking as well. These moments actually reminded me of the celebrations my family would have at our home, but without the stupid formal dinner that followed. My parents would basically acknowledge the event, pass gifts and well wishes around, and then just hang out. To me that is what a happy celebration would be.
+People would be just sitting around, talking laughing and joking. Sometimes snacking as well. These moments actually reminded me of the celebrations my family would have at our home, but without the stupid formal dinner that followed. My parents celebtations would basically center around a simple acknowledgement of the event, passing around gifts and well wishes, and then just basically hanging around and doing not much of anything. To me that is what a happy celebration is about; being together and not making a big deal out of things.
 
 So in the middle of one of these brief, seemingly accidental moments of joy, Lieszel inexplicably stood up from wherever she was was sitting—couch or chair—and started to loudly sing, “Deutschland, Deutschland über alles, über alles in der Welt.”
 
