@@ -50,9 +50,11 @@ People would be just sitting around, talking laughing and joking. Sometimes snac
 
 So in the middle of one of these brief—and seemingly accidental—moments of joy in-law family-friend Lieszel inexplicably stood up from wherever she was was sitting and started to loudly sing, “Deutschland, Deutschland über alles, über alles in der Welt!” And then sit back down.
 
-For those who don’t know, that was the German national anthem that was hijacked and perverted by the Nazis during World War II to shove national socialism down the throats of all. It was quickly dropped after World War II because of the unshakable Nazi connections.
+For those who don’t know, “Deutschland Über Alles” was the—initially—innocuous German national anthem that was hijacked and perverted by the Nazis during World War II to shove national socialism down the throats of all. It was quickly dropped after World War II because of the unshakable Nazi connections.
 
-But despite these associations, Lieszel decided to start singing the first stanza—the one most famously used and overused by the Nazis—during this family holiday event.
+But despite these negative associations, Lieszel decided to start singing the first stanza
+
+during this family holiday event.
 
 I remember her standing up, singing that bullshit and then sitting down again. But I also remember another thing: Other than my mom and dad instantly getting upset at this bizarre display, nobody else said anything.
 
