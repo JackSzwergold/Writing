@@ -56,11 +56,11 @@ But despite of the very well known, negative Nazi-related associations, Lieszel 
 
 While I remember her standing up, singing that Nazi bullshit and then sitting down again, I also remember another thing: Nobody else said much of anything or even chastized her. I mean, my mom and dad instantly got upset at this bizarre outburst of German nationalism, but nobody else said anything.
 
-My parents basically flipped out and started to yell at my brother about it, but my brother didn’t think it was a big deal. Neither did his wife or his in-laws. The kids that were around—which consisted of me and my niece from my sister’s side—barely understood what just happened and were just stunned and silent.
+My parents basically flipped out and started to yell at my brother about it, but my brother didn’t think it was a big deal. Neither did his wife or his in-laws. The kids that were around—which consisted of me and my niece from my sister’s side—barely understood what just happened, but we knew it was weird so we were just stunned and silent.
 
 After Lieszel sat down, my brother’s mother-in-law came over and started to whisper in German in Lieszel’s ear as they both looked around at us.
 
-I might have been a kid at the time, but neither of them seemed to broken up about the incident despite the fact it was—frankly—crazy. Not to mention that at no point did Lieszel even attempt to apologize. The look on her face reminded me of the stern and judgmental—and frankly shitty—elementary school teachers I dealt with growing up. But at least when it came to teachers, I could go home at the end of the day. Now somehow we all had to sit down and break bread with this unapologetic loon.
+I might have been a kid at the time, but neither of them seemed to be too broken up about the incident despite the fact it was—frankly—pretty crazy. Not to mention that at no point did Lieszel look remorseful or even attempt to apologize. The look on her face reminded me of the stern and judgmental—and frankly shitty—elementary school teachers I dealt with growing up. But at least when it came to teachers, I could go home at the end of the day and not have to share a meal with them. Now somehow we all had to sit down and break bread with this unapologetic German loon.
 
 Needless to say, the fun and laughter stopped and we all just sat around and awkwardly waited for dinner to start.
 
