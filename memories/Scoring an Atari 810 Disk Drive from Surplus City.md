@@ -110,9 +110,9 @@ He then grilled me on how I got a cable and power supply and I explained how I f
 
 His voice was noticeably angry when I mentioned the power supply and he said, “You don’t need an Atari power supply! You can use any kind of power supply!”
 
-As he shouted at me I was at a loss. This was the same person who refused to help me initially when I asked him to and now he’s yelling at me because I bought an official Atari part? If he believed a non-Atari power supply would have worked, then why didn’t he offer to help me find one to begin with?
+As he shouted at me over the phone I was at a loss. He’s 20 years older than me and this was the same person who refused to help me when I initially asked him to help me and now he’s yelling at me because I bought an official Atari part? If he believed a non-Atari power supply would have worked, then why didn’t he offer to help me find one to begin with?
 
-“It works,” I replied. Then there was a pregnant pause and he asked to be passed back to my dad and I did.
+“It works,” I replied. Then there was a pregnant pause, a bit of angry breathing and then—seemingly at a loss for words—he asked me to pass the phone back to my dad and I did.
 
 While my dad talked to my brother on the phone, I went back to my room and played around with Atari DOS. Sure it was a boring system utility, but I needed to learn how to use it if I was going to use that disk drive to load and copy games.
 
