@@ -2,19 +2,19 @@
 
 By Jack Szwergold
 
-I was 13 or 14 and had an Atari 400 home computer I got for my Bar Mitzvah. That computer was a mixed bag of a gift if I there ever was one. While I liked the fact that I could play video games on it, the gift—which was ostensibly from the “whole family” but in reality from my brother and his overbearing wife at time—was loaded with expectations of use that I could not fufill. Instead of playing games all day, my brother and his wife expected me to be an instantaneous programming genius who wrote video games instead of mindlessly playing them.
+I was 13 or 14 and had an Atari 400 home computer I got for my Bar Mitzvah. That computer was a mixed bag of a gift if I there ever was one. While I liked the fact that I could play video games on it, the gift—which was ostensibly from the “whole family” but in reality from my brother and his overbearing wife at time—was loaded with expectations of use that I could not fulfill. Instead of playing games all day, my brother and his wife expected me to be an instantaneous programming genius who wrote video games instead of mindlessly playing them.
 
 While I became a programmer as an adult, at the time I was just 13 or 14 years old and all I wanted to do was play video games, not make them. But software—especially video games—cost too much back then. And besides that, owning a computer like an Atari 400 in the early 1980s was a “rich kid” thing; and my family was far from rich. So I made due with the small handful of games I got as part of the Bar Mitzvah gift package to entertain myself.
 
 That is until I learned how to pirate software.
 
-I might have only had a measely Atari 410 cassette tape drive at the time, but pirating was a fairly easy skill to pick up. All one had to do was figure out how to make an exact copy of a cassette tape and you were good to go! In my case I figured out how to connect two portable radios with cassette decks via an improvised dubbing cable made from the salvaged cables of two busted 3.5mm stereo headphones.
+I might have only had a measly Atari 410 cassette tape drive at the time, but pirating was a fairly easy skill to pick up. All one had to do was figure out how to make an exact copy of a cassette tape and you were good to go! In my case I figured out how to connect two portable radios with cassette decks via an improvised dubbing cable made from the salvaged cables of two busted 3.5mm stereo headphones.
 
 While from a quality standpoint the cable was crap—and literally held together with cheap Scotch tape and not much else—it did the job. If someone I knew had a cool game on a cassette tape, all I needed to do to get a copy of that that game was to get a blank cassette tape, borrow a friend’s cassette deck to hook up to mine with that cable, hit play on one deck, record on the other and some time later I would have my own copy of that game.
 
 And that description makes the dubbing process sound simple. And to be completely honest dubbing tapes of any kind—audio or data—is, indeed, a simple process. But dubbing tapes in real-time is also a very tedious—and time consuming—process.
 
-Depending on how large—from a raw data standbpoint—the game was, dubbing cassette tapes could take a lot of time to do. And borrowing a friend’s cassette recorder was often a small political battle in and of itself since they would often want a copy of the game as well, thus doubling the amount of time I would have to spend making a copy of a game.
+Depending on how large—from a raw data standpoint—the game was, dubbing cassette tapes could take a lot of time to do. And borrowing a friend’s cassette recorder was often a small political battle in and of itself since they would often want a copy of the game as well, thus doubling the amount of time I would have to spend making a copy of a game.
 
 At the end of the day, dubbing cassette tapes to get a copy of a game sucked and my dream as a kid was getting a real disk drive. They were faster, could store more data than a cassette tape and copying them was relatively easier than copying cassettes since disk drives didn’t require that data be copied in real time.
 
@@ -22,7 +22,7 @@ But disk drives were expensive peripherals in the early days of computing and my
 
 The base model Atari 810 disk drive retailed for around $299 back in the early 1980s and that was basically close to the $499 cost of the Atari 400 I had.
 
-My $2 a week allowance was good for saving up for small kid things like toys, comics and books. But even if I stopped buying stuff and dilligently saved up my weekly allowance it would take me nearly 3 years to save up $299 on my own.
+My $2 a week allowance was good for saving up for small kid things like toys, comics and books. But even if I stopped buying stuff and diligently saved up my weekly allowance it would take me nearly 3 years to save up $299 on my own.
 
 So I was resigned to my life of being stuck with dealing with data cassettes for the glorified video game system my Atari 400 became.
 
@@ -30,7 +30,7 @@ So I was resigned to my life of being stuck with dealing with data cassettes for
 
 One day I was playing around Brighton Beach Avenue with some friends and ran past the window of of a neighborhood shop called, “Surplus City.” As the name implied, the place was a classic, old school, NYC mom and pop junk shop located around tons of other mom and pop junk shops in the junky neighborhood I lived in. That said, I had nothing against junk shops: My mom liked the place and I genuinely enjoyed rummaging through the piles of junk in that place with my mom when she dragged me along on one of her neighborhood bargain hunting trips.
 
-But on this day it was just me and a bunch of kids horsing around when I noticed something in the front window of “Surplus City.” There mixed in with the literal tons of smashed, stacked and shoved clothes, schmatas and accesories on a shelf in the window was the unmistakable light brownish beige color of an Atari peripheral.
+But on this day it was just me and a bunch of kids horsing around when I noticed something in the front window of “Surplus City.” There, mixed in with the literal tons of smashed, stacked and shoved clothes, schmattas, rags and accessories on a shelf in the window was the unmistakable light brownish beige color of an Atari peripheral.
 
 I walked closer to the window and checked it out and based on what I could see, it looked like it was either an Atari 810 disk drive or an Atari 820 receipt printer.
 
@@ -84,7 +84,7 @@ The next day I called them up. The guy on the phone seemed to think it was a jok
 
 By the time the next weekend rolled around, my dad had already figured out what train we needed to take. I am pretty sure we needed to get to 72nd Street on the Upper West Side and my dad had already mapped it out.
 
-So we headed out there, got of the train and headed to some tree-lined block filled with old buildings. When we got to the place, it wasn’t a regular storefront but rather one of those “basement of a brownstone” stores that just had some tin sign hanging out front near the garbage cans and staircase that lead to their store.
+So we headed out there, got off the train and headed to some tree-lined block filled with old buildings. When we got to the place, it wasn’t a regular storefront but rather one of those “basement of a brownstone” stores that just had some tin sign hanging out front near the garbage cans and staircase that lead to their store.
 
 I went downstairs with my dad and headed to the counter. Seemed like the place was a purely service and repair shop so it made sense they were in this basement space. The guy behind the counter was a bit stunned when he realized I was the kid that called up a week earlier, but was happy to oblige.
 
@@ -92,7 +92,7 @@ The guy pulled out what looked to be a clean and solid homemade Atari disk drive
 
 ***
 
-When we got back home, I carefully conencted the Atari 810 disk drive to my Atari 400 with that new data cable and inserted a bootable diskette into the drive that a friend let me borrow. The disk had Atari DOS on it, so all I had to do was power up the Atari 400 and let it boot. And if it booted, it worked? And lo and behold within seconds of turning the machine on, it booted from the diskette! It worked! I was so excited and happy!
+When we got back home, I carefully connected the Atari 810 disk drive to my Atari 400 with that new data cable and inserted a bootable diskette into the drive that a friend let me borrow. The disk had Atari DOS on it, so all I had to do was power up the Atari 400 and let it boot. And if it booted, it worked? And lo and behold within seconds of turning the machine on, it booted from the diskette! It worked! I was so excited and happy!
 
 “It works?” my dad said. “Yes!” I shouted; happy and excited. My mom waddled over to my room to see what was happening and my dad explained it to her.
 
