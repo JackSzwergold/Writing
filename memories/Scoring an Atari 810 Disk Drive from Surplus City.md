@@ -102,15 +102,15 @@ Yeah, a Jewish mother was proud of her Jewish son getting something at a deep di
 
 Things were happy until the phone rang. It was my brother doing his weekly check in.
 
-My dad briefly mentioned that the Atari disk drive worked and then passed the phone onto me.
+My dad briefly mentioned that the Atari 810 disk drive worked and then passed the phone onto me.
 
 “So it works?” my brother asked and I replied, “Yes! It works!” 
 
-He then grilled me on how I got a cable and power supply and I explained how I found a store.
+He then grilled me on how I got a cable and power supply and I explained how I found a store. There was no joy in his voice.
 
 His voice was noticeably angry when I mentioned the power supply and he said, “You don’t need an Atari power supply! You can use any kind of power supply!”
 
-As he shouted at me I was at a loss. This was the same person who refused to help me initially when I asked him to and now he’s yelling at me because I bought an official Atari part?
+As he shouted at me I was at a loss. This was the same person who refused to help me initially when I asked him to and now he’s yelling at me because I bought an official Atari part? If he believed a non-Atari power supply would have worked, then why didn’t he offer to help me find one to begin with?
 
 “It works,” I replied. Then there was a pregnant pause and he asked to be passed back to my dad and I did.
 
