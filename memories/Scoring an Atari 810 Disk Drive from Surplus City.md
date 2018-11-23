@@ -14,15 +14,15 @@ While from a quality standpoint the cable was crap—and literally held together
 
 And that description makes the dubbing process sound simple. And to be completely honest dubbing tapes of any kind—audio or data—is, indeed, a simple process. But dubbing tapes in real-time is also a very tedious—and time consuming—process.
 
-Depending on how large—from a raw data standbpoint—the game was, dubbing tapes could take a lot of time to do. And borrowing a friend’s cassette recorder was often a small political battle in and of itself since they would often want a copy of the game as well, thus doubling the amount of time I would have to spend making a copy of a game.
+Depending on how large—from a raw data standbpoint—the game was, dubbing cassette tapes could take a lot of time to do. And borrowing a friend’s cassette recorder was often a small political battle in and of itself since they would often want a copy of the game as well, thus doubling the amount of time I would have to spend making a copy of a game.
 
 At the end of the day, dubbing cassette tapes to get a copy of a game sucked and my dream as a kid was getting a real disk drive. They were faster, could store more data than a cassette tape and copying them was relatively easier than copying cassettes since disk drives didn’t require that data be copied in real time.
 
-But they were expensive and my family was poor.
+But disk drives were expensive peripherals and my family was poor.
 
-The base model Atari 810 disk drive retailed for around $299 back in the early 1980s and that was basically close to the cost of the Atari 400 I had.
+The base model Atari 810 disk drive retailed for around $299 back in the early 1980s and that was basically close to the $499 cost of the Atari 400 I had.
 
-My $2 a week allowance was good for small kid things, but even if I didn’t spend it it would take me nearly 3 years to save that up on my own.
+My $2 a week allowance was good for saving up for small kid things, but even if I saved up my allowance it would take me nearly 3 years to save $299 on my own.
 
 So I was resigned to my life of being stuck with data cassettes for the glorified video game system my Atari 400 became.
 
