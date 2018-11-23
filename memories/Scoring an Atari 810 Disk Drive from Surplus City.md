@@ -98,9 +98,9 @@ When we got back home, I carefully conencted the Atari 810 disk drive to my Atar
 
 “This was cheap, right?” she asked to which I replied, “Yes, it was!” And I pulled out some catalog or newspaper ad to show her the retail price for it. “$299 and you pay $25? Very good!” she said kissing me on my head.
 
-Yeah, a Jewish mother was proud of her Jewish son getting something at a deep discount. But who cared? It was a bargain and it worked great!
+Yeah, a Jewish mother was proud of her Jewish son getting something at a deep discount. But who cared? It was indeed a bargain and it worked great! Why pay more for the same?
 
-Then the phone rang. It was my brother doing his weekly check in.
+Things were happy until the phone rang. It was my brother doing his weekly check in.
 
 My dad briefly mentioned that the Atari disk drive worked and then passed the phone onto me.
 
