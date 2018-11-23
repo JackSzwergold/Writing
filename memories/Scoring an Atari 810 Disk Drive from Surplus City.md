@@ -54,11 +54,11 @@ I headed back home and told my dad about the disk drive. His response was “Twe
 
 The sun was setting but the shop was only about 4 blocks away.
 
-I went into the store with my dad, the woman behind the counter recognized me and then pulled then Atari 810 disk drive out. “See!” I said as he looked it over. After a while he said, “Okay, good. We’ll take it.” And with that my dad handed over the $25, the woman placed the bare disk drive into a used, nondescript shopping bag and we headed back home.
+I went into the store with my dad, the woman behind the counter recognized me and pulled then Atari 810 disk drive out. “See!” I said as he looked it over. After a while he said, “Okay, good. We’ll take it.” And with that my dad handed over the $25, the woman placed the bare disk drive into a used, nondescript shopping bag and we headed back home.
 
 When we got home, my dad handed me the bag and I took the disk drive out. Yup! It was an Atari 810 disk drive. And it looked clean and good. But without a power supply or data cable, there was no way I could test it out.
 
-“Maybe you should talk to Ben about this?” my dad asked. And with that I went over to the phone and dialed up my brother.
+“Maybe you should talk to Ben about this?” my dad asked. And with that I went over to the phone and dialed up my brother in his place in Washington Heights.
 
 ***
 
