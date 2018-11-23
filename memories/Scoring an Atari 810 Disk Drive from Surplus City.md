@@ -116,7 +116,7 @@ As he shouted at me over the phone I was at a loss. He’s 20 years older than m
 
 While my dad talked to my brother on the phone, I went back to my room and played around with Atari DOS. Sure it was a boring system utility and not much else, but I needed to learn how to use it if I was going to use that disk drive to load and copy games.
 
-My family might have been poor, but at least we were resourceful and knew how to best use what little we had and whatever we scavenged from whatever junk store or pile of garbage we gleaned stuff from.
+My family might have been poor, but at least we were resourceful and knew how to best use what little we had—and whatever we scavenged from whatever junk store or pile of garbage we gleaned stuff from—to make our life a bit better.
 
 ***
 
