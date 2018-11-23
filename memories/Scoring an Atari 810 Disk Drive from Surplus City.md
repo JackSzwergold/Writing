@@ -1,4 +1,5 @@
 ## Scoring an Atari 810 Disk Drive from Surplus City
+### About the Time I Scored a Pretty Expensive Piece of Computer Equipment from a Neighborhood Junk Store
 
 By Jack Szwergold
 
