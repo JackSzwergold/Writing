@@ -12,7 +12,7 @@ I might have only had a measely Atari 410 cassette tape drive at the time, but p
 
 While from a quality standpoint the cable was crap—and literally held together with cheap Scotch tape and not much else—it did the job. If someone I knew had a cool game on a cassette tape, all I needed to do to get a copy of that that game was to get a blank cassette tape, borrow a friend’s cassette deck to hook up to mine with that cable, hit play on one deck, record on the other and some time later I would have my own copy of that game.
 
-That made the process sound simple. And to be honest dubbing tapes of any kind is a simple process. But it was also a very tedious—and time consuming—process.
+And that description makes the process sound simple. And to be honest dubbing tapes of any kind—audio or data—is, indeed, a simple process. But dubbing tapes in real-time is also a very tedious—and time consuming—process.
 
 
 Depending on how big the game was, dubbing tapes could take a lot of time. Also, unless your home had two cassette recorders, you had to borrow a cassette recorder from someone and that became a whole production.
