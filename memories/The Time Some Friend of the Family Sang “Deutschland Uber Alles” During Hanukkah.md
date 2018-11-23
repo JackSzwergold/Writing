@@ -1,4 +1,4 @@
-## The Time Some Friend of the Family “Deutschland Über Alles” During Hanukkah
+## The Time Some Friend of the Family Sang “Deutschland Über Alles” During Hanukkah
 ### About the Time I Got to Watch a Family Friend Sing a German Anthem During a Holiday Gathering
 
 By Jack Szwergold
