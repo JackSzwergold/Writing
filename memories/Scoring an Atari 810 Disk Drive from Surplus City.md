@@ -88,7 +88,7 @@ So we headed out there, got of the train and headed to some tree-lined block fil
 
 I went downstairs with my dad and headed to the counter. Seemed like the place was a purely service and repair shop so it made sense they were in this basement space. The guy behind the counter was a bit stunned when he realized I was the kid that called up a week earlier, but was happy to oblige.
 
-He pulled out what looked to be a clean and solid homemade Atari disk drive cable—official cables were all black while this one was bluish grey—and an official Atari disk drive AC adapter, wrote out a receipt, my dad paid for it and we headed outside and back home.
+The guy pulled out what looked to be a clean and solid homemade Atari disk drive cable—official cables were all black while this one was bluish grey—and an official Atari disk drive AC adapter, wrote out a receipt, my dad paid for it and we headed outside and back to the subway to head back home.
 
 ***
 
