@@ -106,15 +106,15 @@ My dad briefly mentioned that the Atari 810 disk drive worked and then passed th
 
 “So it works?” my brother asked and I replied, “Yes! It works!” 
 
-He then grilled me on how I got a cable and power supply and I explained how I found a store. There was no joy in his voice.
+He then grilled me on how I got a cable and power supply and I explained how I found a store. There was no joy in his voice; just seething anger at the mere idea his younger brother was able to solve a problem independently without him.
 
-His voice was noticeably angry when I mentioned the power supply and he said, “You don’t need an Atari power supply! You can use any kind of power supply!”
+His voice became noticeably angrier when I mentioned the power supply and he said, “You don’t need an Atari power supply! You can use any kind of power supply!”
 
-As he shouted at me over the phone I was at a loss. He’s 20 years older than me and this was the same person who refused to help me when I initially asked him to help me and now he’s yelling at me because I bought an official Atari part? If he believed a non-Atari power supply would have worked, then why didn’t he offer to help me find one to begin with?
+As he shouted at me over the phone I was at a loss. He’s 20 years older than me, a graduate of Columbia University and was the same person who refused to help me when I initially asked him to help me and now he’s yelling at me because I bought an official Atari part on my own? If he believed a non-Atari power supply would have worked, then why didn’t he offer to help me find one to begin with?
 
-“It works,” I replied. Then there was a pregnant pause, a bit of angry breathing and then—seemingly at a loss for words—he asked me to pass the phone back to my dad and I did.
+“It works,” is all I said as a reply. Then there was a pregnant pause, a bit of angry breathing and then—seemingly at a loss for words—he asked me to pass the phone back to my dad and I did.
 
-While my dad talked to my brother on the phone, I went back to my room and played around with Atari DOS. Sure it was a boring system utility, but I needed to learn how to use it if I was going to use that disk drive to load and copy games.
+While my dad talked to my brother on the phone, I went back to my room and played around with Atari DOS. Sure it was a boring system utility and not much else, but I needed to learn how to use it if I was going to use that disk drive to load and copy games.
 
 My family might have been poor, but at least we were resourceful and knew how to best use what little we had and whatever we scavenged from whatever junk store or pile of garbage we gleaned stuff from.
 
