@@ -10,7 +10,7 @@ That is until I learned how to pirate software.
 
 I might have only had a measely Atari 410 cassette tape drive at the time, but pirating was a fairly easy skill to pick up. All one had to do was figure out how to make an exact copy of a cassette tape and you were good to go! In my case I figured out how to connect two portable radios with cassette decks via an improvised dubbing cable made from the salvaged cables of two busted 3.5mm stereo headphones.
 
-While from a quality standpoint the cable was crap and literally held together with cheap Scotch tape and not much else, it did the job. If someone I knew had a cool game on a cassette tape, all I needed to do to get a copy of that that game was to get a blank cassette tape, borrow a friend’s cassette deck to hook up to mine with that cable,
+While from a quality standpoint the cable was crap—and literally held together with cheap Scotch tape and not much else—it did the job. If someone I knew had a cool game on a cassette tape, all I needed to do to get a copy of that that game was to get a blank cassette tape, borrow a friend’s cassette deck to hook up to mine with that cable, hit play on one deck, record on the other and some time later I would have my own copy of that game.
 
 
 
