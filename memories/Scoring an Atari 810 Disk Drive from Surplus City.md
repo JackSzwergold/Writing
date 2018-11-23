@@ -84,11 +84,11 @@ The next day I called them up. The guy on the phone seemed to think it was a jok
 
 By the time the next weekend rolled around, my dad had already figured out what train we needed to take. I am pretty sure we needed to get to 72nd Street on the Upper West Side and my dad had already mapped it out.
 
-So we headed out there, got of the train and headed to some tree-lined block filled with old buildings. When we got to the place, it wasn’t a regular storefront but rather one of those basement stores that just had some tin sign hanging out front near the garbage cans.
+So we headed out there, got of the train and headed to some tree-lined block filled with old buildings. When we got to the place, it wasn’t a regular storefront but rather one of those “basement of a brownstone” stores that just had some tin sign hanging out front near the garbage cans and staircase that lead to their store.
 
-I went downstairs with my dad and headed to the counter. Seemed like the place was a service and repair shop so it made sense they were in this basement space. The guy behind the counter was a bit stunned when he realized I was the kid that called up a week earlier, but was happy to oblige.
+I went downstairs with my dad and headed to the counter. Seemed like the place was a purely service and repair shop so it made sense they were in this basement space. The guy behind the counter was a bit stunned when he realized I was the kid that called up a week earlier, but was happy to oblige.
 
-He pulled out what looked to be a clean and solid homemade Atari disk drive cable and an official Atari disk drive AC adapter, wrote out a receipt, my dad paid for it and we headed outside and back home.
+He pulled out what looked to be a clean and solid homemade Atari disk drive cable—official cables were all black while this one was bluish grey—and an official Atari disk drive AC adapter, wrote out a receipt, my dad paid for it and we headed outside and back home.
 
 ***
 
