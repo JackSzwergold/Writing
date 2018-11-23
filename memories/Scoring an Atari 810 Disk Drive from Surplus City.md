@@ -16,8 +16,7 @@ And that description makes the dubbing process sound simple. And to be completel
 
 Depending on how large—from a raw data standbpoint—the game was, dubbing tapes could take a lot of time to do. And borrowing a friend’s cassette recorder was often a small political battle in and of itself since they would often want a copy of the game as well, thus doubling the amount of time I would have to spend making a copy of a game.
 
-At the end of the day, dubbing cassette tapes for data sucked and my dream as a kid was getting a disk drive.
-
+At the end of the day, dubbing cassette tapes to get a copy of a game sucked and my dream as a kid was getting a real disk drive. They were faster, could store more data than a cassette tape and copying them was relatively easier than copying cassettes since disk drives didn’t require that data be copied in real time.
 
 But they were expensive and my family was poor.
 
