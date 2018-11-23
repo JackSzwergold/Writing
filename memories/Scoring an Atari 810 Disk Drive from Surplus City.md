@@ -18,13 +18,13 @@ Depending on how large—from a raw data standbpoint—the game was, dubbing cas
 
 At the end of the day, dubbing cassette tapes to get a copy of a game sucked and my dream as a kid was getting a real disk drive. They were faster, could store more data than a cassette tape and copying them was relatively easier than copying cassettes since disk drives didn’t require that data be copied in real time.
 
-But disk drives were expensive peripherals and my family was poor.
+But disk drives were expensive peripherals in the early days of computing and my family was poor.
 
 The base model Atari 810 disk drive retailed for around $299 back in the early 1980s and that was basically close to the $499 cost of the Atari 400 I had.
 
-My $2 a week allowance was good for saving up for small kid things, but even if I saved up my allowance it would take me nearly 3 years to save $299 on my own.
+My $2 a week allowance was good for saving up for small kid things like toys, comics and books. But even if I stopped buying stuff and dilligently saved up my weekly allowance it would take me nearly 3 years to save $299 on my own.
 
-So I was resigned to my life of being stuck with data cassettes for the glorified video game system my Atari 400 became.
+So I was resigned to my life of being stuck with dealing with data cassettes for the glorified video game system my Atari 400 became.
 
 ***
 
