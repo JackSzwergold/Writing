@@ -28,7 +28,7 @@ So I was resigned to my life of being stuck with dealing with data cassettes for
 
 ***
 
-One day I was playing around Brighton Beach Avenue with some friends and ran past the window of of a neighborhood shop called, “Surplus City.” As the name implied, the place was a classic, old school, NYC mom and pop junk shop located around tons of other mom and pop junk shops in the junky neighborhood I lived in. That said, I had nothing against junk shops: My mom liked the place and I genuinely enjoyed rummaging through the piles of junk in the place with my mom when she dragged me along on one of her bargain hunting trips.
+One day I was playing around Brighton Beach Avenue with some friends and ran past the window of of a neighborhood shop called, “Surplus City.” As the name implied, the place was a classic, old school, NYC mom and pop junk shop located around tons of other mom and pop junk shops in the junky neighborhood I lived in. That said, I had nothing against junk shops: My mom liked the place and I genuinely enjoyed rummaging through the piles of junk in that place with my mom when she dragged me along on one of her neighborhood bargain hunting trips.
 
 On this day it was just me and a bunch of kids horsing around when I noticed something in the front window of Surplus City. There mixed in with the literal tons of smashed, stacked and shoved schmatas on a shelf on a window was the unmistakable brownish beige color of an Atari peripheral.
 
