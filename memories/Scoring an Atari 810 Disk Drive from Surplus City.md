@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-I was 13 or 14 and had an Atari 400 home computer I got for my Bar Mitzvah. That computer was a mixed bag of a gift if I there ever was one. While I liked the fact that I could play video games on it, the gift—which was ostensibly from the “whole family” but in reality from my brother and his overbearing wife at time—was loaded with expectations of use. Instead of playing games all day, my brother and his wife expected me to be an instantaneous programming genius who wrote video games instead of mindlessly playing them.
+I was 13 or 14 and had an Atari 400 home computer I got for my Bar Mitzvah. That computer was a mixed bag of a gift if I there ever was one. While I liked the fact that I could play video games on it, the gift—which was ostensibly from the “whole family” but in reality from my brother and his overbearing wife at time—was loaded with expectations of use that I could not fufill. Instead of playing games all day, my brother and his wife expected me to be an instantaneous programming genius who wrote video games instead of mindlessly playing them.
 
 I was 13 or 14 and all I wanted to do was play video games. But they cost too much and—besides—owning a computer like this in the early 1980s was a “rich kid” thing. And my family was far from rich.
 
