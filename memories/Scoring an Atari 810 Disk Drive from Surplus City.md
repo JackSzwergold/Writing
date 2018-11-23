@@ -64,15 +64,15 @@ When we got home, my dad handed me the bag and I took the disk drive out. Yup! I
 
 I generally never called my brother directly and only really talked to him on the phone if he called up and asked for me or my dad called him up and he asked for me. So this was technically the first time I called him as an independent person asking him for help.
 
-“Why did you buy this?” he immediately said when I told him about the disk drive. “It was cheap and I am sure it works!” I said, to which he responded “I don’t know. I don’t have time for this.” There was a pregnant pause and I simply said, “I’ll let you talk to dad.” And with that I passed the phone over to my father.
+“Why did you buy this?!?” he immediately shouted over the phone when I told him about the disk drive. “It was cheap and I am sure it works!” I said, to which he responded “I don’t know. I don’t have time for this.” There was a pregnant pause and I simply said, “I’ll let you talk to dad.” And with that I passed the phone over to my father.
 
 When my dad grabbed the handset I looked for a copy of the yellow pages and brought it to my room.
 
-I flipped through top the electronics section, then the computer section and started to look through the listings. I was looking for some kind of official Atari repair place and soon I found one: They were located on the Upper West Side—which was another planet compared to the ass end of Brooklyn I lived in—but they seemed legit.
+I flipped through to the electronics section, then the computer section and started to look through the listings. I was looking for some kind of official Atari repair place and soon I found one: They were located on the Upper West Side—which was another planet compared to the ass end of Brooklyn I lived in—but they seemed legit; their ad had lots of logos and they were proud to be in business for a seemingly decent amount of time.
 
-I wrote down their phone number and address and showed it to my dad after he got off the phone with my brother.
+I wrote down the phone number and address of the place and showed it to my dad after he got off the phone with my brother.
 
-“I think they have the parts we need,” I explained. And my dad nodded and said it was too late to call them up. So I would call them the next day.
+“I think they have the parts we need,” I explained. And my dad nodded and said it was too late to call them up so I should call them the next day.
 
 ***
 
