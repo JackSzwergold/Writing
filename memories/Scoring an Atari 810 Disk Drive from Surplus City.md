@@ -4,11 +4,11 @@ By Jack Szwergold
 
 I was 13 or 14 and had an Atari 400 home computer I got for my Bar Mitzvah. That computer was a mixed bag of a gift if I there ever was one. While I liked the fact that I could play video games on it, the gift—which was ostensibly from the “whole family” but in reality from my brother and his overbearing wife at time—was loaded with expectations of use that I could not fufill. Instead of playing games all day, my brother and his wife expected me to be an instantaneous programming genius who wrote video games instead of mindlessly playing them.
 
-While I am a programer nowadays, at the time I was just 13 or 14 years old and all I wanted to do was play video games not make them. But software cost too much back then and—besides—owning a computer like this in the early 1980s was a “rich kid” thing. And my family was far from rich. So I made due with the small handful of games I got as part of the Bar Mitzvah gift package.
+While I became a programmer as an adult, at the time I was just 13 or 14 years old and all I wanted to do was play video games, not make them. But software—especially video games—cost too much back then. And besides that, owning a computer like an Atari 400 in the early 1980s was a “rich kid” thing; and my family was far from rich. So I made due with the small handful of games I got as part of the Bar Mitzvah gift package to entertain myself.
 
-So I learned how to pirate games instead.
+That is until I learned how to pirate software.
 
-Since I only had a Atari 410 cassette tape drive at the time, pirating was easy-ish. I figured out how to connect two portable radios with cassette decks with an improvised 3.5mm headphone jack dubbing cable made from the leftover cables of two busted 3.5mm stereo headphones.
+While I only had a Atari 410 cassette tape drive at the time, pirating was a fairly easy skill to pick up. I figured out how to connect two portable radios with cassette decks with an improvised 3.5mm headphone jack dubbing cable made from the leftover cables of two busted 3.5mm stereo headphones.
 
 While the cable was electrically crap and literally held together with cheap scotch tape and not much else. But if someone I knew had a cool Atari game on a cassette tape, all I needed was a blank tape, that cable and two cassette recorders and some time to dub myself a copy.
 
