@@ -42,7 +42,7 @@ And when she pulled it out, I was stunned: It was an Atari 810 disk drive!
 
 “Okay! $25. You want it?” she asked. And I basically said, “Yeah, but I need to get the money.” And with that she put it behind the counter and said, “I’ll hold it for you. When you get the money come back.”
 
-I walked out of the store and told my friends they wanted $25 for it. One responded, “That’s cheap! You should get it.” But someone else pointed out that it didn’t come with any cables and you can’t tell if it works. And they were right. But my thoughts were for $25 it was worth the gamble. And besides, my brother was an electrical engineer so he could help me fix it if need be.
+I walked out of the store and told my friends they wanted $25 for it. One responded, “That’s cheap! You should get it.” But someone else pointed out that it didn’t come with any cables and you can’t tell if it works. And they were right. But my thoughts were for $25 it was worth the gamble. And besides, my brother was an electrical engineer so he could help me fix it if need be, right?
 
 ***
 
