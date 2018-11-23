@@ -92,11 +92,7 @@ The guy pulled out what looked to be a clean and solid homemade Atari disk drive
 
 ***
 
-When we got back home, I carefully conencted the Atari 810 disk drive to my Atari 400 with that new data cable and inserted a bootable diskette into the drive that a friend let me borrow. The disk had
-
-
-
- And lo and behold, it booted! It worked! I was so excited and happy!
+When we got back home, I carefully conencted the Atari 810 disk drive to my Atari 400 with that new data cable and inserted a bootable diskette into the drive that a friend let me borrow. The disk had Atari DOS on it, so all I had to do was power up the Atari 400 and let it boot. And if it booted, it worked? And lo and behold within seconds of turning the machine on, it booted from the diskette! It worked! I was so excited and happy!
 
 “It works?” my dad said. “Yes!” I shouted; happy and excited. My mom waddled over to my room to see what was happening and my dad explained it to her.
 
