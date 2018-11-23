@@ -8,9 +8,9 @@ While I became a programmer as an adult, at the time I was just 13 or 14 years o
 
 That is until I learned how to pirate software.
 
-I might have only had a measely Atari 410 cassette tape drive at the time, pirating was a fairly easy skill to pick up. All one had to do was figure out how to make an exact copy of a cassette tape and you were good to go! In my case I figured out how to connect two portable radios with cassette decks via an improvised dubbing cable made from the salvaged cables of two busted 3.5mm stereo headphones.
+I might have only had a measely Atari 410 cassette tape drive at the time, but pirating was a fairly easy skill to pick up. All one had to do was figure out how to make an exact copy of a cassette tape and you were good to go! In my case I figured out how to connect two portable radios with cassette decks via an improvised dubbing cable made from the salvaged cables of two busted 3.5mm stereo headphones.
 
-While from a quality standpoint, the cable was crap and literally held together with cheap scotch tape and not much else. But if someone I knew had a cool Atari game on a cassette tape, all I needed was a blank tape, that cable and two cassette recorders and some time to dub myself a copy.
+While from a quality standpoint the cable was crap and literally held together with cheap scotch tape and not much else. But if someone I knew had a cool Atari game on a cassette tape, all I needed was a blank tape, that cable and two cassette recorders and some time to dub myself a copy.
 
 But that is also a long way of saying that dubbing cassette tapes in realtime was/is a very tedious and time consuming process.
 
