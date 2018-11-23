@@ -30,7 +30,7 @@ So I was resigned to my life of being stuck with dealing with data cassettes for
 
 One day I was playing around Brighton Beach Avenue with some friends and ran past the window of of a neighborhood shop called, “Surplus City.” As the name implied, the place was a classic, old school, NYC mom and pop junk shop located around tons of other mom and pop junk shops in the junky neighborhood I lived in. That said, I had nothing against junk shops: My mom liked the place and I genuinely enjoyed rummaging through the piles of junk in that place with my mom when she dragged me along on one of her neighborhood bargain hunting trips.
 
-On this day it was just me and a bunch of kids horsing around when I noticed something in the front window of Surplus City. There mixed in with the literal tons of smashed, stacked and shoved schmatas on a shelf on a window was the unmistakable brownish beige color of an Atari peripheral.
+But on this day it was just me and a bunch of kids horsing around when I noticed something in the front window of “Surplus City.” There mixed in with the literal tons of smashed, stacked and shoved clothes, schmatas and accesories on a shelf in the window was the unmistakable light brownish beige color of an Atari peripheral.
 
 I walked closer to the window and checked it out and based on what I could see, it looked like it was either an Atari 810 disk drive or an Atari 820 receipt printer.
 
@@ -40,7 +40,7 @@ And when she pulled it out, I was stunned: It was an Atari 810 disk drive!
 
 “What is this? You want it?” she asked and I said yes. She shouted out to someone in the backroom asking for a price and they shouted back “Twenty five dollars! As is!”
 
-“Okay! $25. You want it?” she asked. And I basically said, “Yeah, but I need to get the money.” And with that she put it behind the counter and said, “When you get the money come back.”
+“Okay! $25. You want it?” she asked. And I basically said, “Yeah, but I need to get the money.” And with that she put it behind the counter and said, “I’ll hold it for you. When you get the money come back.”
 
 I walked out of the store and told my friends they wanted $25 for it. One responded, “That’s cheap! You should get it.” But someone else pointed out that it didn’t come with any cables and you can’t tell if it works. And they were right. But my thoughts were for $25 it was worth the gamble. And besides, my brother was an electrical engineer so he could help me fix it if need be.
 
