@@ -14,14 +14,12 @@ While from a quality standpoint the cable was crap—and literally held together
 
 And that description makes the dubbing process sound simple. And to be completely honest dubbing tapes of any kind—audio or data—is, indeed, a simple process. But dubbing tapes in real-time is also a very tedious—and time consuming—process.
 
-Depending on how large—from a raw data standbpoint—the game was, dubbing tapes could take a lot of time.
+Depending on how large—from a raw data standbpoint—the game was, dubbing tapes could take a lot of time to do. And borrowing a friend’s cassette recorder was often a small political battle in and of itself since they would often want a copy of the game as well, thus doubling the amount of time I would have to spend making a copy of a game.
+
+At the end of the day, dubbing cassette tapes for data sucked and my dream as a kid was getting a disk drive.
 
 
-
-
- Also, unless your home had two cassette recorders, you had to borrow a cassette recorder from someone and that became a whole production.
-
-At the end of the day, cassette tapes for data sucked and my dream as a kid was getting a disk drive. But they were expensive and my family was poor.
+But they were expensive and my family was poor.
 
 The base model Atari 810 disk drive retailed for around $299 back in the early 1980s and that was basically close to the cost of the Atari 400 I had.
 
