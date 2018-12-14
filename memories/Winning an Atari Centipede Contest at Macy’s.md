@@ -154,17 +154,15 @@ I walked over and said, “I can help!” And with that switched off the compute
 
 After a while *Centipede* loaded and the guy running the competition asked us all to come up front and said the competition would be starting. And we would each take turns playing one game of *Centipede* based on the order we signed in.
 
-I knew I wasn’t at the top of the list, so I knew I wasn’t first. But I checked the list and there wasn’t more than one or two other people signed up after me.
+I knew I wasn’t at the top of the list, so I wasn’t going to be the first to play. But I checked the list and there wasn’t more than one or two other people signed up after me so it was a small group of competitors at best.
 
-I watched as other kids played. They did well, but nowhere near my score. Then one kid started playing and blew my score away. I was worried, but tried to be cool.
+I watched as the other kids played. They did well, but nowhere near my score. Then one kid started playing and easilly blew my score away. I was worried, but tried to be calm about this.
 
-Soon it was my turn. I did pretty well despite my palms being incredibly sweaty and my hands shaking a bit.
+Soon it was my turn. I did pretty well despite my palms being incredibly sweaty from being nervouse and my hands shaking a bit from the stress of being the center of attention.
 
-When the digital dust settled my score was high, but not high enough. It was lower than my practice score and lower than that other kids, but it was still high.
+But the digital dust settled my score was high, but not high enough. It was lower than my practice score and lower than that of the other kids, but it was still a pretty high score.
 
-The next kid bombed hard. I barely think he shot anything at all when I think of it.
-
-The last kid was nowhere to be found. So when the dust settled, the contest was over and I was in second place! No first place, but hey… I won something!
+The next kid came up to play and truly bombed hard. I barely think he successfully shot anything at all when I think of it. And the last kid on the list was nowhere to be found. So when all was said and done, the contest was over and I was in second place! It wasn’t first place, but hey… I won something by doing something!
 
 They had me pose with the winner. It was an awkward photo at best since I was the only kid there that looked like a scrappy street kid even when I was cleaned up. The other kids were basically WASPy kids from either the Upper East Side or Upper West Side and seemed to have matching Izod Lacoste polo shirts on.
 
