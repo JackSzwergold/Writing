@@ -140,13 +140,11 @@ The kid gasped and said, “You cheated!” since we all knew the game was not a
 
 “No I didn’t,” I explained. “There is this other game called *Megalegs* that’s like *Centipede* I practiced with.” And with that he nodded and walked over to talk to some of his friends about what I just said.
 
-I finished playing my practice game and—to my own suprised—scored a pretty solid high score. The guy from Atari who was running the contest came over and said, “Wow! You’re sure to win now!” just as my dad came by and asked, “You did good?”
+I finished playing my practice game and—to my own suprised—scored a pretty solid high score. The guy from Atari who was running the contest came over and said, “Wow! You’re sure to win now!” just as my dad came by and asked, “You did good?” I pointed to the screen and showed him my score. “Wow! That’s pretty good,” he said as if he actually knew what a high score in *Centipede* might be. But no matter… He was being positive and supportive and that’s all I really needed.
 
- my dad asked and I pointed to the screen and showed him. “Wow! That’s pretty good,” he said as if he actually knew what a high score in *Centipede* might be but still being supportive.
+Those kids who I was up against came up to the Atari computer that was demoing the gamand started to fiddle around with it.
 
-Those kids who I was up against came up to the computer and started to fiddle around with it.
-
-One of them opened up the Atari’s cartridge port to see if they could see the actual *Centipede* cartridge in it… But there was none there! I walked over as the kids quickly closed the lid and the computer booted up to the default “Atari Computer Memo Pad” application.
+One of them opened up the Atari’s cartridge slot cover to see if they could see the actual *Centipede* cartridge in it… But there was no cartridge there! I walked over as the kids quickly closed the lid and the computer booted up to the default “Atari Computer Memo Pad” application.
 
 A woman from the Atari team came by to fix the situation. She looked around the computer and asked someone else for help. She was a bit panicked, but I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari cassette drive. I guess the cartridges weren’t manufactured yet, so this contest would be running the game from the cassette drive.
 
