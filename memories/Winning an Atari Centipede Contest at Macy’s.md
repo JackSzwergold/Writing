@@ -168,9 +168,9 @@ After the results were announced, the Atari folks had me pose with the winner. I
 
 As the Atari guy got ready to take our picture, I held up two fingers on my right hand in a “V for Victory” salute and the guy—who was taking pictures with a Polaroid—said something like “Cool! Two fingers! For second place? Nice!”
 
-Was a bit pissed about that but who cared.
+Was a bit pissed about him interpretting my “V for Victory” salute as meaning “Two for Second Place” but who cared. The contest was over and I was notable for my acheivement.
 
-The guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well.
+The Atari guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well; tehchically this was the first time anyone gave me their business card so I was proud in my own way about this.
 
 ***
 
