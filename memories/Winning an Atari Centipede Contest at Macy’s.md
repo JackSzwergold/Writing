@@ -190,11 +190,13 @@ About 6-ish weeks later I asked my dad if anything came in the mail for me from 
 
 Since 6-ish weeks had clearly passed and I still didn’t get that *Centipede* cartridge in the mail I pulled out the business card the Atari guy gave me at the competition and called him up. It was about 4:00pm and he was a bit tired sounding on his side of the phone.
 
-“What?” the guy asked. “I won the *Centipede* contest a few weeks ago and I still haven’t got the cartridge in the mail.” “What’s your name?” he asked as he shuffled through some papers. I told him my name, he read off my address, I confirmed it was correct and he said he would send it off today.
+“What?” the guy asked. “I won the *Centipede* contest at Macy’s and I still haven’t got the cartridge in the mail.” “What’s your name?” he asked as he shuffled through some papers. I told him my name, he read off my address, I confirmed the address was correct and he said he would send it off today.
 
-A few days later the cartridge showed up in the mail. The packaging was crushed since it just shoved it in a plan manilla envelope, but the game was still good despite the manual being creased.
+A few days later the cartridge showed up in the mail. The packaging was crushed since it just shoved it in a plan manilla envelope instead of a box, but the game cartridge was still good despite the package being smashed.
 
 I popped it in my Atari 400 and started to play it. I was definitely fun, but nowhere near as fun as *Megalegs* was. The truth was I had played *Megalegs* so much since getting it *Centipede* seemed sluggish by comparison.
+
+So after a while, the cartridge and smashed box just ended up in my closet.
 
 ***
 
