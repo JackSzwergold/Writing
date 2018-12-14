@@ -30,7 +30,7 @@ When I stepped inside of the place, I walked over to the change machine, stuck m
 
 And within less than a minute the truth was clear as day: I kinda sucked at it. The second game was slightly better, but felt like a chore more than a fun thing to do. And by the time I was on my third game, the game wasn’t fun to play.
 
-The graphics were cool and the game seemd like it would be fun, but the track ball that the game used was awkward to used and I also started to realize something: A video game for a home computer system wouldn’t use a track ball anyway. It would use that standard black Atari joystick. So practicing on the arcade version of the game wouldn’t help me.
+The graphics were cool and the game seemd like it would be fun, but the track ball that the game used was awkward to used and I also started to realize something: A video game for a home computer system wouldn’t use a trackball anyway. It would use that standard black Atari joystick. So practicing on the arcade version of the game wouldn’t help me.
 
 Which is all to say that by the time I lost my last player on that third game of *Centipede*, I just joylessly stared at the screen for a second or two, picked up my schoolbag and headed back home.
 
@@ -44,11 +44,11 @@ I walked over to the well organized—but ultimately simple display—and watche
 
 The graphics were not as good as the arcade version of *Centipede* but the gameplay seemed 100% the same.
 
-After the guy from the store finished playing the game I asked if I could play. “Sure,” he said as he stepped aside and passed the joystick over to me.
+After the guy from the store finished playing the game I asked if I could try it out. “Sure,” he said as he stepped aside and passed the joystick over to me.
 
-He hit start and I played.
+He hit the “Start” button on the Atari 800 and the game began..
 
-I was just as bad as I was in the arcade, but I still felt like I could learn how to beat the game with the joystick.
+Although I was just as bad at *Megalegs* as I was in the arcade when I played *Centipede*, I still felt like I could learn how to get better at playing the game when I used a joystick instead of a trackball.
 
 After my round was over I picked up the zip locked bag that had the game in it and looked it over. The cover art was goofy and cool. And it was available on cassette which is what I needed since I didn’t have a disk drive at that point anyway. But what I noticed right away was the price: $29.99 or something like that.
 
