@@ -100,7 +100,7 @@ I ran in the door, ripped off my jacket, pulled the game out of the brown paper 
 
 After a minute or so the game was loaded and I started to play it.
 
-My dad came into my room to watch me play the game. “Oh, it looks good!” he said in that way parents who care—but don’t care—do.
+My dad came into my room to watch me play the game. “Oh, it looks good!” he said in that way parents who care—but don’t care—do. But I appreciated the feigned enthusiasm none-the-less.
 
 “Yeah,” I said as I stared at the screen and played the game.
 
