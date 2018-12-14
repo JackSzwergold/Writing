@@ -150,9 +150,9 @@ A woman from the Atari team came by to see if she could fix things. She looked a
 
 I walked over and said, “I can help!” And with that switched off the computer, held down the “Start” key, waited for a beep and then hit the “Return” key and the program started loading again. The benefit of having a crappy Atari 410 cassette drive at home was that I at least knew how to use it.
 
-“I have one at home,” I told the woman from Atari. She smiled as the other guy running the thing came over, saw what was happening and said, “Yeah, the kid fixed it. We just have to wait now.”
+“I have one at home,” I told the woman from Atari. She smiled as the other guy running the thing came over, saw what was happening and said, “Yeah, the kid fixed it. We just have to wait now.” He looked at me, looked at her, the both shrugged and then walked away.
 
-After a while *Centipede* loaded and the guy running the competition all asked us to come up front. He basically said he would be starting the competition and it would go by the order of people on the sign-up list.
+After a while *Centipede* loaded and the guy running the competition asked us all to come up front. He basically said he would be starting the competition and it would go by the order of people on the sign-up list.
 
 I knew I wasn’t at the top of the list, so I knew I wasn’t first. But I checked the list and there wasn’t more than one or two other people signed up after me.
 
