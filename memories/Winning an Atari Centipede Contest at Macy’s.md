@@ -90,13 +90,11 @@ And with that, my dad gave me the $7 and I headed over to my friends house to ge
 
 ***
 
-I went to the Computer Center, bought the cassette version of *Megalegs* and they put it in a plain brown paper bag for me.
+With proper funding in place, I went to the Computer Center, bought the cassette version of *Megalegs* and they put it in a plain brown paper bag for me.
 
-I was excited all the way home on the subway and would peek inside the brown paper bag every now and then to just look at the game.
+I was excited all the way home on the subway and would peek inside the brown paper bag every now and then to just look at the game packaging.
 
 When I got home to Ocean Parkway, I ran down the stairs, jumped the small fence near my building and headed upstairs to the family apartment.
-
-***
 
 I ran in the door, took off my jacket, pulled the game out of the brown paper bag, shoved it into the Atari 410 cassette drive and let it load up.
 
