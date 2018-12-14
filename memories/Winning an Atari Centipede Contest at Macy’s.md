@@ -38,9 +38,9 @@ When I got home I started to think about how I could practice for the *Centipede
 
 ***
 
-When the weekend hit, I was made a trip over to the Computer Center on 32nd Street in Manhattan to browse around their racks of software when I noticed something right when I stepped in the front door of the place: They had an Atari 800 setup to demo a hot new game they had: *Megalegs*.
+When the weekend hit, I was made a trip over to the Computer Center on 32nd Street in Manhattan to browse their wares when I noticed something right when I stepped in the front door: They had an Atari 800 setup to demo a hot new game they had: *Megalegs*.
 
-I walked over to the modest display and watched as one of the guys from the store played the game. Holy shit, it was a *Centipede* clone.
+I walked over to the well organized—but ultimately modest display—and watched as one of the guys from the store played the game. Holy shit, it was a *Centipede* clone.
 
 The graphics were not as good as the arcade version of *Centipede* but the gameplay seemed 100% the same.
 
