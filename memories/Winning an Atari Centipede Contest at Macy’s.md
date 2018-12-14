@@ -186,9 +186,9 @@ He answered the phone, said “Hello…” and then I told him the good news: �
 
 ***
 
-About 6 weeks later I asked my dad if anything came in the mail for me from Atari. “No,” he said as I went back into my room.
+About 6-ish weeks later I asked my dad if anything came in the mail for me from Atari. “No,” he said as I went back into my room.
 
-I looked at my calendar and 6 weeks had passed and I still didn’t get that *Centipede* cartridge in the mail. So I pulled out the business card the guy gave me at the competition and called him up. It was about 4:00pm and he was a bit tired sounding on his side of the phone.
+Since 6-ish weeks had clearly passed and I still didn’t get that *Centipede* cartridge in the mail I pulled out the business card the Atari guy gave me at the competition and called him up. It was about 4:00pm and he was a bit tired sounding on his side of the phone.
 
 “What?” the guy asked. “I won the *Centipede* contest a few weeks ago and I still haven’t got the cartridge in the mail.” “What’s your name?” he asked as he shuffled through some papers. I told him my name, he read off my address, I confirmed it was correct and he said he would send it off today.
 
