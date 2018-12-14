@@ -66,7 +66,7 @@ I took out the *Megalegs* flyer and looked it over again. Since I was just a kid
 
 “What’s that?” my dad said as he brought a plate of food to my room. “It’s a new game,” I said as I passed the flyer over to him to check out. He looked it over and said, “$29? That’s expensive!” I simply shrugged in response and left it at that.
 
-Pretty sure my dad expected me to ask him for money to buy the game, but I didn’t ask him. Saving up money was not a strong point for me at that time and I already hit him up for advances on my allowance a lot already during the summer.
+I’m pretty sure my dad expected me to ask him for money to buy the game, but I didn’t ask him. Saving up money was not a strong point for me at that time and I already hit him up for advances on my allowance a lot already during the summer. So I knew that was a losing proposition at best.
 
 ***
 
