@@ -10,7 +10,7 @@ It was the fall of 1981 and I was flipping through the *Daily News* one  Sunday 
 
 My jaw dropped: *Centipede* was a really popular arcade game, and the release of a home computer version was pretty exciting. Besides, I barely had my Atari 400 for a year and was already bored with the few legal—and pirated—games I had.
 
-I showed the ad to my dad who smiled and basically said, “That’s nice!” and agreed to take me to the contest when it happened.
+I showed the ad to my dad who smiled and basically said—as enthusiastically as he could about a video game—“That’s nice!” and he agreed to take me to the contest when it happened.
 
 I was excited and ready to share the news of this contest with friends of mine in school
 
