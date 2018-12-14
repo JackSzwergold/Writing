@@ -30,7 +30,7 @@ When I stepped inside of the place, I walked over to the change machine, stuck m
 
 And within less than a minute the truth was clear as day: I kinda sucked at it. The second game was slightly better, but felt like a chore more than a fun thing to do. And by the time I was on my third game, the game wasn’t fun to play.
 
-The graphics were cool and the game seemd like it would be fun, but the track ball that the game used was awkward to used and I also started to realize something: A video game for a home computer system wouldn’t use a trackball anyway. It would use that standard black Atari joystick. So practicing on the arcade version of the game wouldn’t help me.
+The graphics were cool and the game seemed like it would be fun, but the track ball that the game used was awkward to used and I also started to realize something: A video game for a home computer system wouldn’t use a trackball anyway. It would use that standard black Atari joystick. So practicing on the arcade version of the game wouldn’t help me.
 
 Which is all to say that by the time I lost my last player on that third game of *Centipede*, I just joylessly stared at the screen for a second or two, picked up my schoolbag and headed back home.
 
@@ -58,7 +58,7 @@ With that he smiled, nodded and handed me a promotional flyer for the game. I th
 
 ***
 
-I took the D train back home and got back just as the sun was setting. It was fall so the beach was empty and the breeze was calm and cool. The dusky sunlight was warm and welcoming as I walked along the elevated platform of the Ocean Parkway station to the staircase and headed downstaris to the street below.
+I took the D train back home and got back just as the sun was setting. It was fall so the beach was empty and the breeze was calm and cool. The dusky sunlight was warm and welcoming as I walked along the elevated platform of the Ocean Parkway station to the staircase and headed downstairs to the street below.
 
 When I got to my building, I headed upstairs and my dad immediately asked me if I wanted to eat anything, “Sure.” I said as I headed back into my room.
 
@@ -130,7 +130,7 @@ We puttered around the conference room for a bit and—after a while—I asked i
 
 This was the first time I was playing the actual home computer version of *Centipede* and not that *Megalegs* knock-off I had at home so I was a bit nervous.
 
-I was doing well at first, but not great. My idea that I could somehow practice by playing *Megalegs* was clearly not a great plan. The gameplay and patterns were clearly different despite the games visually looking similar. It never occured to me as a kid that different programmers would use different patterns and algorithms; but it didn’t matter. I was doing pretty well at the time.
+I was doing well at first, but not great. My idea that I could somehow practice by playing *Megalegs* was clearly not a great plan. The gameplay and patterns were clearly different despite the games visually looking similar. It never occurred to me as a kid that different programmers would use different patterns and algorithms; but it didn’t matter. I was doing pretty well at the time.
 
 At some point while I was playing some kid came in—presumably one of the kids I would be up against—and watched me play. “Wow!” he said. “You’re pretty good,” he added.
 
@@ -140,13 +140,13 @@ The kid gasped and said, “You cheated!” since we all knew the game was not a
 
 “No I didn’t,” I explained. “There is this other game called *Megalegs* that’s like *Centipede* I practiced with.” And with that he nodded and walked over to talk to some of his friends about what I just said.
 
-I finished playing my practice game and—to my own suprised—scored a pretty solid high score. The guy from Atari who was running the contest came over and said, “Wow! You’re sure to win now!” just as my dad came by and asked, “You did good?” I pointed to the screen and showed him my score. “Wow! That’s pretty good,” he said as if he actually knew what a high score in *Centipede* might be. But no matter… He was being positive and supportive and that’s all I really needed.
+I finished playing my practice game and—to my own surprised—scored a pretty solid high score. The guy from Atari who was running the contest came over and said, “Wow! You’re sure to win now!” just as my dad came by and asked, “You did good?” I pointed to the screen and showed him my score. “Wow! That’s pretty good,” he said as if he actually knew what a high score in *Centipede* might be. But no matter… He was being positive and supportive and that’s all I really needed.
 
-Those kids who I was up against came up to the Atari computer that was demoing the gamand started to fiddle around with it.
+Those kids who I was up against came up to the Atari computer that was demoing the game and started to fiddle around with it.
 
 One of them opened up the Atari’s cartridge slot cover to see if they could see the actual *Centipede* cartridge in it… But there was no cartridge there! I walked over as the kids quickly closed the slot cover and the computer booted up to the default “Atari Computer Memo Pad” application.
 
-A woman from the Atari team came by to see if she could fix things. She looked around the computer and asked someone else for help. and was clearly a bit panicked. But I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari cassette drive. I guess the official *Centipede* ganme cartridges weren’t manufactured yet, so this contest would be running the game from a cassette tape version instead.
+A woman from the Atari team came by to see if she could fix things. She looked around the computer and asked someone else for help. and was clearly a bit panicked. But I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari cassette drive. I guess the official *Centipede* game cartridges weren’t manufactured yet, so this contest would be running the game from a cassette tape version instead.
 
 I walked over and said, “I can help!” And with that switched off the computer, held down the “Start” key, waited for a beep and then hit the “Return” key and the program started loading again. The benefit of having a crappy Atari 410 cassette drive at home was that I at least knew how to use it.
 
@@ -156,9 +156,9 @@ After a while *Centipede* loaded and the guy running the competition asked us al
 
 I knew I wasn’t at the top of the list, so I wasn’t going to be the first to play. But I checked the list and there wasn’t more than one or two other people signed up after me so it was a small group of competitors at best.
 
-I watched as the other kids played. They did well, but nowhere near my score. Then one kid started playing and easilly blew my score away. I was worried, but tried to be calm about this.
+I watched as the other kids played. They did well, but nowhere near my score. Then one kid started playing and easily blew my score away. I was worried, but tried to be calm about this.
 
-Soon it was my turn. I did pretty well despite my palms being incredibly sweaty from being nervouse and my hands shaking a bit from the stress of being the center of attention.
+Soon it was my turn. I did pretty well despite my palms being incredibly sweaty from being nervous and my hands shaking a bit from the stress of being the center of attention.
 
 But the digital dust settled my score was high, but not high enough. It was lower than my practice score and lower than that of the other kids, but it was still a pretty high score.
 
@@ -168,13 +168,13 @@ After the results were announced, the Atari folks had me pose with the winner. I
 
 As the Atari guy got ready to take our picture, I held up two fingers on my right hand in a “V for Victory” salute and the guy—who was taking pictures with a Polaroid—said something like “Cool! Two fingers! For second place? Nice!”
 
-Was a bit pissed about him interpretting my “V for Victory” salute as meaning “Two for Second Place” but who cared. The contest was over and I was notable for my acheivement.
+Was a bit pissed about him interpreting my “V for Victory” salute as meaning “Two for Second Place” but who cared. The contest was over and I was notable for my achievement.
 
-The Atari guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well; tehchically this was the first time anyone gave me their business card so I was proud in my own way about this.
+The Atari guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well; technically this was the first time anyone gave me their business card so I was proud in my own way about this.
 
 Just as we finished up and planned to head home, some people dressed as Pac-Man and a red ghost showed up to be a part of a small promotional “parade” that was going to wind it’s way through the store. In my delusional enthusiasm at my winning second place at the competition I thought the parade was for us kids and we could march along with them.
 
-So me and my dad tagged along as Pac-Man and the red ghost meandered around Macy’s that afternoon. What a sight that must of been to shoppers shopping for dress shirts and kicthen gear!
+So me and my dad tagged along as Pac-Man and the red ghost meandered around Macy’s that afternoon. What a sight that must of been to shoppers shopping for dress shirts and kitchen gear!
 
 After a while—just when it started to feel genuinely awkward—me and my dad peeled ourselves away from the Pac-Man parade, headed down the escalators and headed back to the subway station to head home.
 
