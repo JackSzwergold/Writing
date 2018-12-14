@@ -108,7 +108,7 @@ My dad came into my room to watch me play the game. “Oh, it looks good!” he 
 
 With the game in hand, I played that game every day after school as if it was a homework assignment.
 
-This went on for weeks and weeks. And—in my mind—I was getting better at it with each new play.
+This went on for weeks and weeks. And—in my mind—I was getting better at it with each new game I played.
 
 Soon enough, the weekend of the Atari contest came around. I barely slept the night before, but still felt rested and excited.
 
