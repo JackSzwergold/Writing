@@ -70,11 +70,11 @@ I’m pretty sure my dad expected me to ask him for money to buy the game, but I
 
 ***
 
-The next Monday, when I headed into school I showed the flyer to some friends. “I need to practice if I want to win that contest,” I said. And they agreed as they looked over the flyer.
+When Monday came, I headed into school I showed the *Megalegs* flyer to some friends. “I need to practice if I want to win that contest,” I said. And they agreed as they looked over the flyer.
 
 “That game looks cool!” said one friend who had an Atari 800. “How about this: Let’s go 50/50 on the game,” he said. “What do you mean?” I asked. “Well, I pay $15 and you pay $15 and we can copy the game anyway so just let me have a copy.”
 
-What a great idea! We all just learned how to pirate Atari program cassettes. So if we went in 50/50 on a game like that, one of us could keep the original game and just make a copy to give to the other person.
+That was a pretty good idea! We all just learned how to pirate Atari program cassettes using an improvised audio dubbing cable. So if we went in 50/50 on a game like that, one of us could keep the original game and just make a copy to give to the other person.
 
 “Okay, but I get to keep the cassette and packaging,” I said. “Fine with me!” he said.
 
