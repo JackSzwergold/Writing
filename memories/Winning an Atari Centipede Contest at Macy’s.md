@@ -152,7 +152,7 @@ I walked over and said, “I can help!” And with that switched off the compute
 
 “I have one at home,” I told the woman from Atari. She smiled as the other guy running the thing came over, saw what was happening and said, “Yeah, the kid fixed it. We just have to wait now.” He looked at me, looked at her, the both shrugged and then walked away.
 
-After a while *Centipede* loaded and the guy running the competition asked us all to come up front. He basically said he would be starting the competition and it would go by the order of people on the sign-up list.
+After a while *Centipede* loaded and the guy running the competition asked us all to come up front. He basically said the competition would be starting and we would each take turns playing one game of *Centipede* based on the order we signed in.
 
 I knew I wasn’t at the top of the list, so I knew I wasn’t first. But I checked the list and there wasn’t more than one or two other people signed up after me.
 
