@@ -12,7 +12,7 @@ My jaw dropped: *Centipede* was a really popular arcade game, and the release of
 
 I showed the ad to my dad who smiled and basically said—as enthusiastically as he could about a video game—“That’s nice!” and he agreed to take me to the contest when it happened.
 
-I was excited and ready to share the news of this contest with friends of mine in school
+Damn was I psyched about *Centipede*! And I was really excited to share the news of this Atari-related contest with friends at school.
 
 ***
 
