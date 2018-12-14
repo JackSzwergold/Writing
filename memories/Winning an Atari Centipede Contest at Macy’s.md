@@ -54,7 +54,7 @@ After my game was over, I stepped aside and I picked up the zip locked bag that 
 
 “So you want to buy it?” the guy asked me to which I responded, “Yes. But I don’t have enough money on me.”
 
-With that he smiled, nodded and handed me a promotional flyer for the game. I looked it over, folded it up and shoved it in my jacket pocket and headed home.
+With that he smiled, nodded and handed me a promotional flyer for the game. I thanked him, looked it over, folded it up and shoved it in my jacket pocket and headed home.
 
 ***
 
