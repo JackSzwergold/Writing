@@ -138,7 +138,7 @@ At some point while I was playing some kid came in—presumably one of the kids 
 
 The kid gasped and said, “You cheated!” since we all knew the game was not available to the public yet.
 
-“No I didn’t,” I explained. “There is this other game called *Megalegs* that’s like *Centipede* I practiced with.” And with that he and some of his friends moved aside and started talking amongst themselves.
+“No I didn’t,” I explained. “There is this other game called *Megalegs* that’s like *Centipede* I practiced with.” And with that he nodded and walked over to talk to some of his friends about what I just said.
 
 I finished playing my practice game and scored a pretty solid score. The guy running the thing came over and said, “Wow! You’re sure to win now!” Just as my dad came by.
 
