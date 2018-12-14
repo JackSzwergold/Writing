@@ -22,7 +22,7 @@ Back in the classroom of whatever class I was in, I sat at my desk and stared at
 
 ***
 
-After school I went to Captain’s Quarters and decided to play some games of *Centipede*. Captain’s Quarters was a huge storefront arcade on Brighton Beach Avenue near Coney Island Avenue. As an adult it’s clear to me some shady shit happened there and it might have been a front for something. But I didn’t care. It was a well stocked and well maintained arcade in a neighborhood filled with junk stores and fruit stands.
+So after school I went to Captain’s Quarters—a local neighborhood cafe—and decided to play a few rounds of *Centipede* and see how good I was at the game. Captain’s Quarters was a huge storefront arcade on Brighton Beach Avenue near Coney Island Avenue. As an adult it’s clear to me some shady stuff happened there—and it might have been a front for something—but I didn’t care. It was an arcade that had tons of games, was well maintained and was located conveniently near me; smack dab in the middle of a neighborhood filled with junk stores and fruit stands.
 
 I stuck my dollar into the change machine, got me 4 quarters and started to play.
 
