@@ -164,7 +164,7 @@ But the digital dust settled my score was high, but not high enough. It was lowe
 
 The next kid came up to play and truly bombed hard. I barely think he successfully shot anything at all when I think of it. And the last kid on the list was nowhere to be found. So when all was said and done, the contest was over and I was in second place! It wasn’t first place, but hey… I won something by doing something!
 
-They had me pose with the winner. It was an awkward photo at best since I was the only kid there that looked like a scrappy street kid even when I was cleaned up. The other kids were basically WASPy kids from either the Upper East Side or Upper West Side and seemed to have matching Izod Lacoste polo shirts on.
+After the results were announced, the Atari folks had me pose with the winner. It was an awkward photo at best since I was the only kid there that looked like a scrappy street kid even when I was cleaned up. The other kids were basically WASPy kids from either the Upper East Side or Upper West Side and seemed to have matching Izod Lacoste polo shirts on while I was decked out in my best, non-branded second hand clothes.
 
 I held up my two fingers in a “V for Victory” formation and the Atari guy—who was taking pics with a Polaroid—said something like “Two fingers! For second place! Nice!”
 
