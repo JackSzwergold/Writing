@@ -84,9 +84,9 @@ And with that a deal was struck.
 
 After school I talked to my dad and explained the 50/50 deal. Since I already had $8, all I needed was $7 more to get the game with my friend paying the rest.
 
-“He will pay for the rest?” my dad asked. “Sure,” I said.
+“He will pay for the rest, right?” my dad asked. “Sure,” I said.
 
-And with that, my dad gave me the $7 and I headed over to my friends house to get the rest and then head into “The City” and get *Megalegs*.
+And with that, my dad gave me the $7 and I headed over to my friends house to get the rest and then I headed into “The City” and get a copy of *Megalegs*.
 
 ***
 
