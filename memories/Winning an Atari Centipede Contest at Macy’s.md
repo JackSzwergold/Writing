@@ -172,13 +172,11 @@ Was a bit pissed about him interpretting my “V for Victory” salute as meanin
 
 The Atari guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well; tehchically this was the first time anyone gave me their business card so I was proud in my own way about this.
 
-***
+Just as we finished up and planned to head home, some people dressed as Pac-Man and a red ghost showed up to be a part of a small promotional “parade” that was going to wind it’s way through the store. In my delusional enthusiasm at my winning second place at the competition I thought the parade was for us kids and we could march along with them.
 
-Just as we finished up, some people dressed as Pac-Man and a red ghost showed up and apparently there was a small promotional “parade” that was going to wind it’s way through the store. In my delusional enthusiasm at my winning 2nd place at the competition I thought the parade was for us kids and we could march along with them.
+So me and my dad tagged along as Pac-Man and the red ghost meandered around Macy’s that afternoon. What a sight that must of been to shoppers shopping for dress shirts and kicthen gear!
 
-So me and my dad tagged along as Pac-Man and the red ghost meandered around Macy’s that afternoon.
-
-After a while—just when it started to feel real awkward—me and my dad peeled ourselves away from the parade, headed down the escalators and headed back into the subway to go home.
+After a while—just when it started to feel genuinely awkward—me and my dad peeled ourselves away from the Pac-Man parade, headed down the escalators and headed back to the subway station to head home.
 
 ***
 
