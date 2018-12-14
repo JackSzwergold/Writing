@@ -144,9 +144,9 @@ I finished playing my practice game and—to my own suprised—scored a pretty s
 
 Those kids who I was up against came up to the Atari computer that was demoing the gamand started to fiddle around with it.
 
-One of them opened up the Atari’s cartridge slot cover to see if they could see the actual *Centipede* cartridge in it… But there was no cartridge there! I walked over as the kids quickly closed the lid and the computer booted up to the default “Atari Computer Memo Pad” application.
+One of them opened up the Atari’s cartridge slot cover to see if they could see the actual *Centipede* cartridge in it… But there was no cartridge there! I walked over as the kids quickly closed the slot cover and the computer booted up to the default “Atari Computer Memo Pad” application.
 
-A woman from the Atari team came by to fix the situation. She looked around the computer and asked someone else for help. She was a bit panicked, but I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari cassette drive. I guess the cartridges weren’t manufactured yet, so this contest would be running the game from the cassette drive.
+A woman from the Atari team came by to see if she could fix things. She looked around the computer and asked someone else for help. and was clearly a bit panicked. But I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari cassette drive. I guess the official *Centipede* ganme cartridges weren’t manufactured yet, so this contest would be running the game from a cassette tape version instead.
 
 I walked over and said, “I can help.” And switched off the computer, held down the “Start” key, waited for a beep and then hit the “Return” key and the program started loading.
 
