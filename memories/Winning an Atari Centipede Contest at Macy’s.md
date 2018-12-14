@@ -196,7 +196,7 @@ A few days later the cartridge showed up in the mail. The packaging was crushed 
 
 I popped it in my Atari 400 and started to play it. I was definitely fun, but nowhere near as fun as *Megalegs* was. The truth was I had played *Megalegs* so much since getting it *Centipede* seemed sluggish by comparison.
 
-So after a while, the cartridge and smashed box just ended up in my closet.
+So after a while, the cartridge and smashed box just ended up in my closet. I ended up playing *Megalegs* more often. I still liked the t-shirt—and wore it with pride—although I never really got into Kraftwerk’s “Computer World” at the time.
 
 ***
 
