@@ -110,11 +110,11 @@ With the game in hand, I played that game every day after school as if it was a 
 
 This went on for weeks and weeks. And—in my mind—I was getting better at it with each new game I played.
 
-Soon enough, the weekend of the Atari contest came around. I barely slept the night before, but still felt rested and excited.
-
-“Big day!” my dad said as we both got ready to head into “The City” and enter the contest.
-
 ***
+
+Soon enough, the weekend of the *Macy’s* Atari contest came around. I barely slept the night before, but still felt rested and excited the morning of the contest.
+
+“Big day!” my dad said as we both got ready to head into “The City” and so I could enter the contest.
 
 The subway trip from the ass end of Brooklyn to 34th Street in Manhattan went as it always went. Lots of waiting. Lots of sitting around and doing not much of anything. Momentary excitement as we headed over the Manhattan Bridge and then there at 34th Street we were.
 
