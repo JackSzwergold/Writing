@@ -30,9 +30,9 @@ When I stepped inside of the place, I walked over to the change machine, stuck m
 
 And within less than a minute the truth was clear as day: I kinda sucked at it. The second game was slightly better, but felt like a chore more than a fun thing to do. And by the time I was on my third game, the game wasn’t fun to play.
 
-I liked the graphics and it seemed fun, but the track ball that the game used felt awkward and I also started to realize something: A video game for a home computer system wouldn’t use a track ball anyway. It would use that standard black Atari joystick. This kind of practice on the arcade machine would not help me.
+The graphics were cool and the game seemd like it would be fun, but the track ball that the game used was awkward to used and I also started to realize something: A video game for a home computer system wouldn’t use a track ball anyway. It would use that standard black Atari joystick. So practicing on the arcade version of the game wouldn’t help me.
 
-So by the time I lost my last player on that 3rd round of *Centipede*, I just picked up my schoolbag and headed back home.
+Which is all to say that by the time I lost my last player on that third game of *Centipede*, I just stared at the screen for a second or two, picked up my schoolbag and headed back home.
 
 ***
 
