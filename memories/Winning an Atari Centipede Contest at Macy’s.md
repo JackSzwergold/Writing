@@ -128,11 +128,11 @@ Noticing us standing and looking around, some people from Atari came up to us an
 
 We puttered around the conference room for a bit and—after a while—I asked if we could play the game. “Sure,” the guy said as he handed me a joystick.
 
-This was the first time I was playing the actual home computer version of *Centipede* and not that *Megalegs* knock-off I had at home.
+This was the first time I was playing the actual home computer version of *Centipede* and not that *Megalegs* knock-off I had at home so I was a bit nervous.
 
-I was doing well, but not great. My idea that I could somehow practice by playing *Megalegs* was clearly not a great plan. The gameplay and patterns were clearly different despite the games visually looking similar.
+I was doing well at first, but not great. My idea that I could somehow practice by playing *Megalegs* was clearly not a great plan. The gameplay and patterns were clearly different despite the games visually looking similar. It never occured to me as a kid that different programmers would use different patterns and algorithms; but it didn’t matter. I was doing pretty well at the time.
 
-But I was doing pretty well. At some point while I was playing some kid came in—presumably one of the kids I would be up against—and watched me play. “Wow!” he said. “You’re pretty good,” he added.
+At some point while I was playing some kid came in—presumably one of the kids I would be up against—and watched me play. “Wow!” he said. “You’re pretty good,” he added.
 
 “Yeah,” I said to him while still in the middle of playing. “I’ve been practicing at home,” I added.
 
