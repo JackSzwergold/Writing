@@ -126,7 +126,7 @@ And by “beige” I mean that as a feeling and aesthetic reality. The room was 
 
 Noticing us standing and looking around, some people from Atari came up to us and asked us if we were there for the contest. I enthusiastically responded “Yes!” and they immediately looked us over as if we were some misfit freaks. While I was 14 at the time, my dad was 63 and looked older thanks to the stresses of surviving the Holocaust and World War II. We didn’t look like father and son as much as grandfather and grandchild. “Okay, well here let me write down your name,” and with that the guy wrote down my name on some list of contest entrants. I looked at the list and it was small, but clearly had a few other entrants on it. They asked us what borough we were from and I could clearly see I was the only kid from Brooklyn; everyone else was from Manhattan.
 
-We puttered around the conference room and I asked if we could play the game. “Sure,” the guy said and handed me a joystick.
+We puttered around the conference room for a bit and—after a while—I asked if we could play the game. “Sure,” the guy said as he handed me a joystick.
 
 This was the first time I was playing the actual home computer version of *Centipede* and not that *Megalegs* knock-off I had at home.
 
