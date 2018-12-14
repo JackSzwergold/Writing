@@ -16,7 +16,7 @@ Damn was I psyched about *Centipede*! And I was really excited to share the news
 
 ***
 
-So back at school—while yammering about nonsense with some classmates—I mentioned the Atari Centipede contest at *Macy’s*. “So what?” said pretty much everything. But I didn’t flinch and responded, “I’m good at playing video games! I can win!” There was a pregnant pause and someone asked, “What if you win the Atari 400. You already have one?” Everyone nodded and I responded, “Well, I could sell it.” And this basically went on an on for a while until class started.
+So back at school—while yammering about nonsense with some classmates—I mentioned the Atari Centipede contest at *Macy’s*. There was pregnant pause and then someone just said “So what?” said pretty much everything. But I didn’t let that discourage me and responded, “Well, I’m good at playing video games… So I can win!” There was a pregnant pause and someone asked, “What if you win the Atari 400. You already have one?” Everyone nodded and I responded, “Well, I could sell it.” And this basically went on an on for a while until class started.
 
 I sat and stared at the blank page in my notebook and started to wonder, “I never really played *Centipede* more than a few times. How can I win if I don’t practice?”
 
