@@ -58,9 +58,9 @@ With that he smiled, nodded and handed me a promotional flyer for the game. I lo
 
 ***
 
-I got back home just as the sun was setting. It was fall so the beach was empty and the breeze was refreshing. The dusky sunlight was warm and welcoming.
+I got back home by subway just as the sun was setting. It was fall so the beach was empty and the breeze was refreshing. The dusky sunlight was warm and welcoming as I walked along the elevated platform of the Ocean Parkway station to the staircase.
 
-I headed upstairs and my dad immediately asked me if I wanted to eat anything, “Sure.” I said as I headed back into my room.
+When I got to my building, I headed upstairs and my dad immediately asked me if I wanted to eat anything, “Sure.” I said as I headed back into my room.
 
 I took out the *Megalegs* flyer and looked it over. I had about $8 saved up at the time. Should I hit my dad up for the rest? I dunno.
 
