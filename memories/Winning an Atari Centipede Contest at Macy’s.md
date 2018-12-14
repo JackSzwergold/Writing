@@ -148,7 +148,7 @@ One of them opened up the Atari’s cartridge slot cover to see if they could se
 
 A woman from the Atari team came by to see if she could fix things. She looked around the computer and asked someone else for help. and was clearly a bit panicked. But I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari cassette drive. I guess the official *Centipede* ganme cartridges weren’t manufactured yet, so this contest would be running the game from a cassette tape version instead.
 
-I walked over and said, “I can help!” And with that switched off the computer, held down the “Start” key, waited for a beep and then hit the “Return” key and the program started loading again. The benefit of having a crappy Atari 410 cassette at home was that I at least knew how to use it.
+I walked over and said, “I can help!” And with that switched off the computer, held down the “Start” key, waited for a beep and then hit the “Return” key and the program started loading again. The benefit of having a crappy Atari 410 cassette drive at home was that I at least knew how to use it.
 
 “I have one at home,” I told the woman from Atari. She smiled as the other guy running the thing came over, saw what was happening and said, “Yeah, the kid fixed it. We just have to wait now.”
 
