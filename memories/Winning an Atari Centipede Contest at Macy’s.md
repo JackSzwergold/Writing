@@ -140,9 +140,9 @@ The kid gasped and said, “You cheated!” since we all knew the game was not a
 
 “No I didn’t,” I explained. “There is this other game called *Megalegs* that’s like *Centipede* I practiced with.” And with that he nodded and walked over to talk to some of his friends about what I just said.
 
-I finished playing my practice game and scored a pretty solid score. The guy running the thing came over and said, “Wow! You’re sure to win now!” Just as my dad came by.
+I finished playing my practice game and—to my own suprised—scored a pretty solid high score. The guy from Atari who was running the contest came over and said, “Wow! You’re sure to win now!” just as my dad came by and asked, “You did good?”
 
-“You did good?” my dad asked and I pointed to the screen and showed him. “Wow! That’s pretty good,” he said as if he actually knew what a high score in *Centipede* might be but still being supportive.
+ my dad asked and I pointed to the screen and showed him. “Wow! That’s pretty good,” he said as if he actually knew what a high score in *Centipede* might be but still being supportive.
 
 Those kids who I was up against came up to the computer and started to fiddle around with it.
 
