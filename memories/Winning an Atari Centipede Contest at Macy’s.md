@@ -26,9 +26,9 @@ So after school I went to Captain’s Quarters—a local neighborhood cafe—and
 
 Captain’s Quarters was a huge storefront arcade on Brighton Beach Avenue near Coney Island Avenue. As an adult it’s clear to me there had to be some shady stuff happening in there—and it might have been a front for someone or something—but I didn’t care. It was an arcade that had tons of games, was well maintained and was located conveniently near me; smack dab in the middle of a neighborhood filled with junk stores and fruit stands.
 
-When I stepped inside of the place, I walked over to the change machine, stuck my dollar into the slot, picked up the 4 quarters it spit back out into the tray, walked over to the *Centipede* machine and started to play.
+When I stepped inside of the place, I walked over to the change machine, stuck my dollar into the slot, gathered up the 4 quarters it spit back out into the tray, walked over to the *Centipede* machine and started to play.
 
-I kinda sucked. By the time I was on my 3rd quarter, the game wasn’t fun to play.
+And within less than a minute the truth was clear as day: I kinda sucked at it. The second game was slightly better, but felt like a chore more than a fun thing to do. And by the time I was on my third game, the game wasn’t fun to play.
 
 I liked the graphics and it seemed fun, but the track ball that the game used felt awkward and I also started to realize something: A video game for a home computer system wouldn’t use a track ball anyway. It would use that standard black Atari joystick. This kind of practice on the arcade machine would not help me.
 
