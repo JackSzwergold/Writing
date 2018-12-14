@@ -166,7 +166,7 @@ The next kid came up to play and truly bombed hard. I barely think he successful
 
 After the results were announced, the Atari folks had me pose with the winner. It was an awkward photo at best since I was the only kid there that looked like a scrappy street kid even when I was cleaned up. The other kids were basically WASPy kids from either the Upper East Side or Upper West Side and seemed to have matching Izod Lacoste polo shirts on while I was decked out in my best, non-branded second hand clothes.
 
-I held up my two fingers in a “V for Victory” formation and the Atari guy—who was taking pics with a Polaroid—said something like “Two fingers! For second place! Nice!”
+As the Atari guy got ready to take our picture, I held up two fingers on my right hand in a “V for Victory” salute and the guy—who was taking pictures with a Polaroid—said something like “Cool! Two fingers! For second place? Nice!”
 
 Was a bit pissed about that but who cared.
 
