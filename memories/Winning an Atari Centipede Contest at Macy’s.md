@@ -118,9 +118,9 @@ Soon enough, the weekend of the Macy’s Atari contest came around. I barely sle
 
 The subway trip from the ass end of Brooklyn to 34th Street in Manhattan went as it always went. Lots of waiting. Lots of sitting around and doing not much of anything. Momentary excitement as we headed over the Manhattan Bridge and—finally—we arrived at 34th Street-Herald Square: The home of Macy’s.
 
-We headed into Macy’s and started to look around for the contest. The ad clearly said what floor it was on, but Macy’s was a huge place.
+We headed into Macy’s and started to look around for the contest. The ad clearly said what floor it was on, but Macy’s was a huge, confusing place.
 
-After checking some signage and asking around we made our way up the electronics floor. We passed by this place tons of times and even checked out the video game displays they had in the past, but this contest was not on the main floor. Rather it was in a small conference room near the end of the floor.
+After checking out some signage and asking around we made our way up the electronics floor. We passed by this place tons of times—and even checked out the video game displays they had in the past—but this contest was not on the main part of the electronics floor. Rather it was in a small beige and boring conference-like room near the end of the floor.
 
 The conference room was beige. As beige as a 1980s conference room could be. Some chairs were stacked away on the sides of the room and there were a few Atari posters on the walls. A few balloons as well. But right near the front of the room was presumably where this contest was happening. It was a setup with a few Atari computers lined up and a projector TV projecting the game onto a screen right up front.
 
