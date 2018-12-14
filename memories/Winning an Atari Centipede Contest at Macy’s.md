@@ -94,9 +94,9 @@ With proper funding in place, I headed to the Computer Center, bought the casset
 
 I was excited all the way home on the subway and would peek inside the brown paper bag every now and then to just look at the game packaging.
 
-When I got to the Ocean Parkway station, I ran down the station stairs, jumped the small fence near my building and headed upstairs to the family apartment.
+When I got to the Ocean Parkway station, I ran down the station stairs, jumped the small brick fence near my building and headed upstairs to the family apartment.
 
-I ran in the door, took off my jacket, pulled the game out of the brown paper bag, shoved it into the Atari 410 cassette drive and let it load up.
+I ran in the door, ripped off my jacket, pulled the game out of the brown paper bag and ziplock bag, shoved it into the Atari 410 cassette drive and let it load up.
 
 After a minute or so the game was loaded and I started to play it.
 
