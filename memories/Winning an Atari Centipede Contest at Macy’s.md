@@ -58,13 +58,13 @@ With that he smiled, nodded and handed me a promotional flyer for the game. I th
 
 ***
 
-I took the D train back home and got back just as the sun was setting. It was fall so the beach was empty and the breeze was calm and cool. The dusky sunlight was warm and welcoming as I walked along the elevated platform of the Ocean Parkway station to the staircase.
+I took the D train back home and got back just as the sun was setting. It was fall so the beach was empty and the breeze was calm and cool. The dusky sunlight was warm and welcoming as I walked along the elevated platform of the Ocean Parkway station to the staircase and headed downstaris to the street below.
 
 When I got to my building, I headed upstairs and my dad immediately asked me if I wanted to eat anything, “Sure.” I said as I headed back into my room.
 
-I took out the *Megalegs* flyer and looked it over. I had about $8 saved up at the time. Should I hit my dad up for the rest? I dunno.
+I took out the *Megalegs* flyer and looked it over again. Since I was just a kid with a basic allowance, I had about $8 saved up at the time. Should I hit my dad up for the rest of the money I needed to get *Megalegs*? I dunno.
 
-“What is that?” my dad said as he brought a plate of food to my room. “It’s a new game,” I said as I passed the flyer over to him to check out. He looked it over and said, “$29? That’s expensive!” I simply shrugged in response and left it at that.
+“What’s that?” my dad said as he brought a plate of food to my room. “It’s a new game,” I said as I passed the flyer over to him to check out. He looked it over and said, “$29? That’s expensive!” I simply shrugged in response and left it at that.
 
 Pretty sure my dad expected me to ask him for money to buy the game, but I didn’t ask him. Saving up money was not a strong point for me at that time and I already hit him up for advances on my allowance a lot already during the summer.
 
