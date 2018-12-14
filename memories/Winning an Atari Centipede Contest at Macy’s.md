@@ -46,15 +46,15 @@ The graphics were not as good as the arcade version of *Centipede* but the gamep
 
 After the guy from the store finished playing the game I asked if I could try it out. “Sure,” he said as he stepped aside and passed the joystick over to me.
 
-He hit the “Start” button on the Atari 800 and the game began..
+He hit the “Start” button on the Atari 800 and the game began.
 
 Although I was just as bad at *Megalegs* as I was in the arcade when I played *Centipede*, I still felt like I could learn how to get better at playing the game when I used a joystick instead of a trackball.
 
-After my round was over I picked up the zip locked bag that had the game in it and looked it over. The cover art was goofy and cool. And it was available on cassette which is what I needed since I didn’t have a disk drive at that point anyway. But what I noticed right away was the price: $29.99 or something like that.
+After my game was over, I stepped aside and I picked up the zip locked bag that had the game in it and looked it over. The cover art was goofy and cool. And it was available on cassette which is what I needed since I didn’t have a disk drive at that point anyway. But what I noticed right away was the price: $29.99 or something like that.
 
 “So you want to buy it?” the guy asked me to which I responded, “Yes. But I don’t have enough money on me.”
 
-With that he smiled, nodded and handed me a promotional flyer for the game. I looked it over, folded it up and shoved it in my pocket and headed home.
+With that he smiled, nodded and handed me a promotional flyer for the game. I looked it over, folded it up and shoved it in my jacket pocket and headed home.
 
 ***
 
