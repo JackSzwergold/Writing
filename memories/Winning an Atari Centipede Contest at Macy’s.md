@@ -32,13 +32,13 @@ And within less than a minute the truth was clear as day: I kinda sucked at it. 
 
 The graphics were cool and the game seemd like it would be fun, but the track ball that the game used was awkward to used and I also started to realize something: A video game for a home computer system wouldn’t use a track ball anyway. It would use that standard black Atari joystick. So practicing on the arcade version of the game wouldn’t help me.
 
-Which is all to say that by the time I lost my last player on that third game of *Centipede*, I just stared at the screen for a second or two, picked up my schoolbag and headed back home.
+Which is all to say that by the time I lost my last player on that third game of *Centipede*, I just joylessly stared at the screen for a second or two, picked up my schoolbag and headed back home.
+
+When I got home I started to think about how I could practice for the *Centipede* contest. None of the games I had at home resembled *Centipede* in any way but I had to think of something to practice on so I could get ready for the contest.
 
 ***
 
-When I got home I started to think about how I could practice for the *Centipede* contest. None of the games I had at home resembled *Centipede* in any way but I had to think of something to practice so I could win.
-
-One day, I was made a trip over to the Computer Center on 32nd Street to browse around their racks of software when I noticed something: They had an Atari 800 setup to demo a hot new game they had: *Megalegs*.
+When the weekend hit, I was made a trip over to the Computer Center on 32nd Street in Manhattan to browse around their racks of software when I noticed something right when I stepped in the front door of the place: They had an Atari 800 setup to demo a hot new game they had: *Megalegs*.
 
 I walked over to the modest display and watched as one of the guys from the store played the game. Holy shit, it was a *Centipede* clone.
 
