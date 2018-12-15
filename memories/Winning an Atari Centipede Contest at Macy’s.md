@@ -1,4 +1,5 @@
 ## Winning an Atari Centipede Contest at Macy’s
+### About the Time I Entered a Video Game Contest at Macy’s
 
 By Jack Szwergold
 
