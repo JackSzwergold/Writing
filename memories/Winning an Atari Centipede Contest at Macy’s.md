@@ -131,13 +131,13 @@ This was the first time I was playing the actual home computer version of *Centi
 
 I was doing well at first, but not great. It was then I realized that my “brilliant” idea that I could somehow practice by playing *Megalegs* was clearly not a great plan. The gameplay and patterns were clearly different despite the games visually looking similar. It never occurred to me as a kid that different programmers would use different patterns and algorithms; but it didn’t matter. I was doing pretty well at the time.
 
-At some point while I was playing some kid came in—presumably one of the kids I would be up against—and watched me play. “Wow!” he said. “You’re pretty good,” he added.
+As I was playing, some kid came in—presumably one of the kids I would be up against—and watched me play. “Wow!” he said. “You’re pretty good,” he added.
 
 “Yeah,” I said to him while still in the middle of playing. “I’ve been practicing at home,” I added.
 
-The kid gasped and said, “You cheated!” since we all knew the game was not available to the public yet.
+The kid gasped and said, “You cheated!” since most anyone who followed home computer video game releases knew that *Centipede* was not available to the public yet.
 
-“No I didn’t,” I explained. “There is this other game called *Megalegs* that’s like *Centipede* I practiced with.” And with that he nodded and walked over to talk to some of his friends about what I just said.
+“No I didn’t,” I explained. “There is this other game called *Megalegs* that’s like *Centipede*. I practiced by playing that.” And with that he nodded and walked over to talk to some of his friends about what I just said.
 
 I finished playing my practice game and—to my own surprised—scored a pretty solid high score. The guy from Atari who was running the contest came over and said, “Wow! You’re sure to win now!” just as my dad came by and asked, “You did good?” I pointed to the screen and showed him my score. “Wow! That’s pretty good,” he said as if he actually knew what a high score in *Centipede* might be. But no matter… He was being positive and supportive and that’s all I really needed.
 
