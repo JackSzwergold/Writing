@@ -69,7 +69,7 @@ So we both silently acknowledged not much about me needing the money for *Megale
 
 ***
 
-When Monday came, I headed into school I showed the *Megalegs* flyer to some friends. “I need to practice with this other game if I want to win that *Centieped* contest,” I said. And they agreed as they looked over the flyer.
+When Monday came, I headed into school I showed the *Megalegs* flyer to some friends. “I need to practice with this other game if I want to win that *Centipede* contest,” I said. And they agreed as they looked over the flyer.
 
 “That game looks cool!” said one friend who had an Atari 800. “How about this: Let’s go 50/50 on the game,” he said. “What do you mean?” I asked. “Well, I pay $15 and you pay $15 and we can copy the game anyway so just let me have a copy.”
 
@@ -195,7 +195,7 @@ A few days later the cartridge showed up in the mail. The packaging was crushed 
 
 I popped it in my Atari 400 and started to play it. I was definitely fun, but it was honestly nowhere near as fun as *Megalegs* was. The truth was I had played *Megalegs* so much since getting it the official *Centipede* game for the Atari home computers seemed relatively sluggish in comparison.
 
-So after a while, the cartridge and smashed box just ended up in my closet. I ended up playing *Megalegs* more often. I still liked the t-shirt—and wore it with pride—although I never really got into Kraftwerk’s “Computer World” at the time.
+So after a while, the *Centipede* cartridge and smashed box just ended up in my closet since I ended up playing *Megalegs* more often. I still liked the t-shirt—and wore it with pride to school—although I never really got into Kraftwerk’s “Computer World” at the time.
 
 ***
 
