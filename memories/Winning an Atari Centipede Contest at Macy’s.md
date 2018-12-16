@@ -105,9 +105,9 @@ My dad came into my room to watch me play the game. “Oh, it looks good!” he 
 
 ***
 
-Now that I owned the game, I played it every day after school as if it was a homework assignment.
+Now that I actually owned *Megalegs*, I played it every day after school as if it was a homework assignment.
 
-This went on for weeks and weeks. And—in my mind—I was getting better at it  each time I played it.
+This went on for weeks and weeks. And—in my mind—I was getting better at it each time I played it.
 
 ***
 
