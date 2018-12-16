@@ -65,6 +65,8 @@ I took off my jacket, pulled out the *Megalegs* flyer and looked it over again. 
 
 I’m pretty sure my dad expected me to ask him for money to buy the game, but I didn’t. Saving up money was not a strong point for me at that time and I already hit him up for advances on my allowance a lot already during the summer. So I knew that was a losing proposition at best.
 
+So we both silently acknowledged not much about me needing the money and let the whole situation pass for now.
+
 ***
 
 When Monday came, I headed into school I showed the *Megalegs* flyer to some friends. “I need to practice if I want to win that contest,” I said. And they agreed as they looked over the flyer.
