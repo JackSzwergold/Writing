@@ -77,7 +77,7 @@ That was a pretty good idea! We all just discovered how to pirate Atari program 
 
 “Okay, but I get to keep the original cassette and packaging,” I said. “Fine with me!” he said.
 
-And with that a deal was struck.
+And with that an adolescent deal was struck.
 
 ***
 
