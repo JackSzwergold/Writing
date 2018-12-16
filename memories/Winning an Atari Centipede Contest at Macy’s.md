@@ -89,13 +89,13 @@ And with that, my dad gave me the $7 and I headed over to my friends house to ge
 
 ***
 
-With those funds in place, I headed to the Computer Center, bought the cassette version of *Megalegs* and they put it in a plain brown paper bag for me.
+With those funds in place, I headed to the Computer Center, bought the cassette version of *Megalegs* and then quickly headed out to head back home and play it on my home system.
 
 I was excited all the way home on the subway and would peek inside the brown paper bag every now and then just to look at the game packaging.
 
-When I got to the Ocean Parkway station, I ran down the station stairs, jumped the small brick fence near my building and headed upstairs to the family apartment.
+When the train finally pulled into the Ocean Parkway station, I ran down the station stairs, jumped the small brick fence near my building and headed upstairs to the family apartment.
 
-I ran in the door, ripped off my jacket, pulled the game out of the brown paper bag and ziplock bag, shoved it into the Atari 410 cassette drive and let it load up.
+I ran through the front door, ripped off my jacket, pulled the game out of the brown paper bag and ziplock bag, shoved it into the Atari 410 cassette drive and let it load up.
 
 After a minute or so the game was loaded and I started to play it.
 
@@ -105,9 +105,9 @@ My dad came into my room to watch me play the game. “Oh, it looks good!” he 
 
 ***
 
-With the game in hand, I played that game every day after school as if it was a homework assignment.
+Now that I owned the game, I played it every day after school as if it was a homework assignment.
 
-This went on for weeks and weeks. And—in my mind—I was getting better at it with each new game I played.
+This went on for weeks and weeks. And—in my mind—I was getting better at it  each time I played it.
 
 ***
 
