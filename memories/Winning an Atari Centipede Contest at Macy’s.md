@@ -155,7 +155,7 @@ After a while *Centipede* loaded and the guy running the competition asked us al
 
 I knew I wasn’t at the top of the list, so I wasn’t going to be the first to play. But I checked the list and there wasn’t more than one or two other people signed up after me so it was a small group of competitors at best.
 
-I watched as the other kids played. They did well, but nowhere near my score. Then one kid started playing and easily blew my score away. I was worried, but tried to be calm about this.
+I watched as the other kids played. They did well, but nowhere near my score. Then one kid started playing and easily blew my practice score away. I was worried, but tried to be calm about it.
 
 Soon it was my turn. I did pretty well despite my palms being incredibly sweaty from being nervous and my hands shaking a bit from the stress of being the center of attention.
 
