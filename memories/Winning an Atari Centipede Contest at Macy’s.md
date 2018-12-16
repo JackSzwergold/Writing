@@ -53,7 +53,9 @@ With that he smiled, nodded and handed me a promotional flyer for the game. I sa
 
 ***
 
-I took the D train back home and got back just as the sun was setting. It was fall so the beach was empty and the breeze was calm and cool. The dusky sunlight was warm and welcoming as I walked along the elevated platform of the Ocean Parkway station to the staircase and headed downstairs to the street below.
+I took the D train back home and got back just as the sun was setting. It was fall so the beach was empty and the ocean breeze was calm and cool. The dusky sunlight was warm and welcoming as I walked along the elevated platform of the Ocean Parkway station to the staircase and headed downstairs to the street below.
+
+***
 
 When I got to my building, I headed upstairs and my dad immediately asked me if I wanted to eat anything, “Sure.” I said as I headed back into my room.
 
