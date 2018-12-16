@@ -111,11 +111,11 @@ This went on for weeks and weeks. And—in my mind—I was getting better at it 
 
 ***
 
-Soon enough, the weekend of the Macy’s Atari contest came around. I barely slept the night before, but still felt rested and excited the morning of the contest.
+Soon enough, the weekend of the Macy’s Atari contest came around. I barely slept the night before, but still felt rested and excited in the morning.
 
 “Big day!” my dad said as we both got ready to head into “The City” and so I could finally participate in the contest.
 
-The subway trip from the ass end of Brooklyn to 34th Street in Manhattan went as it always went. Lots of waiting. Lots of sitting around and doing not much of anything. Momentary excitement as we headed over the Manhattan Bridge and—finally—we arrived at 34th Street-Herald Square: The home of Macy’s.
+The subway trip from the ass end of Brooklyn to 34th Street in Manhattan went as it always went. Lots of waiting. Lots of sitting around and doing not much of anything. Brief excitement as the train emerged from the tunnel and headed over the Manhattan Bridge and, finally, we arrived at 34th Street-Herald Square: The home of Macy’s!
 
 We headed into Macy’s and started to look around for the contest. The ad clearly said what floor it was on, but Macy’s was a huge, confusing place.
 
