@@ -35,17 +35,15 @@ When I got home I started to think about how I could practice for the *Centipede
 
 ***
 
-When the weekend hit, I was made a trip over to the Computer Center on 32nd Street in Manhattan to browse their wares when I noticed something right when I stepped in the front door: They had an Atari 800 set up to demo a “hot” new game they had: *Megalegs*.
+When the weekend hit, I decided to head over to the Computer Center on 32nd Street in Manhattan to browse their wares when I noticed something right when I stepped in the front door: They had an Atari 800 set up to demo a “hot” new game they had called: *Megalegs*.
 
 I walked over to the well organized—but ultimately simple display—and watched as one of the guys from the store played the game. Holy shit, it *Megalegs* was a *Centipede* knock-off game!
 
-The graphics were not as good as the arcade version of *Centipede* but the gameplay seemed 100% the same.
+The graphics were colorful and cool—and honestly not as good as the arcade version of *Centipede*—but the actual gameplay seemed 100% the same as *Centipede*.
 
-After the guy from the store finished playing the game I asked if I could try it out. “Sure,” he said as he stepped aside and passed the joystick over to me.
+I stood there and watched the guy from the store play the game, and after he finished playing the game I asked if I could try it out. “Sure,” he said as he stepped aside and passed the joystick over to me, hit the “Start” button on the Atari 800 and the game began.
 
-He hit the “Start” button on the Atari 800 and the game began.
-
-Although I was just as bad at *Megalegs* as I was in the arcade when I played *Centipede*, I still felt like I could learn how to get better at playing the game when I used a joystick instead of a trackball.
+Although I was just as bad at *Megalegs* as I was at the arcade version of *Centipede*, I still felt like I could learn how to get better at playing the game when I used a joystick instead of a trackball.
 
 After my game was over, I stepped aside and I picked up the zip locked bag that had the game in it and looked it over. The cover art was goofy and cool. And it was available on cassette which is what I needed since I didn’t have a disk drive at that point anyway. But what I noticed right away was the price: $29.99 or something like that.
 
