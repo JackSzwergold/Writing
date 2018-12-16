@@ -191,9 +191,9 @@ Since 6-ish weeks had clearly passed and I still didn’t get that *Centipede* c
 
 “What?” the guy asked. “I was in that *Centipede* contest at Macy’s, got in second place and I still haven’t got the cartridge in the mail.” “What’s your name?” he asked as he shuffled through some papers. I told him my name, he read off my address, I confirmed the address was correct and he said he would send it off today.
 
-A few days later the cartridge showed up in the mail. The packaging was crushed since it just shoved it in a plan manilla envelope instead of a box, but the game cartridge was still good despite the package being smashed.
+A few days later the cartridge showed up in the mail. The packaging was crushed since it just shoved it in a plain manilla envelope instead of a box, but the game cartridge was still good despite the package being smashed.
 
-I popped it in my Atari 400 and started to play it. I was definitely fun, but nowhere near as fun as *Megalegs* was. The truth was I had played *Megalegs* so much since getting it *Centipede* seemed sluggish by comparison.
+I popped it in my Atari 400 and started to play it. I was definitely fun, but it was honestly nowhere near as fun as *Megalegs* was. The truth was I had played *Megalegs* so much since getting it the official *Centipede* game for the Atari home computers seemed relatively sluggish in comparison.
 
 So after a while, the cartridge and smashed box just ended up in my closet. I ended up playing *Megalegs* more often. I still liked the t-shirt—and wore it with pride—although I never really got into Kraftwerk’s “Computer World” at the time.
 
