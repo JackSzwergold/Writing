@@ -145,7 +145,7 @@ As I stepped away, the kids who I was up against came up to the Atari computer t
 
 One of them opened up the Atari’s cartridge slot cover to see if they could see the actual *Centipede* cartridge in it… But there was no cartridge there! I walked over as the kids quickly closed the slot cover and the computer booted up to the default “Atari Computer Memo Pad” application.
 
-A woman from the Atari team came by to see if she could fix things. She looked around the computer and asked someone else for help. and was clearly a bit panicked. But I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari cassette drive. I guess the official *Centipede* game cartridges weren’t manufactured yet, so this contest would be running the game from a cassette tape version instead.
+A woman from the Atari team came by to see if she could fix things. She looked around the computer and asked someone else for help and was clearly a bit panicked. But I could see what she was trying to do: She was trying to load the *Centipede* game from the external Atari 410 cassette drive. I guess the official *Centipede* game cartridges weren’t manufactured yet, so this contest would be running the game from a cassette tape version instead.
 
 I walked over and said, “I can help!” And with that switched off the computer, held down the “Start” key, waited for a beep and then hit the “Return” key and the program started loading again. The benefit of having a crappy Atari 410 cassette drive at home was that I at least knew how to use it.
 
