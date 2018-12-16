@@ -169,7 +169,7 @@ As the Atari guy got ready to take our picture, I held up two fingers on my righ
 
 Was a bit pissed about him interpreting my “V for Victory” salute as meaning “Two for Second Place” but who cared. The contest was over and I was notable for my achievement.
 
-The Atari guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well; technically this was the first time anyone gave me their business card so I was proud of that in my own way.
+The Atari guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4 to 6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well; technically this was the first time anyone gave me their business card so I was proud of that in my own way.
 
 Just as we finished up and planned to head home, some people dressed as Pac-Man and a red ghost showed up to be a part of a small promotional “parade” that was going to wind it’s way through the store. In my delusional enthusiasm at my winning second place at the competition I thought the parade was for us kids and we could march along with them.
 
@@ -185,11 +185,11 @@ He answered the phone, said “Hello…” and then I told him the good news: �
 
 ***
 
-About 6-ish weeks later I asked my dad if anything came in the mail for me from Atari. “No,” he said as I went back into my room.
+About 6-ish weeks later—the higher side of the 4 to 6 week estimate—I asked my dad if anything came in the mail for me from Atari. “No,” he said as I went back into my room.
 
-Since 6-ish weeks had clearly passed and I still didn’t get that *Centipede* cartridge in the mail I pulled out the business card the Atari guy gave me at the competition and called him up. It was about 4:00pm and he was a bit tired sounding on his side of the phone.
+Since 6-ish weeks had clearly passed and I still didn’t get that *Centipede* cartridge in the mail I pulled out the business card the Atari guy gave me at the competition and called him up. It was around 4:00pm on a weekday and he was a bit tired sounding on his side of the phone.
 
-“What?” the guy asked. “I won the *Centipede* contest at Macy’s and I still haven’t got the cartridge in the mail.” “What’s your name?” he asked as he shuffled through some papers. I told him my name, he read off my address, I confirmed the address was correct and he said he would send it off today.
+“What?” the guy asked. “I was in that *Centipede* contest at Macy’s, got in second place and I still haven’t got the cartridge in the mail.” “What’s your name?” he asked as he shuffled through some papers. I told him my name, he read off my address, I confirmed the address was correct and he said he would send it off today.
 
 A few days later the cartridge showed up in the mail. The packaging was crushed since it just shoved it in a plan manilla envelope instead of a box, but the game cartridge was still good despite the package being smashed.
 
