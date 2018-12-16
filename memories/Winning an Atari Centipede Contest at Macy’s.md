@@ -45,7 +45,7 @@ I stood there and watched the guy from the store play the game, and after he fin
 
 Although I was just as bad at *Megalegs* as I was at the arcade version of *Centipede*, I still felt like I could learn how to get better at playing the game when I used a joystick instead of a trackball.
 
-After my game was over, I stepped aside, picked up the ziplocked bag that had the game in it and looked it over. The cover art was goofy and pretty cool. And it was available on cassette which is what I needed since I didn’t have a disk drive at that point anyway. But past any of that, what I noticed right away was the price: $29.99 or something like that.
+After my game was over, I stepped aside, picked up the ziplocked bag that had the game in it and looked it over. The cover art was goofy and pretty cool. And it was available on cassette which is what I needed since I didn’t have a disk drive at that point anyway. But past any of that, what I noticed right away was the price: $29.99 or something like that. Whatever it cost, I definitely could not buy it right then and there.
 
 “So you want to buy it?” the guy asked me to which I responded, “Yes. But I don’t have enough money on me.”
 
