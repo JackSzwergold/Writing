@@ -21,9 +21,9 @@ Back in the classroom of whatever junior high school class I was in at that mome
 
 So after on my way home from school I went to Captain’s Quarters—a local neighborhood arcade—and decided to play a few rounds of *Centipede* and see how good I was at the game.
 
-Captain’s Quarters was a huge storefront arcade on Brighton Beach Avenue near Coney Island Avenue. As an adult it’s clear to me there had to be some shady stuff happening in there—and it might have been a front for someone or something—but I didn’t care. It was an arcade that had tons of games, was well maintained and was located conveniently near me; smack dab in the middle of a neighborhood filled with junk stores and fruit stands.
+Captain’s Quarters was something you don’t see anymore: It was a huge storefront arcade on Brighton Beach Avenue near Coney Island Avenue. As an adult it’s clear to me there had to be some shady stuff happening in there—and it might have been a front for someone or something—but I didn’t care. It was an arcade that had tons of games, was well maintained and was located conveniently near me; smack dab in the middle of a stretch of street that was otherwise filled with junk stores, fruit stands and the semi-viable small businesses that typically line the streets of a poor neighborhood.
 
-When I stepped inside of the place, I walked over to the change machine, stuck my dollar into the slot, gathered up the 4 quarters it spit back out into the tray, walked over to the *Centipede* machine and started to play.
+When I stepped inside the place, I walked over to the change machine, stuck my dollar into the slot, gathered up the 4 quarters it spit back out into the tray, walked over to the *Centipede* machine and started to play.
 
 And within less than a minute the truth was clear as day: I kinda sucked at it. The second game was slightly better, but felt like a chore more than a fun thing to do. And by the time I was on my third game, the game wasn’t fun to play.
 
