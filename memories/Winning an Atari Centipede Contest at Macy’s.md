@@ -175,7 +175,7 @@ Just as we finished up and planned to head home, some people dressed as Pac-Man 
 
 So me and my dad tagged along as Pac-Man and the red ghost meandered around Macy’s that afternoon. What a dysfunctional sight that must of been to shoppers shopping for dress shirts and kitchen gear at the time!
 
-After a while—just when it started to feel genuinely awkward—me and my dad peeled ourselves away from the Pac-Man parade, headed down the escalators and headed back to the subway station to head home.
+After a while—just when it started to feel genuinely awkward and weird—me and my dad peeled ourselves away from the sad little Pac-Man parade, headed down the escalators and headed back to the subway station to head home.
 
 ***
 
