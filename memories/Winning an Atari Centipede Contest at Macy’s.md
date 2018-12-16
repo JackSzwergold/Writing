@@ -73,9 +73,9 @@ When Monday came, I headed into school I showed the *Megalegs* flyer to some fri
 
 “That game looks cool!” said one friend who had an Atari 800. “How about this: Let’s go 50/50 on the game,” he said. “What do you mean?” I asked. “Well, I pay $15 and you pay $15 and we can copy the game anyway so just let me have a copy.”
 
-That was a pretty good idea! We all just learned how to pirate Atari program cassettes using an improvised audio dubbing cable. So if we went in 50/50 on a game like that, one of us could keep the original game and just make a copy to give to the other person.
+That was a pretty good idea! We all just discovered how to pirate Atari program cassettes using an improvised audio dubbing cable. So if we went in 50/50 on the cost of a game like that, one of us could keep the original game and just make a copy to give to the other person.
 
-“Okay, but I get to keep the cassette and packaging,” I said. “Fine with me!” he said.
+“Okay, but I get to keep the original cassette and packaging,” I said. “Fine with me!” he said.
 
 And with that a deal was struck.
 
