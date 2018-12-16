@@ -31,7 +31,7 @@ The graphics were cool and the game seemed like it would be fun, but the trackba
 
 Which is all to say that by the time I lost my last player on that third game of *Centipede*, I just joylessly stared at the screen for a second or two, picked up my schoolbag and headed back home.
 
-When I got home I started to think about how I could practice for the *Centipede* contest. None of the games I had at home resembled *Centipede* in any way but I had to think of something, or some way, to practice so I could get ready for the official contest.
+When I got home I started to think about how I could practice for the *Centipede* contest. None of the games I had at home resembled *Centipede* in any way but I had to think of some way to practice so I could get ready for the official contest.
 
 ***
 
