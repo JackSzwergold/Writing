@@ -47,9 +47,9 @@ Although I was just as bad at *Megalegs* as I was at the arcade version of *Cent
 
 After my game was over, I stepped aside, picked up the ziplocked bag that had the game in it and looked it over. The cover art was goofy and pretty cool. And it was available on cassette which is what I needed since I didn’t have a disk drive at that point anyway. But past any of that, what I noticed right away was the price: $29.99 or something like that. Whatever it cost, I definitely could not buy it right then and there.
 
-“So you want to buy it?” the guy asked me to which I responded, “Yes. But I don’t have enough money on me.”
+“So you want to buy it?” the guy asked me to which I responded, “Yeah, but I don’t have enough money on me.”
 
-With that he smiled, nodded and handed me a promotional flyer for the game. I thanked him, looked it over, folded it up and shoved it in my jacket pocket and headed home.
+With that he smiled, nodded and handed me a promotional flyer for the game. I said, “Thank you…” looked it over, folded it up and shoved it in my jacket pocket and headed home.
 
 ***
 
