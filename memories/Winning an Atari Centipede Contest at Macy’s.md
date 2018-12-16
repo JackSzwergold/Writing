@@ -169,11 +169,11 @@ As the Atari guy got ready to take our picture, I held up two fingers on my righ
 
 Was a bit pissed about him interpreting my “V for Victory” salute as meaning “Two for Second Place” but who cared. The contest was over and I was notable for my achievement.
 
-The Atari guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well; technically this was the first time anyone gave me their business card so I was proud in my own way about this.
+The Atari guy asked us for a mailing address and phone number so they could send me a *Centipede* cartridge in the mail. While I had to wait about 4-6 weeks to get the cartridge, I automatically got a dark green *Centipede* t-shirt that day just for participating as well as a copy of Kraftwerk’s “Computer World” on LP as well. He also passed along his business card as part of the whole package as well; technically this was the first time anyone gave me their business card so I was proud of that in my own way.
 
 Just as we finished up and planned to head home, some people dressed as Pac-Man and a red ghost showed up to be a part of a small promotional “parade” that was going to wind it’s way through the store. In my delusional enthusiasm at my winning second place at the competition I thought the parade was for us kids and we could march along with them.
 
-So me and my dad tagged along as Pac-Man and the red ghost meandered around Macy’s that afternoon. What a sight that must of been to shoppers shopping for dress shirts and kitchen gear!
+So me and my dad tagged along as Pac-Man and the red ghost meandered around Macy’s that afternoon. What a dysfunctional sight that must of been to shoppers shopping for dress shirts and kitchen gear at the time!
 
 After a while—just when it started to feel genuinely awkward—me and my dad peeled ourselves away from the Pac-Man parade, headed down the escalators and headed back to the subway station to head home.
 
