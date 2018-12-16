@@ -179,9 +179,9 @@ After a while—just when it started to feel genuinely awkward and weird—me an
 
 ***
 
-Just after getting into the subway station, I saw a payphone and decided to call up one of my neighborhood friends (Alex) and share the good news with him.
+Just after getting into the subway station, I saw a payphone and decided to call up one of my neighborhood friends and share the good news with him.
 
-He answered the phone, said “Hello…” and then I told him the good news: “I won second prize in that *Centipede* contest!” and without a beat he simply said, “Who cares?” and then I explained I won a *Centipede* cartridge and he said, “Okay…” and then with that I just said goodbye, hung up the phone and headed down into the subway station to head back home.
+He answered the phone, said “Hello…” and then I told him the good news: “I won second prize in that *Centipede* contest!” and without a beat he simply said, “Who cares?” and then I explained the prize I won was a *Centipede* cartridge and he said, “Okay…” and then with that I just said goodbye, hung up the phone and headed down into the subway station to head back home.
 
 ***
 
