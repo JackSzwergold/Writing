@@ -157,9 +157,9 @@ I knew I wasn’t at the top of the list, so I wasn’t going to be the first to
 
 I watched as the other kids played. They did well, but nowhere near my score. Then one kid started playing and easily blew my practice score away. I was worried, but tried to be calm about it.
 
-Soon it was my turn. I did pretty well despite my palms being incredibly sweaty from being nervous and my hands shaking a bit from the stress of being the center of attention.
+Soon it was my turn. I did pretty well despite my palms being incredibly sweaty from being nervous and my hands shaking a bit from the stress of being the center of attention in this small, dingy conference room.
 
-But the digital dust settled my score was high, but not high enough. It was lower than my practice score and lower than that of the other kids, but it was still a pretty high score.
+But when the digital dust of my game settled my score was high, but not high enough. It was lower than my practice score and lower than that of the other kids, but it was still a pretty high score.
 
 The next kid came up to play and truly bombed hard. I barely think he successfully shot anything at all when I think of it. And the last kid on the list was nowhere to be found. So when all was said and done, the contest was over and I was in second place! It wasn’t first place, but hey… I won something by doing something!
 
