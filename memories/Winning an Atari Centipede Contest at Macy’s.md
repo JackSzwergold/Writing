@@ -59,11 +59,11 @@ I took the D train back home and got back just as the sun was setting. It was fa
 
 When I got to my building, I headed upstairs and my dad immediately asked me if I wanted anything to eat, “Sure.” I said as I headed back into my room.
 
-I took off my jacket, pulled out the *Megalegs* flyer and looked it over again. Since I was merely a kid with a basic allowance, I had just about $8 saved up at the time. Should I hit my dad up for the rest of the money I needed to get *Megalegs*? I dunno.
+I took off my jacket, pulled out the *Megalegs* flyer and looked it over again. Since I was merely a kid with a basic allowance, I had just about $8 saved up at the time. Should I hit up  my dad for the rest of the money I needed to get *Megalegs*? I dunno.
 
 “What’s that?” my dad said as he brought a plate of food to my room. “It’s a new game,” I said as I passed the flyer over to him to check out. He looked it over and said, “$29? That’s expensive!” I simply shrugged in response and left it at that.
 
-I’m pretty sure my dad expected me to ask him for money to buy the game, but I didn’t ask him. Saving up money was not a strong point for me at that time and I already hit him up for advances on my allowance a lot already during the summer. So I knew that was a losing proposition at best.
+I’m pretty sure my dad expected me to ask him for money to buy the game, but I didn’t. Saving up money was not a strong point for me at that time and I already hit him up for advances on my allowance a lot already during the summer. So I knew that was a losing proposition at best.
 
 ***
 
