@@ -137,11 +137,11 @@ As I was playing, some kid came in—presumably one of the kids I would be up ag
 
 The kid gasped and said, “You cheated!” since most anyone who followed home computer video game releases knew that *Centipede* was not available to the public yet.
 
-“No I didn’t,” I explained. “There is this other game called *Megalegs* that’s like *Centipede*. I practiced by playing that.” And with that he nodded and walked over to talk to some of his friends about what I just said.
+“No I didn’t,” I explained. “There is this other game called *Megalegs* that’s like *Centipede*. I practiced by playing that.” And with that he nodded and walked over to talk to some of his friends about what I just talked to him about.
 
 I finished playing my practice game and—to my own surprised—scored a pretty solid high score. The guy from Atari who was running the contest came over and said, “Wow! You’re sure to win now!” just as my dad came by and asked, “You did good?” I pointed to the screen and showed him my score. “Wow! That’s pretty good,” he said as if he actually knew what a high score in *Centipede* might be. But no matter… He was being positive and supportive and that’s all I really needed.
 
-Those kids who I was up against came up to the Atari computer that was demoing the game and started to fiddle around with it.
+As I stepped away, the kids who I was up against came up to the Atari computer that was demoing the game and started to fiddle around with it.
 
 One of them opened up the Atari’s cartridge slot cover to see if they could see the actual *Centipede* cartridge in it… But there was no cartridge there! I walked over as the kids quickly closed the slot cover and the computer booted up to the default “Atari Computer Memo Pad” application.
 
