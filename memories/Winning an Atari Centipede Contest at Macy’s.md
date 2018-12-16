@@ -69,7 +69,7 @@ So we both silently acknowledged not much about me needing the money for *Megale
 
 ***
 
-When Monday came, I headed into school I showed the *Megalegs* flyer to some friends. “I need to practice if I want to win that contest,” I said. And they agreed as they looked over the flyer.
+When Monday came, I headed into school I showed the *Megalegs* flyer to some friends. “I need to practice with this other game if I want to win that *Centieped* contest,” I said. And they agreed as they looked over the flyer.
 
 “That game looks cool!” said one friend who had an Atari 800. “How about this: Let’s go 50/50 on the game,” he said. “What do you mean?” I asked. “Well, I pay $15 and you pay $15 and we can copy the game anyway so just let me have a copy.”
 
