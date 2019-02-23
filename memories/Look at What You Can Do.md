@@ -14,9 +14,11 @@ Three of the old school writers—Todd, Maria and John—were done wrapping up t
 
 After an hour or so the three of them came back from Nick’s and everyone was clearly drunk but not completely incoherent. More like they were pleasantly buzzed. But I barely remeber them being actually being that pleasant when buzzed, lit or simply fucked up on anything.
 
-The three of them stumbled into the office, headed over to where Rob and I were situated and drunkly say hello.
+The three of them stumbled into the office, headed over to where the offices Rob and I were in and drunkly said “Hello!” to us.
 
-I wave, put my headphones back on and get back to work. They shift over to Rob’s office and joke about him not going out to drink, “I mean Jews don’t drink, right?” Todd says in a jokey menacing way shifting his eyes to me and Rob while he said it.
+I stopped what I was doing, politely smiled and waved at them, put my headphones back on and then quickly got back to work. They then shifted their drunken welcome wagon over to Rob’s office, greeted him as they did me but then started to give him drunkn grief about him not going out to drink with them.
+
+joke about him not going out to drink, “I mean Jews don’t drink, right?” Todd says in a jokey menacing way shifting his eyes to me and Rob while he said it.
 
 I smirked, took a deep breath and went back to work.
 
