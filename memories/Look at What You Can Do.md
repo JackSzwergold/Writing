@@ -22,11 +22,13 @@ Within seconds of them saying Rob should drink more, Todd—the alpha misanthrop
 
 I smirked, took a deep breath, put my headphones back on and turned back to my work. This all happened in less than a few seconds but it all seemed like slow motion. Todd always had a menacing side, and we all dealt with it our own ways, but when his menacing became a literal attack the feeling was always new and befuddling.
 
-Todd laughed a bit under his panting breath, then pulled away from stalking outside my office, straighted up his back and took a few steps back to his drunken group.
+Todd laughed a bit under his panting breath, then pulled away from hovrering outside my office, straighted up his back and took a few steps back to his drunken group.
 
-He then looked at John and Maria, and after a silent beat or two Todd pulled Maria towards him, grabs her head and pushes it into his face and aggresively kisses her; full open mouthed. She’s clearly not into it and nervously laughing as his leather driving gloved hand pushes her head into his. While they were friends for years, they were never a couple and this was never expected or wanted. Maria just went along with it and we all looked at them as if we just witnessed a car crash.
+He then looked at John and Maria, and—after a silent beat or two—Todd pulled Maria towards him, grabs her head and pushes it into his face and aggresively kisses her; full open mouthed. She’s clearly not into it and nervously laughing as his leather driving gloved hand pushes her head into his. While they were friends for years, they were never a couple and this was never expected or wanted. Maria just went along with it and we all looked at them  stunned; as if we just witnessed a car crash.
 
-on her and shoves his hand down her pants in front of Rob’s office while I am next door in the design office. He shouted, “Look Rob! Look at what you can do to Maria when she’s drunk!”
+Then he pulled back—while still holding her—and shoves his hand down the front of her pants and shouted, “Look Rob! Look at what you can do to Maria when she’s drunk!” And then shoved his face back into hers; one hand still gripping behind her head and the other staight down her pants.
+
+
 
 ***
 
