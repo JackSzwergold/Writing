@@ -6,7 +6,7 @@ It was sometime in the late 1990s. Maybe 1997 or 1998. I was still living in the
 
 I think it was fall or winter, but I remember it was dark and I was working late on a Friday at the publication’s office on ass end of State Street; right near the capitol and across the street from the porn shop. It was only Rob and I in the office with Rob next door in his tiny—yet powerful—“I’m the editor!” office and me in the larger production office that would usually be crammed with 3 people during most days.
 
-Three of the old school writers—Todd, Maria and John—were done doing their writing and miscellaneous bullshiting and such and were getting ready to head out to Nick’s bar down the street. 
+Three of the old school writers—Todd, Maria and John—were done wrapping up their writing and miscellaneous bullshit and such and were getting ready to head out to Nick’s bar down the street to get a few beers and some food.
 
 After an hour or so, Todd, Maria And John come back from Nick’s bar on State Street. Everyone was creaky drunk but not completely incoherent.
 
