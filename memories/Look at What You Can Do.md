@@ -6,7 +6,7 @@ It was sometime in the late 1990s. Maybe 1997 or 1998. I was still living in the
 
 I think it was fall or winter, but I remember it was dark and I was working late on a Friday at the publication’s office on ass end of State Street; right near the capitol and across the street from the porn shop. It was only Rob and I in the office with Rob next door in his tiny—yet powerful—“I’m the editor!” office and me in the larger production office that would usually be crammed with 3 people during most days.
 
-Three of the old school writers—Todd, Maria and John—were done wrapping up their writing and miscellaneous bullshit and such and were getting ready to head out to Nick’s bar down the street to get a few beers and some food.
+Three of the old school writers—Todd, Mary and John—were done wrapping up their writing and miscellaneous bullshit and such and were getting ready to head out to Nick’s bar down the street to get a few beers and some food.
 
 “You sure you don’t want to go?” one of them asked me and then asked Rob. I politely declined and they headed out.
 
@@ -24,9 +24,9 @@ I smirked, took a deep breath, put my headphones back on and turned back to my w
 
 Todd laughed a bit under his panting breath, then pulled away from hovrering outside my office, straighted up his back and took a few steps back to his drunken group.
 
-He then looked at John and Maria, and—after a silent beat or two—Todd pulled Maria towards him, grabs her head and pushes it into his face and aggresively kisses her; full open mouthed. She’s clearly not into it and nervously laughing as his leather driving gloved hand pushes her head into his. While they were friends for years, they were never a couple and this was never expected or wanted. Maria just went along with it and we all looked at them  stunned; as if we just witnessed a car crash.
+He then looked at John and Mary, and—after a silent beat or two—Todd pulled Mary towards him, grabs her head and pushes it into his face and aggresively kisses her; full open mouthed. She’s clearly not into it and nervously laughing as his leather driving gloved hand pushes her head into his. While they were friends for years, they were never a couple and this was never expected or wanted. Mary just went along with it and we all looked at them  stunned; as if we just witnessed a car crash.
 
-Then he pulled back—while still holding her—and shoves his hand down the front of her pants and shouted, “Look Rob! Look at what you can do to Maria when she’s drunk!” And then shoved his face back into hers; one hand still gripping behind her head and the other staight down her pants.
+Then he pulled back—while still holding her—and shoves his hand down the front of her pants and shouted, “Look Rob! Look at what you can do to Mary when she’s drunk!” And then shoved his face back into hers; one hand still gripping behind her head and the other staight down her pants.
 
 
 
