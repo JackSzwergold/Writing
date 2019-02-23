@@ -22,7 +22,7 @@ Within seconds of them saying Rob should drink more, Todd—the alpha misanthrop
 
 I smirked, took a deep breath, put my headphones back on and turned back to my work. This all happened in less than a few seconds but it all seemed like slow motion. Todd always had a menacing side, and we all dealt with it our own ways, but when his menacing became a literal attack the feeling was always new and befuddling.
 
-Suddenly Todd grabs Maria, forces a kiss on her and shoves his hand down her pants in front of Rob’s office while I am next door in the design office. He shouted, “Look Rob! Look at what you can do to Maria when she’s drunk!”
+Todd laughed a bit under his panting breath, then pulled away from stalking outside my office and stood up straight. There was a silent pause and then—out of nowhere—Todd grabs Maria, forces a kiss on her and shoves his hand down her pants in front of Rob’s office while I am next door in the design office. He shouted, “Look Rob! Look at what you can do to Maria when she’s drunk!”
 
 ***
 
