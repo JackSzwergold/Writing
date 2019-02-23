@@ -4,9 +4,9 @@ By Jack Szwergold
 
 It was sometime in the late 1990s. Maybe 1997 or 1998. I was still living in the midwest and still working for the wacky weekly local newpaper; which was a thing back in the late 1990s.
 
-I think it was fall or winder, but I remember it was dark and I was working late on a Friday at the publication’s office on State Street. It was only Rob and me in the office. Rob next door in his tiny office and me in the larger production office.
+I think it was fall or winter, but I remember it was dark and I was working late on a Friday at the publication’s office on ass end of State Street; right near the capitol and across the street from the porn shop. It was only Rob and I in the office with Rob next door in his tiny—yet powerful—“I’m the editor!” office and me in the larger production office that would usually be crammed with 3 people during most days.
 
-Todd, Maria And John were done doing their writing and miscellaneous bullshit and heard out to Nick’s down the street. 
+Three of the old school writers—Todd, Maria and John—were done doing their writing and miscellaneous bullshiting and such and were getting ready to head out to Nick’s bar down the street. 
 
 After an hour or so, Todd, Maria And John come back from Nick’s bar on State Street. Everyone was creaky drunk but not completely incoherent.
 
