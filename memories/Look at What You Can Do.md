@@ -20,7 +20,7 @@ I stopped what I was doing, politely smiled and waved at them, put my headphones
 
 Within seconds of them saying Rob should drink more, Todd—the alpha misanthrope of the trio—blurted out, “I mean Jews don’t drink, right?” He did it in the same jokey—yet menacing—way all of the stupid passive-aggresive nonsense came out of him. I looked at him, let the wind of that bigoted bullshit pass over me and then was ready to go back to work when his eyes shifted to me and he blurted out the same thing again, “I mean Jews don’t drink, right Jack?”
 
-I smirked, took a deep breath, put my headphones back on and turned back to my work. This all happened in less than a few seconds but was painful to hear nonetheless.
+I smirked, took a deep breath, put my headphones back on and turned back to my work. This all happened in less than a few seconds but it all seemed like slow motion. Todd always had a menacing side, and we all dealt with it our own ways, but when his menacing became a literal attack the feeling was always new and befuddling.
 
 Suddenly Todd grabs Maria, forces a kiss on her and shoves his hand down her pants in front of Rob’s office while I am next door in the design office. He shouted, “Look Rob! Look at what you can do to Maria when she’s drunk!”
 
