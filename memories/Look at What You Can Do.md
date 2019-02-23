@@ -12,7 +12,7 @@ Three of the old school writers—Todd, Maria and John—were done wrapping up t
 
 ***
 
-After an hour or so the three of them came back from Nick’s and everyone was clearly drunk but not completely incoherent. More like pleasantly buzzed. But I barely rememebr them being that pleasant when buzzed, lit or simply fucked up.
+After an hour or so the three of them came back from Nick’s and everyone was clearly drunk but not completely incoherent. More like they were pleasantly buzzed. But I barely remeber them being actually being that pleasant when buzzed, lit or simply fucked up on anything.
 
 The three of them stumbled into the office, headed over to where Rob and I were situated and drunkly say hello.
 
