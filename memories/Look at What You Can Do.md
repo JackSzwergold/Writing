@@ -32,9 +32,11 @@ Then he pulled back—while still holding her—and shoved his hand down the fro
 
 Rob shouted again, “Todd!” and then he completely disengaged and physically pulled back. Mary stood there drunkenly laughing but not much else. Nobody really did or said anything more. The laughing stopped and then everyone broke off from the group. Todd said nothing and headed outside to smoke in the stairwell as he usually did. Mary stood around slowly coming back to normal and John did not much of anything.
 
-Things calmed down but the crazy incident was just as quickly forgotten as it happened.
+Things calmed down but the crazy incident was just as quickly forgotten as it happened. Nobody was really verbal in the post-attack moments.
 
-John and Maria left and Rob and I went back to work.
+John and Maria left and Rob and I went back to work. I finished my work up and left.
+
+“Goodnigt Rob,” I said as I walked to the exit. He waved and went back to his work. I headed to the elevator, headed outside and headed back home.
 
 ***
 
