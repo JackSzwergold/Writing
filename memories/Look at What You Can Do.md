@@ -2,7 +2,9 @@
 
 By Jack Szwergold
 
-I was working late on a Friday at the publication’s office on State Street. It was only Rob and me in the office. Rob next door in his tiny office and me in the larger production office.
+It was sometime in the late 1990s. Maybe 1997 or 1998. I was still living in the midwest and still working for the wacky weekly local newpaper; which was a thing back in the late 1990s.
+
+I think it was fall or winder, but I remember it was dark and I was working late on a Friday at the publication’s office on State Street. It was only Rob and me in the office. Rob next door in his tiny office and me in the larger production office.
 
 Todd, Maria And John were done doing their writing and miscellaneous bullshit and heard out to Nick’s down the street. 
 
