@@ -24,7 +24,7 @@ I smirked, took a deep breath, put my headphones back on and turned back to my w
 
 Todd laughed a bit under his panting breath, then pulled away from stalking outside my office, straighted up his back and took a few steps back to his drunken group.
 
-He then looked at John and Maria, and after a silent beat or two Todd pulled Maria towards him, grabs her head and pushes it into his face and aggresively kisses her; full open mouthed. She’s clearly not into it and nervously laughing as his leather driving gloved hand pushes her head into his. While friend for years, they were never a couple and this was never expected or wanted.
+He then looked at John and Maria, and after a silent beat or two Todd pulled Maria towards him, grabs her head and pushes it into his face and aggresively kisses her; full open mouthed. She’s clearly not into it and nervously laughing as his leather driving gloved hand pushes her head into his. While they were friends for years, they were never a couple and this was never expected or wanted. Maria just went along with it and we all looked at them as if we just witnessed a car crash.
 
 on her and shoves his hand down her pants in front of Rob’s office while I am next door in the design office. He shouted, “Look Rob! Look at what you can do to Maria when she’s drunk!”
 
