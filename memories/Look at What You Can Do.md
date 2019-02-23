@@ -27,7 +27,14 @@ Todd laughed a bit under his panting breath, then pulled away from hovrering out
 He then looked at John and Mary, and—after a silent beat or two—Todd pulled Mary towards him, grabs her head and pushes it into his face and aggresively kisses her; full open mouthed. She’s clearly not into it and nervously laughing as his leather driving gloved hand pushes her head into his. While they were friends for years, they were never a couple and this was never expected or wanted. Mary just went along with it and we all looked at them  stunned; as if we just witnessed a car crash.
 
 Then he pulled back—while still holding her—and shoved his hand down the front of her pants and shouted, “Look Rob! Look at what you can do to Mary when she’s drunk!” He then went back to shoving his face back into hers; one hand still gripping behind her head and the other staight down her pants clearly feeling her up.
-“Todd!” Rob blurted out from his office, as I pulled off my headphones, stood up and walked to the doorway. John made some timid efforts to 
+
+“Todd!” Rob blurted out from his office, as I pulled off my headphones, stood up and walked to the doorway. John—who was closer to them than Rob and—made some timid efforts to break things up by repeatedly saying, “Todd… Todd… Todd…” but didn’t do anything to really stop the attack.
+
+Rob shouted again, “Todd!” and then he completely disengaged and physically pulled back. Mary stood there drunkenly laughing but not much else. Nobody really did or said anything more. The laughing stopped and then everyone broke off from the group. Todd said nothing and headed outside to smoke in the stairwell as he usually did. Mary stood around slowly coming back to normal and John did not much of anything.
+
+Things calmed down but the crazy incident was just as quickly forgotten as it happened.
+
+John and Maria left and Rob and I went back to work.
 
 ***
 
