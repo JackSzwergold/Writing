@@ -8,7 +8,11 @@ I think it was fall or winter, but I remember it was dark and I was working late
 
 Three of the old school writers—Todd, Maria and John—were done wrapping up their writing and miscellaneous bullshit and such and were getting ready to head out to Nick’s bar down the street to get a few beers and some food.
 
-After an hour or so, Todd, Maria And John come back from Nick’s bar on State Street. Everyone was creaky drunk but not completely incoherent.
+“You sure you don’t want to go?” one of them asked me and then asked Rob. I politely declined and they headed out.
+
+***
+
+After an hour or so the three of them came back from Nick’s and everyone was clearly drunk but not completely incoherent. More like pleasantly buzzed.
 
 The three of them head over to where Rob and I are and drunkly say hello. I wave, put my headphones back on and get back to work. They shift over to Rob’s office and joke about him not going out to drink, “I mean Jews don’t drink, right?” Todd says in a jokey menacing way shifting his eyes to me and Rob while he said it.
 
