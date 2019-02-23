@@ -18,9 +18,8 @@ The three of them stumbled into the office, headed over to where the offices Rob
 
 I stopped what I was doing, politely smiled and waved at them, put my headphones back on and then quickly got back to work. They then shifted their drunken welcome wagon over to Rob’s office, greeted him as they did me but then started to give him drunkn grief about him not going out to drink with them.
 
-Within seconds of them saying Rob should drink more, Todd blurted out, “I mean Jews don’t drink, right?”
+Within seconds of them saying Rob should drink more, Todd blurted out, “I mean Jews don’t drink, right?” He did it in the same jokey—yet menacing—way all of the stupid passive-aggresive nonsense came out of him. I looked at him, let the wind of that bullshit pass over me and then was ready to go back to work when his eyes shifted to me
 
-in a jokey menacing way shifting his eyes to me and Rob while he said it.
 
 I smirked, took a deep breath and went back to work.
 
