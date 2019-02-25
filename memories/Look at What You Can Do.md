@@ -34,7 +34,7 @@ Rob shouted again, “Todd!” and then he completely disengaged and physically 
 
 Things calmed down but the crazy incident was just as quickly forgotten as it happened. Nobody was really verbal in the post-attack moments.
 
-John and Maria left and Rob and I went back to work. I finished my work up and left.
+John and Nadia left and Rob and I went back to work. I finished my work up and left.
 
 “Goodnight Rob,” I said as I walked to the exit. He waved and went back to his work. I headed to the elevator, headed outside and headed back home.
 
