@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-It was a spring or summerish day in the late 1990s. I would guess it was 1999 or so.
+It was a spring or summerish day in the late 1990s. I would guess it was 1999 or so. And for the record, all of this happened over the span of 15 to 20 minutes or so; so hey.
 
 I was working my day at the wacky weekly newspaper place and found out a former staffer (Danny) was visiting.
 
@@ -82,7 +82,9 @@ With that recovered data on a floppy disk I walked outside into the hallway, smi
 
 Walked past him, straight into the writer’s office, popped the floppy into disk into the Todd’s computer, copied the file to his desktop, opened it up in Word and called him over.
 
-He sat down and I headed out into the hallway.
+He sat down and I headed out into the hallway to talk to others.
+
+
 
 ***
 
