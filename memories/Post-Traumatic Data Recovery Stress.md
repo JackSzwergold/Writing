@@ -53,7 +53,7 @@ I dead-stared at him, looked at the computer and unplugged it.
 
 “Let me do this Todd,” I said as I walked past him, past Danny and back to the pile of software in the production office, found a data recovery CD-Rom and headed back into the writer’s office.
 
-As I sat down, Danny and Todd were glowering at me. Neither one even saying one positive thing about these efforts. But at least they were quiet and not getting in the way of things.
+As I sat down, Danny and Todd were glowering at me as if I wasn’t working fast enough. Neither one even saying one positive thing about these efforts or showing enough basic humility to walk away. But at least they were quiet and not getting in the way of things.
 
 ***
 
