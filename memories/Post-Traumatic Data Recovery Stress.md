@@ -18,6 +18,10 @@ I said “Hello.” And he was fairly cold, “Oh, I know you…” he said in a
 
 He walked passed me, down the small hallway in the office and headed into the writer’s room where he was all smiles, laughs and warmly greeting old co-workers.
 
+I went back to work doing whatever. At the time I was either putting together pizza and beer ads or working on something on the publication’s website.
+
+It was a bright and sunny afternoon and—as dumpy as the office I was in was like—there was at least a nice view down Main Street of the sunset over the town.
+
 ***
 
 *Post-Traumatic Data Recovery Stress (c) Copyright by Jack Szwergold; written on March 2, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
