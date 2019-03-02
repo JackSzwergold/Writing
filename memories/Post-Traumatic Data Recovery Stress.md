@@ -92,8 +92,13 @@ I pushed back and pushed back and shouted, “Todd! Todd! Todd!” It seemed to 
 
 Nobody attempted to pull Todd off of me as we both slammed into the reception counter in the hallway, but after a while I managed to shove Todd away from me.
 
-As he took a few steps back towards the entrance to the place, he was giddly smiling and giggling saying, “Thanks Jack! Thanks Jack!” repeatedly. Danny looked at us and said nothing as he held the door open for Todd to let him out
+As he took a few steps back towards the entrance to the place, he was giddly smiling, giggling and saying, “Thanks Jack! Thanks Jack!” repeatedly. Danny looked at me stone-faced and said nothing as he held the door open for Todd.
 
+Soon Todd was through the doorway, the door closed and they were gone. Utterly nobody said anything or even asked “Are you okay.”
+
+After a beat or two, everyone went back to where their offices or headed out.
+
+I headed back to the my office, grabbed my stuff, headed out and waited for the elevator. After a while I decided to head to one of the stairwells that let’s out in the back of the building, ran down the stairs and headed out into the street and headed back home.
 
 ***
 
