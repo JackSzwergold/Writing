@@ -83,11 +83,13 @@ With that recovered data on a floppy disk I walked outside into the hallway, smi
 
 I walked past him, straight into the writer’s office, popped the floppy into disk into the Todd’s computer, copied the file to his desktop, opened it up in Word and called him over.
 
-As Todd sat down, I headed out into the hallway to talk to others.
+As Todd sat down, I headed out into the hallway to talk to others and things seemed calm and good.
 
 After a while Todd screamed in joy, “You did! Jack did it!” and ran out into the hallway.
 
-This was a great moment while it lasted as I basked in the idea that Todd could be respectful and nice for once. And in hot second a happy thing turned to garbage as Todd ran to me, broke past that personal space bubble we all had, grabbed me aggressively at the waist, grabbed the back of my head and tried to kiss me full open mouthed.
+This was a great moment while it lasted.
+
+For a few measly seconds, I basked in the glow of the concept that Todd could be respectful and nice to someone for once. And after a few measly seconds past, a happy thing turned to garbage as Todd ran to me, broke past that small personal space area we all have, grabbed me aggressively at the waist, grabbed the back of my head and tried to kiss me full open mouthed.
 
 I pushed back and pushed back and shouted, “Todd! Todd! Todd!” It seemed to go on forever but had to be about 7 seconds in hell. As I struggled some people laughed while others shouted, “Todd, stop! Todd, stop!”
 
