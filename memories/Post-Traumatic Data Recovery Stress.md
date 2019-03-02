@@ -60,7 +60,9 @@ After a few minutes of scanning the disk a few files popped up. One of them was 
 
 I found a floppy disk on Todd’s desk, stuck it in and saved what could.
 
-Todd ran over to me all crazy eyed and s
+Todd ran over to me all crazy eyed, grabbed the disk and said, “Give it to me!”
+
+I phsyically pushed him back and said “Wait, Todd,” I still 
 
 ***
 
