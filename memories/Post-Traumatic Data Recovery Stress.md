@@ -48,6 +48,12 @@ I dead-stared at him, looked at the computer and unplugged it.
 
 “Why did you do that!” he screamed and I responded, “Your best bet at data recovery now is simply unplugging the machine, booting up with a data recover tool and hope fragments of the file are still around.”
 
+“But why did you do that?!?!” He started to blurt at me; shaking all the while.
+
+“Let me do this Todd,” I said as I walked past him, past Danny and back to the pile of software in the production office, found a data recovery CD-Rom and headed back into his office.
+
+As I sat down, Danny and Todd were glowering at me. Neither one even saying one positive thing
+
 ***
 
 *Post-Traumatic Data Recovery Stress (c) Copyright by Jack Szwergold; written on March 2, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
