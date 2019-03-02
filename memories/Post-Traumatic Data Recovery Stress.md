@@ -1,4 +1,5 @@
 ## Post-Traumatic Data Recovery Stress
+### About a Co-worker Who Abused Me After I Helped Him Out
 
 By Jack Szwergold
 
@@ -8,13 +9,13 @@ I was working my day at the wacky weekly newspaper place and found out a former 
 
 Danny was a writer and editor in the pre-fame days of the wacky weekly newspaper when it was mainly a college focused beer and pizza rag with jokes to match. Nowadays the newspaper still thrived off of ad revenue from pizza and beer places but the content was far more sophisticated and focused to a national audience.
 
-But that is no disrespect to Danny: He is the one who pioneered a more interesting kind of content in the publication and should be considered a founding editor moreso than others who have been given more credit than due in the publication’s later years.
+But that is no disrespect to Danny: He is the one who pioneered a more interesting kind of content in the publication and should be considered a founding editor more-so than others who have been given more credit than due in the publication’s later years.
 
-But anyway, I’m digressing. Danny was visiting the publication again after leaving it in the context of a (justifable) rage quit a few years before.
+But anyway, I’m digressing. Danny was visiting the publication again after leaving it in the context of a (justifiable) rage quit a few years before.
 
 I barely knew him, but others knew him and the visit was a big deal.
 
-I said “Hello.” And he was fairly cold, “Oh, I know you…” he said in an aggresively passive aggresive way. There was a constant simmering hostility between old staff and new and there’s not much that could be done other than grin and bear it adn just let it pass.
+I said “Hello.” And he was fairly cold, “Oh, I know you…” he said in an aggressively passive aggressive way. There was a constant simmering hostility between old staff and new and there’s not much that could be done other than grin and bear it and just let it pass.
 
 He walked passed me, down the small hallway in the office and headed into the writer’s room where he was all smiles, laughs and warmly greeting old co-workers.
 
@@ -30,7 +31,7 @@ A few hours later I was winding down and ready to go home. I was bullshitting wi
 
 By this time in the history of the publication, the egos were getting quite ripe. Newfound fame thanks to the Internet had made big fish in a small pond even bigger fish in the same small pond. Which made things awkward at times.
 
-I still wrote now and then, but stopped writing regularly for them when the ego stew started to boil over. In fact Todd and I had many idiotic passive aggresive conflicts based on not much more than petite issues such as him being a dellusional mental case and also me continually refusing his sexual advances despite. Should I also mention he was homophobic and would routinely harass people by shouting, “He’s gay!” And bullshit like that.
+I still wrote now and then, but stopped writing regularly for them when the ego stew started to boil over. In fact Todd and I had many idiotic passive aggressive conflicts based on not much more than petite issues such as him being a delusional mental case and also me continually refusing his sexual advances despite. Should I also mention he was homophobic and would routinely harass people by shouting, “He’s gay!” And bullshit like that.
 
 ***
 
@@ -42,7 +43,7 @@ I sat down to look. It was one of those old dumpy all-in-one PowerMac G3 machine
 
 While I was poking around the system, Todd was kneeling next to me rambling on and on. I wanted to ask him to give me some space, but when Todd acted like this there was little that could be done to stop him.
 
-Danny came into the writer’s room looking for Todd. “So we’re going to Nick’s. You coming?” And then Todd responded aggressively, “Jack needs to recover my file and then I can go.” Then he turned to look at me and blureted, “Do it Jack!” 
+Danny came into the writer’s room looking for Todd. “So we’re going to Nick’s. You coming?” And then Todd responded aggressively, “Jack needs to recover my file and then I can go.” Then he turned to look at me and blurted, “Do it Jack!” 
 
 I dead-stared at him, looked at the computer and unplugged it.
 
@@ -62,7 +63,7 @@ I found a floppy disk on Todd’s desk, stuck it in and saved what could.
 
 Todd ran over to me all crazy eyed, grabbed the disk and said, “Give it to me!”
 
-I phsyically pushed him back and said “Wait, Todd. I still need to do something.” And walked past him.
+I physically pushed him back and said “Wait, Todd. I still need to do something.” And walked past him.
 
 “What do you have to do Jack! What do you have to do Jack!” he shouted, standing in the hallway with Danny and some other writers and staff looking on.
 
@@ -86,19 +87,19 @@ As Todd sat down, I headed out into the hallway to talk to others.
 
 After a while Todd screamed in joy, “You did! Jack did it!” and ran out into the hallway.
 
-This was a great moment while it lasted as I basked in the idea that Todd could be respectful and nice for once. And in hot second a happy thing turned to garbage as Todd ran to me, broke past that personal space bubble we all had, grabbed me aggresively at the waist, grabbed the back of my head and tried to kiss me full open mouthed.
+This was a great moment while it lasted as I basked in the idea that Todd could be respectful and nice for once. And in hot second a happy thing turned to garbage as Todd ran to me, broke past that personal space bubble we all had, grabbed me aggressively at the waist, grabbed the back of my head and tried to kiss me full open mouthed.
 
 I pushed back and pushed back and shouted, “Todd! Todd! Todd!” It seemed to go on forever but had to be about 7 seconds in hell. As I struggled some people laughed while others shouted, “Todd, stop! Todd, stop!”
 
 Nobody attempted to pull Todd off of me as we both slammed into the reception counter in the hallway, but after a while I managed to shove Todd away from me.
 
-As he took a few steps back towards the entrance to the place, he was giddly smiling, giggling and saying, “Thanks Jack! Thanks Jack!” repeatedly. Danny looked at me stone-faced and said nothing as he held the door open for Todd.
+As he took a few steps back towards the entrance to the place, he was giddily smiling, giggling and saying, “Thanks Jack! Thanks Jack!” repeatedly. Danny looked at me stone-faced and said nothing as he held the door open for Todd.
 
 Soon Todd was through the doorway, the door closed and they were gone. Utterly nobody said anything or even asked “Are you okay.”
 
 After a beat or two, everyone went back to where their offices or headed out.
 
-I headed back to the my office, grabbed my stuff, headed out and waited for the elevator. After a while I decided to head to one of the stairwells that let’s out in the back of the building, ran down the stairs and headed out into the street and headed back home.
+I headed back to the my office, grabbed my stuff, headed out and waited for the elevator. After a while I decided to head to one of the stairwells that let out towards the back of the building, ran down the stairs and headed out into the street and headed back home.
 
 ***
 
