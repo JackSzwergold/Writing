@@ -72,7 +72,9 @@ I phsyically pushed him back and said “Wait, Todd. I still need to do somethin
 
 He nodded, let me pass him and I sat down at my desk and worked on the file.
 
-All I really had to do was open it up in a text editor save it in a text file and, et viola… Recovered data! I mean happily this was a piece of writing so it was easy enough to separate the text from the crap. And soon enough I had something that looked like 70% of a recovered text file that was worth passing onto Todd.
+All I really had to do was open it up in a text editor save it in a text file and, et viola… Recovered data!
+
+I mean, at least this damaged Word file was basically just a pile of text so it was easy enough to separate the text from the crap. And soon enough I had something that looked like 70% of a recovered text file that was worth passing onto Todd.
 
 
 ***
