@@ -50,9 +50,13 @@ I dead-stared at him, looked at the computer and unplugged it.
 
 “But why did you do that?!?!” He started to blurt at me; shaking all the while.
 
-“Let me do this Todd,” I said as I walked past him, past Danny and back to the pile of software in the production office, found a data recovery CD-Rom and headed back into his office.
+“Let me do this Todd,” I said as I walked past him, past Danny and back to the pile of software in the production office, found a data recovery CD-Rom and headed back into the writer’s office.
 
-As I sat down, Danny and Todd were glowering at me. Neither one even saying one positive thing
+As I sat down, Danny and Todd were glowering at me. Neither one even saying one positive thing about these efforts. But at least they were quiet and not getting in the way of things.
+
+***
+
+After a few minutes
 
 ***
 
