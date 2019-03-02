@@ -35,11 +35,11 @@ I still wrote now and then, but stopped writing regularly for them when the ego 
 
 ***
 
-Anyway, Todd dragged me back to his office and started rambling incoherently about losing a Word document on his hard drive and how he spent days writing and was one dadline and now he had nothing and maybe it was a sudden Word crash or something else and could I help him and he knew that if a file was deleted the data might still be on the hard disk and blah, blah, blah, blah, blah, blah, blah…
+Anyway, Todd dragged me back to his office and started rambling incoherently about losing a Word document on his hard drive and how he spent days writing and was one deadline and now he had nothing and maybe it was a sudden Word crash or something else and could I help him and he knew that if a file was deleted the data might still be on the hard disk and blah, blah, blah, blah, blah, blah, blah…
 
-I nodded and waited for a pause in his rambling and then said, “Let me sit down and look.”
+I nodded and nodded and waited for a pause in his rambling and then said, “Let me sit down and look.”
 
-I sat down to look. It was one of those old dumpy all-in-one PowerMac G3 machines; not an iMac but just an awkward whale of a computer with a concave CRT monitor.
+I sat down to look and see what I could see. It was one of those old dumpy all-in-one PowerMac G3 machines; not an iMac but just an awkward grey bloated whale of a computer with a concave CRT monitor that was made for some odd reason at the time.
 
 While I was poking around the system, Todd was kneeling next to me rambling on and on. I wanted to ask him to give me some space, but when Todd acted like this there was little that could be done to stop him.
 
