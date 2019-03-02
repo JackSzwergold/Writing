@@ -63,7 +63,7 @@ I found a floppy disk on Todd’s desk, stuck it in and saved what could.
 
 Todd ran over to me all crazy eyed, grabbed the hand I was holding the disk in and said, “Give it to me!”
 
-I physically pushed him back and said “Wait, Todd. I still need to do something.” And walked past him.
+I physically pushed him back and said “Wait, Todd. I still need to do something.” And walked past him to get back to my office.
 
 “What do you have to do Jack! What do you have to do Jack!” he shouted, standing in the hallway with Danny and some other writers and staff looking on.
 
