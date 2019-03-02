@@ -31,7 +31,7 @@ A few hours later I was winding down and ready to go home. I was bullshitting wi
 
 By this time in the history of the publication, the egos were getting quite ripe. Newfound fame—thanks to their raised Internet pressence—had made big fish in a small pond even bigger fish in the same small pond. Which made things awkward at times.
 
-I still wrote now and then, but stopped writing regularly for them when the ego stew started to boil over. In fact Todd and I had many idiotic passive aggressive conflicts based on not much more than petit issues such as him being a delusional mental case and asshole and also me continually refusing his utterly unwanted sexual advances. Should I also mention he was homophobic and would routinely harass people by shouting, “He’s gay!” And bullshit like that.
+I still wrote now and then, but stopped writing regularly for them when the ego stew started to boil over. In fact Todd and I had many idiotic passive aggressive conflicts based on not much more than petit issues such as him being a delusional mental case and asshole and also me continually refusing his utterly unwanted sexual advances. Should I also mention he was homophobic and would routinely harass people by shouting, “He’s gay!” And bullshit like that? Well I just did so there!
 
 ***
 
