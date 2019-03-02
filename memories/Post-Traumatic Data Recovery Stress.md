@@ -29,7 +29,7 @@ A few hours later I was winding down and ready to go home. I was bullshitting wi
 
 “Jack! You have to help!” I looked at him, looked at my co-workers, they turned around and got back to getting ready to go home and I stood up and followed Todd back to his desk.
 
-By this time in the history of the publication, the egos were getting quite ripe. Newfound fame thanks to the Internet had made big fish in a small pond even bigger fish in the same small pond. Which made things awkward at times.
+By this time in the history of the publication, the egos were getting quite ripe. Newfound fame—thanks to their raised Internet pressence—had made big fish in a small pond even bigger fish in the same small pond. Which made things awkward at times.
 
 I still wrote now and then, but stopped writing regularly for them when the ego stew started to boil over. In fact Todd and I had many idiotic passive aggressive conflicts based on not much more than petite issues such as him being a delusional mental case and also me continually refusing his sexual advances despite. Should I also mention he was homophobic and would routinely harass people by shouting, “He’s gay!” And bullshit like that.
 
