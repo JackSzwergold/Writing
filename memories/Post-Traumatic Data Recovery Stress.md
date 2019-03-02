@@ -88,7 +88,7 @@ After a while Todd screamed in joy, “You did! Jack did it!” and ran out into
 
 This was a great moment while it lasted as I basked in the idea that Todd could be respectful and nice for once. And in hot second a happy thing turned to garbage as Todd ran to me, broke past that personal space bubble we all had, grabbed me aggresively at the waist, grabbed the back of my head and tried to kiss me full open mouthed.
 
-I pushed back and pushed back and shouted, “Todd! Todd! Todd!”
+I pushed back and pushed back and shouted, “Todd! Todd! Todd!” It seemed to go on forever but had to be about 7 seconds in hell. As I struggled some people laughed while others shouted, “Todd, stop! Todd, stop!”
 
 
 ***
