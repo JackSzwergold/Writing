@@ -89,9 +89,9 @@ After a while Todd screamed in joy, “You did! Jack did it!” and ran out into
 
 This was a great moment while it lasted.
 
-For a few measly seconds, I basked in the glow of the concept that Todd could be respectful and nice to someone for once. And after a few measly seconds past, a happy thing turned to garbage as Todd ran to me, broke past that small personal space area we all have, grabbed me aggressively at the waist, grabbed the back of my head and tried to kiss me full open mouthed.
+For a few measly seconds, I basked in the glow of the concept that Todd could be respectful and nice to someone for once. And after a few measly seconds past, a happy thing turned to garbage as Todd ran to me, broke past that small personal space area we all have, grabbed me aggressively at the waist with one hand, grabbed the back of my head with his other hand and tried to kiss me full open mouthed.
 
-I pushed back and pushed back and shouted, “Todd! Todd! Todd!” It seemed to go on forever but had to be about 7 seconds in hell. As I struggled some people laughed while others shouted, “Todd, stop! Todd, stop!”
+I pushed and pushed and shouted, “Todd! Todd! Todd!” It seemed to go on forever but it had to be about 7 seconds in hell. As I struggled some people laughed while others shouted, “Todd, stop! Todd, stop!”
 
 Nobody attempted to pull Todd off of me as we both slammed into the reception counter in the hallway, but after a while I managed to shove Todd away from me.
 
