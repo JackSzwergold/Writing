@@ -24,7 +24,9 @@ It was a bright and sunny afternoon and—as dumpy as the office I was in was li
 
 ***
 
-A few hours later I was winding down and ready to go home. I was bullshitting with some co-workers in the design department when suddenly Tod ran into the office.
+A few hours later I was winding down and ready to go home. I was bullshitting with some co-workers in the design department when suddenly Todd ran into the office.
+
+“Jack! You have to help!” I looked at him, looked at my co-workers, they turned around and got back to their work
 
 ***
 
