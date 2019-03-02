@@ -35,7 +35,7 @@ I still wrote now and then, but stopped writing regularly for them when the ego 
 
 ***
 
-Anyway, Todd dragged me back to his office and started rambling incoherently about losing a Word document on hard drive and how he spent days writing and now he had nothing and maybe it was a sudden Word crash or something else and could I help him and he knew that if a file was deleted the data might still be on the hard disk and blah, blah, blah, blah, blah, blah, blah…
+Anyway, Todd dragged me back to his office and started rambling incoherently about losing a Word document on his hard drive and how he spent days writing and was one dadline and now he had nothing and maybe it was a sudden Word crash or something else and could I help him and he knew that if a file was deleted the data might still be on the hard disk and blah, blah, blah, blah, blah, blah, blah…
 
 I nodded and waited for a pause in his rambling and then said, “Let me sit down and look.”
 
