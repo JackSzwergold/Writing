@@ -90,6 +90,10 @@ This was a great moment while it lasted as I basked in the idea that Todd could 
 
 I pushed back and pushed back and shouted, “Todd! Todd! Todd!” It seemed to go on forever but had to be about 7 seconds in hell. As I struggled some people laughed while others shouted, “Todd, stop! Todd, stop!”
 
+Nobody attempted to pull Todd off of me as we both slammed into the reception counter in the hallway, but after a while I managed to shove Todd away from me.
+
+As he took a few steps back towards the entrance to the place, he was giddly smiling and giggling saying, “Thanks Jack! Thanks Jack!” repeatedly 
+
 
 ***
 
