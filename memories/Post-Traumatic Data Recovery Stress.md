@@ -76,6 +76,8 @@ All I really had to do was open it up in a text editor save it in a text file an
 
 I mean, at least this damaged Word file was basically just a pile of text so it was easy enough to separate 70% text the text that was readable from the damaged data crazy character crap.
 
+With that recovered data on a floppy disk I walked outside into the hallway, showed Todd the floppy disk
+
 ***
 
 *Post-Traumatic Data Recovery Stress (c) Copyright by Jack Szwergold; written on March 2, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
