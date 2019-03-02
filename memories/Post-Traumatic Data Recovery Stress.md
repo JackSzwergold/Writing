@@ -26,7 +26,11 @@ It was a bright and sunny afternoon and—as dumpy as the office I was in was li
 
 A few hours later I was winding down and ready to go home. I was bullshitting with some co-workers in the design department when suddenly Todd ran into the office.
 
-“Jack! You have to help!” I looked at him, looked at my co-workers, they turned around and got back to their work
+“Jack! You have to help!” I looked at him, looked at my co-workers, they turned around and got back to getting ready to go home and I stood up and followed Todd back to his desk.
+
+By this time in the history of the publication, the egos were getting quite ripe. Newfound fame thanks to the Internet had made big fish in a small pond even bigger fish in the same small pond. Which made things awkward at times.
+
+I still wrote now and then, but stopped writing regularly for them when the ego stew started to boil over. In fact Todd and I had many idiotic passive aggresive conflicts based on not much more than petite 
 
 ***
 
