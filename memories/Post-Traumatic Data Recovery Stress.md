@@ -82,7 +82,11 @@ With that recovered data on a floppy disk I walked outside into the hallway, smi
 
 Walked past him, straight into the writer’s office, popped the floppy into disk into the Todd’s computer, copied the file to his desktop, opened it up in Word and called him over.
 
-He sat down and I headed out into the hallway to talk to others.
+As Todd sat down, I headed out into the hallway to talk to others.
+
+After a while Todd screamed in joy, “You did! Jack did it!” and ran out into the hallway.
+
+This was a great moment while it lasted as I basked in the idea that Todd could be respectful and nice for once. And in hot 
 
 
 
