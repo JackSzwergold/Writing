@@ -42,7 +42,11 @@ I sat down to look. It was one of those old dumpy all-in-one PowerMac G3 machine
 
 While I was poking around the system, Todd was kneeling next to me rambling on and on. I wanted to ask him to give me some space, but when Todd acted like this there was little that could be done to stop him.
 
-Danny came into the writer’s room looking for Todd
+Danny came into the writer’s room looking for Todd. “So we’re going to Nick’s. You coming?” And then Todd responded aggressively, “Jack needs to recover my file and then I can go.” Then he turned to look at me and blureted, “Do it Jack!” 
+
+I dead-stared at him, looked at the computer and unplugged it.
+
+“Why did you do that!” he screamed and I responded, “Your best bet at data recovery now is simply unplugging the machine, booting up with a data recover tool and hope fragments of the file are still around.”
 
 ***
 
