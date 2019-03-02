@@ -29,7 +29,7 @@ A few hours later I was winding down and ready to go home. I was bullshitting wi
 
 “Jack! You have to help!” I looked at him, looked at my co-workers, they turned around and got back to getting ready to go home and I stood up and followed Todd back to his desk.
 
-By this time in the history of the publication, the egos were getting quite ripe. Newfound fame—thanks to their raised Internet pressence—had made big fish in a small pond even bigger fish in the same small pond. Which made things awkward at times.
+By this time in the history of the publication, the egos were getting quite ripe. Newfound fame—thanks to their raised Internet presence—had made big fish in a small pond even bigger fish in the same small pond. Which made things awkward at times.
 
 I still wrote now and then, but stopped writing regularly for them when the ego stew started to boil over. In fact Todd and I had many idiotic passive aggressive conflicts based on not much more than petit issues such as him being a delusional mental case and asshole and also me continually refusing his utterly unwanted sexual advances. Should I also mention he was homophobic and would routinely harass people by shouting, “He’s gay!” And bullshit like that? Well I just did so there!
 
@@ -101,9 +101,9 @@ Soon Todd was through the doorway, Danny let go of the door and followed him and
 
 After a beat or two, everyone went back to where their offices or headed out to the hallway as well to head home.
 
-I headed back to the my office, stood silently looking at the orange glow of the sunset for a few seconds, then grabbed my stuff, headed out of the office and waited for the elevator. After a while I decided it was better to head to one of the rear stairwells that let out to a sidestreet near the back of the building and didn’t let out into the main lobby where I might run into Todd.
+I headed back to the my office, stood silently looking at the orange glow of the sunset for a few seconds, then grabbed my stuff, headed out of the office and waited for the elevator. After a while I decided it was better to head to one of the rear stairwells that let out to a side-street near the back of the building and didn’t let out into the main lobby where I might run into Todd.
 
-I ran down those stairs, headed out into the street and headed back home. All I remember of the walk back home was me leaving the buiding and then suddenly me being back in my apartment… Laying down and staring at the ceiling.
+I ran down those stairs, headed out into the street and headed back home. All I remember of the walk back home was me leaving the building and then suddenly me being back in my apartment… Laying down and staring at the ceiling.
 
 ***
 
