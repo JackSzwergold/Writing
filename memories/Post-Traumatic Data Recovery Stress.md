@@ -13,7 +13,7 @@ But that is no disrespect to Danny: He is the one who pioneered a more interesti
 
 But anyway, I’m digressing, so back on topic: Danny was visiting the publication again after leaving it in the context of a (justifiable) rage quit a few years before.
 
-I barely knew him, but others knew him and the visit was a big deal.
+I barely knew Danny, but others knew him and the visit was a big deal.
 
 I said “Hello.” And he was fairly cold, “Oh, I know you…” he said in an aggressively passive aggressive way. There was a constant simmering hostility between old staff and new and there’s not much that could be done other than grin and bear it and just let it pass.
 
