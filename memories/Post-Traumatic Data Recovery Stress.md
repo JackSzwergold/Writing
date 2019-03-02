@@ -17,9 +17,9 @@ I barely knew Danny, but others knew him and the visit was a big deal.
 
 I said “Hello.” And he was fairly cold, “Oh, I know you…” he said in an aggressively passive aggressive way. There was a constant simmering hostility between old staff and new and there’s not much that could be done other than grin and bear it and just let it pass.
 
-He walked passed me, down the small hallway in the office and headed into the writer’s room where he was all smiles, laughs and warmly greeting old co-workers.
+He walked passed me, down the office’s small hallway and headed into the writer’s room where he was all smiles, laughs and warmly greeting old co-workers.
 
-I went back to work doing whatever. At the time I was either putting together pizza and beer ads or working on something on the publication’s website.
+I went back to work doing whatever I was doing. And at the time I was either putting together pizza and beer ads or working on something on the publication’s website.
 
 It was a bright and sunny afternoon and—as dumpy as the office I was in was like—there was at least a nice view down Main Street of the sunset over the town.
 
