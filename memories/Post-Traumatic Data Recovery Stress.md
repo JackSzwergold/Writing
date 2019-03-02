@@ -11,7 +11,7 @@ Danny was a writer and editor in the pre-fame days of the wacky weekly newspaper
 
 But that is no disrespect to Danny: He is the one who pioneered a more interesting kind of content focus for the publication and should be considered a founding editor more-so than others who have stolen more credit than due in the publication’s later years.
 
-But anyway, I’m digressing. Danny was visiting the publication again after leaving it in the context of a (justifiable) rage quit a few years before.
+But anyway, I’m digressing, so back on topic: Danny was visiting the publication again after leaving it in the context of a (justifiable) rage quit a few years before.
 
 I barely knew him, but others knew him and the visit was a big deal.
 
