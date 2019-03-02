@@ -24,4 +24,8 @@ It was a bright and sunny afternoon and—as dumpy as the office I was in was li
 
 ***
 
+A few hours later I was winding down and ready to go home. I was bullshitting with some co-workers in the design department when suddenly Tod ran into the office.
+
+***
+
 *Post-Traumatic Data Recovery Stress (c) Copyright by Jack Szwergold; written on March 2, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
