@@ -73,15 +73,15 @@ I physically pushed him back and said “Wait, Todd. I still need to do somethin
 
 He nodded, let me pass him and I sat down at my desk and worked on the file.
 
-All I really had to do was open it up in a text editor save it in a text file and, et viola… Recovered data!
+All I really had to do was open it up in a text editor save it in a text file and, et voilà… Recovered data!
 
-I mean, at least this damaged Word file was basically just a pile of text so it was easy enough to separate 70% text the text that was readable from the damaged data crazy character crap.
+I mean, at least this damaged Word file was basically just a pile of text so it was easy enough to separate 70% of the text that was readable from the damaged data crazy character crap.
 
 With that recovered data on a floppy disk I walked outside into the hallway, smiled and waved the floppy disk at Todd and said, “Not 100% but it’s something!”
 
 ***
 
-Walked past him, straight into the writer’s office, popped the floppy into disk into the Todd’s computer, copied the file to his desktop, opened it up in Word and called him over.
+I walked past him, straight into the writer’s office, popped the floppy into disk into the Todd’s computer, copied the file to his desktop, opened it up in Word and called him over.
 
 As Todd sat down, I headed out into the hallway to talk to others.
 
