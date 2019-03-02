@@ -92,7 +92,7 @@ I pushed back and pushed back and shouted, “Todd! Todd! Todd!” It seemed to 
 
 Nobody attempted to pull Todd off of me as we both slammed into the reception counter in the hallway, but after a while I managed to shove Todd away from me.
 
-As he took a few steps back towards the entrance to the place, he was giddly smiling and giggling saying, “Thanks Jack! Thanks Jack!” repeatedly 
+As he took a few steps back towards the entrance to the place, he was giddly smiling and giggling saying, “Thanks Jack! Thanks Jack!” repeatedly. Danny looked at us and said nothing as he held the door open for Todd to let him out
 
 
 ***
