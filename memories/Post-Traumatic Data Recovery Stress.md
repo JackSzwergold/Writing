@@ -56,7 +56,9 @@ As I sat down, Danny and Todd were glowering at me. Neither one even saying one 
 
 ***
 
-After a few minutes
+After a few minutes of scanning the disk a few files popped up. One of them was the trashed file. It was not fully recoverable, but since it was a text file something of some sort could be pulled off the disk.
+
+I found a floppy disk on Todd’s desk, stuck in it
 
 ***
 
