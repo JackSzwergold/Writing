@@ -86,8 +86,7 @@ As Todd sat down, I headed out into the hallway to talk to others.
 
 After a while Todd screamed in joy, “You did! Jack did it!” and ran out into the hallway.
 
-This was a great moment while it lasted as I basked in the idea that Todd could be respectful and nice for once. And in hot 
-
+This was a great moment while it lasted as I basked in the idea that Todd could be respectful and nice for once. And in hot second a happy thing turned to garbage as Todd ran to me, broke past that personal space bubble we all had, grabbed me aggresively at the waist
 
 
 ***
