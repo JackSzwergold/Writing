@@ -64,7 +64,9 @@ Todd ran over to me all crazy eyed, grabbed the disk and said, “Give it to me!
 
 I phsyically pushed him back and said “Wait, Todd. I still need to do something.” And walked past him.
 
-“What do you have to do Jack! What do you have to do Jack!”
+“What do you have to do Jack! What do you have to do Jack!” he shouted, standing in the hallway with Danny and some other writers and staff looking on.
+
+
 
 ***
 
