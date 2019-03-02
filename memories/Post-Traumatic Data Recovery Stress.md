@@ -95,13 +95,15 @@ I pushed and pushed and shouted, “Todd! Todd! Todd!” It seemed to go on fore
 
 Nobody attempted to pull Todd off of me as we both slammed into the reception counter in the hallway, but after a while I managed to shove Todd away from me.
 
-As he took a few steps back towards the entrance to the place, he was giddily smiling, giggling and saying, “Thanks Jack! Thanks Jack!” repeatedly. Danny looked at me stone-faced and said nothing as he held the door open for Todd.
+As he took a few steps back away from me, he was giddily smiling, giggling and saying, “Thanks Jack! Thanks Jack!” repeatedly. Danny looked at me stone-faced and said nothing as he held the door open for Todd.
 
-Soon Todd was through the doorway, the door closed and they were gone. Utterly nobody said anything or even asked “Are you okay.”
+Soon Todd was through the doorway, Danny let go of the door and followed him and soon enough they were gone. Utterly nobody said anything or even asked “Are you okay.”
 
-After a beat or two, everyone went back to where their offices or headed out.
+After a beat or two, everyone went back to where their offices or headed out to the hallway as well to head home.
 
-I headed back to the my office, grabbed my stuff, headed out and waited for the elevator. After a while I decided to head to one of the stairwells that let out towards the back of the building, ran down the stairs and headed out into the street and headed back home.
+I headed back to the my office, stood silently looking at the orange glow of the sunset for a few seconds, then grabbed my stuff, headed out of the office and waited for the elevator. After a while I decided it was better to head to one of the rear stairwells that let out to a sidestreet near the back of the building and didn’t let out into the main lobby where I might run into Todd.
+
+I ran down those stairs, headed out into the street and headed back home. All I remember of the walk back home was me leaving the buiding and then suddenly me being back in my apartment… Laying down and staring at the ceiling.
 
 ***
 
