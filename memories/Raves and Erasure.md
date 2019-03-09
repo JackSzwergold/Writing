@@ -12,11 +12,11 @@ He worked for some WASPy, slimy guy named Hank or Howard or something. The guy l
  
 Anyway, that paints the picture of who Pete was to an extent. Another aspect of his persona was he liked going to raves in the 1990s with a friend of all they nicknamed “Big Dumb Dave.”
 
-Dave wasn’t really dumb at all… In fact he was a nice guy. And the most I knew about him at one point was simply that he liked the electro-pop band *Erasure*. I knew this before I even met Dave because Todd (the asshole) always thought that it was funny that Dave liked *Erasure* becuase Todd tagged them as a gay band.
+Dave wasn’t really dumb at all… In fact he was a nice guy. And the most I knew about him at one point was simply that he liked the electro-pop band *Erasure*. I knew this before I even met Dave because Todd (the asshole) always thought that it was funny that Dave liked *Erasure* because Todd tagged them as a gay band.
 
 “Does he know *Erasure*’s a gay band! Maybe he’s gay? Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar giggling all the while. Never mind that Todd was a closet case who liked to paint his nails black and randomly attempt—and sometimes succeed—at sexual assault every now and then; men and women, friends and strangers.
 
-But I digress… Pete and Dave liked to go to raves. Dave—the guy who liked *Erasure*—liked to go to raves and enjoy himself in the music and the scene. Pete tagged along, didn’t really like the music, and wasn’t really into the scene but did like one thing at raves: Grabbing random women dancing around in various states of inebriation and just outright molesting them. We all knew that he did that because Todd—who was obsessed with how people react at “The Bacchanal”—often gossiped about Pete’s conquests as a positive thing. But saying these things were conquests were a bit of a stretch; they were all non-consenual encounters that amounted to assault. And yes, Todd non-ironically referred to parties as “The Bacchanal.”
+But I digress… Pete and Dave liked to go to raves. Dave—the guy who liked *Erasure*—liked to go to raves and enjoy himself in the music and the scene. Pete tagged along, didn’t really like the music, and wasn’t really into the scene but did like one thing at raves: Grabbing random women dancing around in various states of inebriation and just outright molesting them. We all knew that he did that because Todd—who was obsessed with how people react at “The Bacchanal”—often gossiped about Pete’s conquests as a positive thing. But saying these things were conquests were a bit of a stretch; they were all non-consensual encounters that amounted to assault. And yes, Todd non-ironically referred to parties as “The Bacchanal.”
 
 So that’s Pete in a nutshell: Pete liked to go to raves and assault women, Todd considered him a “hero” and a normal guy, and they both routinely harassed Dave for liking *Erasure* because that was “gay.” Tada!
 
@@ -32,11 +32,17 @@ While we all sat around enjoying the night; just drinking and shooting the shit.
 
 After a while, Pete stood up, and walked over to me, dead staring me all the way like some predator.
 
-“Look, this is fun but we have a party in the Lower East Side. You wanna come?” Pete asked in a demanding tone as Tood stood over his shoulder looking to me.
+“Look, this is fun but we have a party in the Lower East Side. You wanna come?” Pete asked in a demanding tone as Todd stood over his shoulder looking to me.
 
+“Yeah… Sure, I guess?” I said as I looked over at the guy whose birthday was celebrating who mutually shrugged and nodded his head as well.
 
+With that we headed outside of the bar on 5th Avenue in Park Slope, hailed two cabs and headed into Manhattan.
 
- I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
+“Don’t worry Jack,” Pete said as we drove away in the cab, “I got it.” Which was an odd thing for him to say; why would paying for a cab require this kind of odd casual financial subordination?
+
+***
+
+I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
 
 Pete was a dick and is a dick. And he liked to go to raves with big dumb Dave.
 
