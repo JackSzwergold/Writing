@@ -8,9 +8,10 @@ Pete and Todd were a couple of assholes.
 
 Pete was a jerk in the college town he lived in and then—like all assholes and jerks—he moved off to New York City to work as some toadie in the world of banking and financing. He himself wasn’t a wheeler and dealer, but he fancied himself a journalist; a shaper of words.
 
-He worked for some WASPy slimy guy named Hank or Howard or something. The guy looked like Howdy Doody and acted like a twitchy kid who drank too much coffee or snorted took much cocaine.
-
-The guy got busted for insider trading or something, was convicted but then ended up back on the street doing what he does. Liked to go to raves with “Big Dumb Dave.” Dave was a nice guy. Liked Erasure. Todd always thought that was funny because Erasure was a “gay” band. “Does he know they’re gay! Maybe he’s gay! Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar.
+He worked for some WASPy, slimy guy named Hank or Howard or something. The guy looked like Howdy Doody and acted like a twitchy kid who drank too much coffee or snorted took much cocaine. The guy got busted for insider trading or something, was busted and convicted but it was a slap on the wrist at best. He ended up back on the street doing what he does.
+ 
+ 
+Liked to go to raves with “Big Dumb Dave.” Dave was a nice guy. Liked Erasure. Todd always thought that was funny because Erasure was a “gay” band. “Does he know they’re gay! Maybe he’s gay! Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar.
 
 Anyway, Pete was—and still is—a pothead bully. I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
 
