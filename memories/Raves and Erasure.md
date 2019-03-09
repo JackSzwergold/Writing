@@ -10,8 +10,9 @@ Pete was a jerk in the college town he lived in and then—like all assholes and
 
 He worked for some WASPy, slimy guy named Hank or Howard or something. The guy looked like Howdy Doody and acted like a twitchy kid who drank too much coffee or snorted took much cocaine. The guy got busted for insider trading or something, was busted and convicted but it was a slap on the wrist at best. He ended up back on the street doing what he does: Writing finance articles and nonsense but this time for a start-up.
  
- 
-Liked to go to raves with “Big Dumb Dave.” Dave was a nice guy. Liked Erasure. Todd always thought that was funny because Erasure was a “gay” band. “Does he know they’re gay! Maybe he’s gay! Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar.
+Anyway, that paints the picture of who Pete was to an extent. Another aspect of his persona was he liked going to raves in the 1990s with a friend of all they nicknamed “Big Dumb Dave.”
+
+Dave was a nice guy. Liked Erasure. Todd always thought that was funny because Erasure was a “gay” band. “Does he know they’re gay! Maybe he’s gay! Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar.
 
 Anyway, Pete was—and still is—a pothead bully. I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
 
