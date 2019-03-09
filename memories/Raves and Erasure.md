@@ -16,7 +16,9 @@ Dave wasn’t really dumb at all… In fact he was a nice guy. And the most I kn
 
 “Does he know *Erasure*’s a gay band! Maybe he’s gay? Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar giggling all the while. Never mind that Todd was a closet case who liked to paint his nails black and randomly attempt—and sometimes succeed—at sexual assault every now and then; men and women, friends and strangers.
 
-But I digress… Pete and Dave liked to go to raves. Dave—the guy who liked *Erasure*—liked to go to raves and enjoy himself in the music and the scene. Pete tagged along, didn’t really like the music, and wasn’t really into the scene but did like one thing at raves: Grabbing random women dancing around in various states of inebriation and just outright molesting them. We all knew that he did that because Todd—who wa obsessed with how people react at “The Bacchanal” 
+But I digress… Pete and Dave liked to go to raves. Dave—the guy who liked *Erasure*—liked to go to raves and enjoy himself in the music and the scene. Pete tagged along, didn’t really like the music, and wasn’t really into the scene but did like one thing at raves: Grabbing random women dancing around in various states of inebriation and just outright molesting them. We all knew that he did that because Todd—who was obsessed with how people react at “The Bacchanal”—often gossiped about Pete’s conquests as a positive thing. But saying these things were conquests were a bit of a stretch; they were all non-consenual encounters that amounted to assault.
+
+So that’s Pete in a nutshell: Pete liked to go to raves and assault women, Todd considered him a “hero” and a normal guy, and they both routinely harassed Dave for liking *Erasure* because that was “gay.” Tada!
 
 ***
 
