@@ -14,9 +14,13 @@ Anyway, that paints the picture of who Pete was to an extent. Another aspect of 
 
 Dave wasn’t really dumb at all… In fact he was a nice guy. And the most I knew about him at one point was simply that he liked the electro-pop band *Erasure*. I knew this before I even met Dave because Todd (the asshole) always thought that it was funny that Dave liked *Erasure* becuase Todd tagged them as a gay band.
 
-“Does he know *Erasure*’s a gay band! Maybe he’s gay? Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar giggling all the while. Never mind that Todd was a closet case who liked to paint his nails black and randomly attempt—and sometimes succeed—at sexual assault every now and then. 
+“Does he know *Erasure*’s a gay band! Maybe he’s gay? Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar giggling all the while. Never mind that Todd was a closet case who liked to paint his nails black and randomly attempt—and sometimes succeed—at sexual assault every now and then; men and women, friends and strangers.
 
-Anyway, Pete was—and still is—a pothead bully. I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
+Anyway, back in the midwest Pete was a bully. And in New York City Pete was still a bully.
+
+I had my first real direct contact with him as we all gathered for a mutual friend’s birthday at a local bar in Park Slope
+
+ I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
 
 Pete was a dick and is a dick. And he liked to go to raves with big dumb Dave.
 
