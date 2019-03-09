@@ -22,7 +22,9 @@ So that’s Pete in a nutshell: Pete liked to go to raves and assault women, Tod
 
 ***
 
-Anyway, back in the midwest Pete was a bully. And in New York City Pete was still a bully.
+Anyway, back in the midwest Pete was a bully. And in New York City Pete was still a bully. The stories of his conquests at raves were more than enough to confirm that fact.
+
+But I had never met him before, until I came back to New York City.
 
 I had my first real direct contact with him as we all gathered for a mutual friend’s birthday at a local bar in Park Slope. Things were low key and fun… Then Todd showed up with Pete not far behind.
 
