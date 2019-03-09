@@ -16,6 +16,8 @@ Dave wasn’t really dumb at all… In fact he was a nice guy. And the most I kn
 
 “Does he know *Erasure*’s a gay band! Maybe he’s gay? Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar giggling all the while. Never mind that Todd was a closet case who liked to paint his nails black and randomly attempt—and sometimes succeed—at sexual assault every now and then; men and women, friends and strangers.
 
+But I digress… Pete and Dave liked to go to raves. Dave—the guy who liked *Erasure*—liked to go to raves and enjoy himself in the music and the scene. Pete tagged along, didn’t really like the music, and wasn’t really into the scene but did like one thing at raves: Grabbing random women dancing around in various states of inebriation and just outright molesting them.
+
 ***
 
 Anyway, back in the midwest Pete was a bully. And in New York City Pete was still a bully.
