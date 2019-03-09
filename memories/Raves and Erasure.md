@@ -12,7 +12,7 @@ He worked for some WASPy, slimy guy named Hank or Howard or something. The guy l
  
 Anyway, that paints the picture of who Pete was to an extent. Another aspect of his persona was he liked going to raves in the 1990s with a friend of all they nicknamed “Big Dumb Dave.”
 
-Dave wasn’t really dumb at all… In fact he was a nice guy. And the most I knew about him at one point was simply that he liked the electro-pop band *Erasure*. I knew this befoere I even met Dave because Todd the asshole always thought that it was funny that Dave liked “Erasure
+Dave wasn’t really dumb at all… In fact he was a nice guy. And the most I knew about him at one point was simply that he liked the electro-pop band *Erasure*. I knew this before I even met Dave because Todd (the asshole) always thought that it was funny that Dave liked *Erasure* becuase Todd tagged them as a gay band.
 
 
  “Does he know they’re gay! Maybe he’s gay! Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar.
