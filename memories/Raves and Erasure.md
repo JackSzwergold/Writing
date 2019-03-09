@@ -16,11 +16,15 @@ Dave wasn’t really dumb at all… In fact he was a nice guy. And the most I kn
 
 “Does he know *Erasure*’s a gay band! Maybe he’s gay? Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar giggling all the while. Never mind that Todd was a closet case who liked to paint his nails black and randomly attempt—and sometimes succeed—at sexual assault every now and then; men and women, friends and strangers.
 
+***
+
 Anyway, back in the midwest Pete was a bully. And in New York City Pete was still a bully.
 
 I had my first real direct contact with him as we all gathered for a mutual friend’s birthday at a local bar in Park Slope. Things were low key and fun… Then Todd showed up with Pete not far behind.
 
-While we all sat around enjoying the night and just drinking and shooting the shit.
+While we all sat around enjoying the night and just drinking and shooting the shit. But Todd and Pete really just talked among themselves and side-eyed us all as we sat there together but separately.
+
+After 
 
  I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
 
