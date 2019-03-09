@@ -24,7 +24,7 @@ I had my first real direct contact with him as we all gathered for a mutual frie
 
 While we all sat around enjoying the night and just drinking and shooting the shit. But Todd and Pete really just talked among themselves and side-eyed us all as we sat there together but separately.
 
-After 
+After a while, Pete stood up, dead staring me all the way like some predator.
 
  I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
 
