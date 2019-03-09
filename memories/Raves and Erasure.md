@@ -26,11 +26,15 @@ Anyway, back in the midwest Pete was a bully. And in New York City Pete was stil
 
 But I had never met him before, until I came back to New York City.
 
-I had my first real direct contact with him as we all gathered for a mutual friend’s birthday at a local bar in Park Slope. Things were low key and fun… Then Todd showed up with Pete not far behind.
+I had my first real direct contact with him as we all gathered for a mutual friend’s birthday at a local bar in Park Slope. Things were low key and fun… Then Todd showed up with Pete not far behind and that changed everything.
 
-While we all sat around enjoying the night and just drinking and shooting the shit. But Todd and Pete really just talked among themselves and side-eyed us all as we sat there together but separately.
+While we all sat around enjoying the night; just drinking and shooting the shit. But Todd and Pete really just talked among themselves and side-eyed us all as we sat there together but separately.
 
-After a while, Pete stood up, dead staring me all the way like some predator.
+After a while, Pete stood up, and walked over to me, dead staring me all the way like some predator.
+
+“Look, this is fun but we have a party in the Lower East Side. You wanna come?” Pete asked in a demanding tone as Tood stood over his shoulder looking to me.
+
+
 
  I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
 
