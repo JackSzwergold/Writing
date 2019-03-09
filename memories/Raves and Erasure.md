@@ -2,11 +2,16 @@
 
 By Jack Szwergold
 
-Peter the asshole. Friend of Todd the asshole. Known as an asshole to all. Worked for some finance guy Hank or Howard or something. The guy got busted for insider trading or something, was convicted but then ended up back on the street doing what he does. Liked to go to raves with “Big Dumb Dave.” Dave was a nice guy. Liked Erasure. Todd always thought that was funny because Erasure was a “gay” band. “Does he know they’re gay! Maybe he’s gay! Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar.
+Petey was an asshole.
 
-Anyway, Peter was—and still is—a pothead bully. I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
+He was a frriend of Todd the asshole. Known as an asshole to all.
 
-Peter was a dick and is a dick. And he liked to go to raves with big dumb Dave.
+
+Worked for some finance guy Hank or Howard or something. The guy got busted for insider trading or something, was convicted but then ended up back on the street doing what he does. Liked to go to raves with “Big Dumb Dave.” Dave was a nice guy. Liked Erasure. Todd always thought that was funny because Erasure was a “gay” band. “Does he know they’re gay! Maybe he’s gay! Big dumb Dave is gay! He’s gay!!!” Todd shouted once at a bar.
+
+Anyway, Petey was—and still is—a pothead bully. I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
+
+Petey was a dick and is a dick. And he liked to go to raves with big dumb Dave.
 
 For someone who hated the music, and even called Dave “gay” for liking it, he did like one thing: Molesting women at raves.  Grabbing them literally by the pussy and doing whatever he could. They would mock Dave for not getting any at raves, but at least Dave didn’t attack women.
 
