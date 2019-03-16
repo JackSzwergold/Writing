@@ -42,13 +42,8 @@ With that we headed outside of the bar on 5th Avenue in Park Slope, hailed two c
 
 ***
 
-I ran into him at some party in the Lower East Side. He’s sitting in the kitchen and smoking a pot pipe as if it was a crack piper knowing how angry his energy was, maybe it was pot? Or meth? Anyway he mocked me for getting fired from the Onion. Sitting in the corner and saying, “Is this the guy who got fired? Good luck to you! Nice to know you!” Anyway, that’s a tangent.
+So we arrived somewhere in the Lower East Side in that odd area near the East River known by real estate wonks as “Two Bridges.” The party was in a building that—to me—looked like public housing
 
-Pete was a dick and is a dick. And he liked to go to raves with big dumb Dave.
-
-For someone who hated the music, and even called Dave “gay” for liking it, he did like one thing: Molesting women at raves.  Grabbing them literally by the pussy and doing whatever he could. They would mock Dave for not getting any at raves, but at least Dave didn’t attack women.
-
-But they still said he was gay and mocked him for liking Erasure.
 
 ***
 
