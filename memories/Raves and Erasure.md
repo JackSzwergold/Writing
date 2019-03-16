@@ -56,7 +56,11 @@ I saw a guy going around in a twitchy way telling people to not touch this, that
 
 I walked around, grabbed a drink and made sure not to put it down anywhere.
 
-Some people were just sitting around catatonically but cosmopolitanly; they were not dishevled or drity but they were disconnected. From what, who knows? I guess this was one of those “parties” where nobody was having any fun and everyone was just negatively stimulating themselves. The kind of party where assholes thrived. And Pete was the one who dragged us to this dark, entitled flophouse. 
+Some people were just sitting around catatonically but cosmopolitanly; they were not dishevled or drity but they were disconnected. From what, who knows? I guess this was one of those “parties” where nobody was having any fun and everyone was just negatively stimulating themselves. The kind of party where assholes thrived. And Pete was the one who dragged us to this dark, entitled flophouse.
+
+After standing around and soaking in this crap for a while, Todd came over to me and wanted to talk out on the terrace. I walked out with him, he lit up a cigarette, blew it in my face and just blurted, “So I guess it might be hard finding a job out there, Jack.”
+
+Oh, I need to mention at the time this happened I was no longer working for the wacky weekly newspaper who I helped grow from a midwstern beer and pizza coupon rag to something that was praised by *The New Yorker*. I was kicked out in a cull by the power-hungry business owner who previously pushed out his more editorially-focused creative partner and now had dreams of expanding his wacky weekly newspaper empired into adult classifieds and crap like that. Never mind you film companies and others wanted to work with us; this guy’s dreams inlcuded selling his paper and his staff short at any and every turn.
 
 ***
 
