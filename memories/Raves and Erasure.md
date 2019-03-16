@@ -68,6 +68,8 @@ Anyway, Todd was basically bullying me about me being unemployed—he was happy 
 
 And my response was simply to say, “Well, I have a job now. So hey,” to which his face turned pale and like a paniced roach when the light comes on, he spazzed a bit, blubbered his head a bit and then ran out of the terrace and back onto the dark joyless party.
 
+I guess he wanted to gloat about the destruction of my career and it wasn’t fun anymore when I told him I was back on my feet.
+
 ***
 
 *Raves and Erasure (c) Copyright by Jack Szwergold; written on February 23, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
