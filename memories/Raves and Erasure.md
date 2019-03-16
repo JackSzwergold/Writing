@@ -72,4 +72,10 @@ I guess he wanted to gloat about the destruction of my career and it wasn’t fu
 
 ***
 
+I walked back into the the apartment and spotted our mutal friend who—like me—was dragged to this hot mess from what was a casually fun thing in Brooklyn.
+
+“Let’s head back to Brooklyn,” I said. He nodded and agreed, but insisted on saying goodbye to Todd and his girlfriend.
+
+***
+
 *Raves and Erasure (c) Copyright by Jack Szwergold; written on February 23, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
