@@ -60,7 +60,9 @@ Some people were just sitting around catatonically but cosmopolitanly; they were
 
 After standing around and soaking in this crap for a while, Todd came over to me and wanted to talk out on the terrace. I walked out with him, he lit up a cigarette, blew it in my face and just blurted, “So I guess it might be hard finding a job out there, Jack.”
 
-Oh, I need to mention at the time this happened I was no longer working for the wacky weekly newspaper who I helped grow from a midwstern beer and pizza coupon rag to something that was praised by *The New Yorker*. I was kicked out in a cull by the power-hungry business owner who previously pushed out his more editorially-focused creative partner and now had dreams of expanding his wacky weekly newspaper empired into adult classifieds and crap like that. Never mind you film companies and others wanted to work with us; this guy’s dreams inlcuded selling his paper and his staff short at any and every turn.
+Oh, I need to mention at the time this happened I was no longer working for the wacky weekly newspaper who I helped grow from a midwstern beer and pizza coupon rag to something that was praised by *The New Yorker*. I was kicked out in January 2001 in a cull by the power-hungry business owner who previously pushed out his more editorially-focused creative partner and now had dreams of expanding his wacky weekly newspaper empired into adult classifieds and crap like that. Never mind you film companies and others wanted to work with us; this guy’s dreams inlcuded selling his paper and his staff short at any and every turn.
+
+But despite all of that I managed to land a humble—but somewhat stable—freelance gig a few months 
 
 ***
 
