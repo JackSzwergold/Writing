@@ -56,7 +56,7 @@ I saw a guy going around in a twitchy way telling people to not touch this, that
 
 I walked around, grabbed a drink and made sure not to put it down anywhere.
 
-Some people were just sitting around catatonically but cosmopolitanly; they were not dishevled or drity but they were disconnected. From what, who knows? 
+Some people were just sitting around catatonically but cosmopolitanly; they were not dishevled or drity but they were disconnected. From what, who knows? I guess this was one of those “parties” where nobody was having any fun and everyone was just negatively stimulating themselves. The kind of party where assholes thrived. And Pete was the one who dragged us to this dark, entitled flophouse. 
 
 ***
 
