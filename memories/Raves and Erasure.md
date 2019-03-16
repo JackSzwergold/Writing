@@ -46,6 +46,12 @@ So we arrived somewhere in the Lower East Side in that odd area near the East Ri
 
 We headed up in the elevator that reminded me of similar elevators in similar buildings in Brooklyn with one big difference: These elevators actually work. And as we get off on whatever floor this party was I notice that everything is clean and well maintained; a stark contrast to other similar buildings I knew of in Brooklyn.
 
+A few short steps we were at the door where this “party” was happening and walked in.
+
+The apartment was dark, theer were people and music and such, but the party seemed more to be like a small group of friends disconnecting from reality and being anti-social in a social way.
+
+I saw a guy going around in a twitchy way telling people to not touch this, that and the other
+
 ***
 
 *Raves and Erasure (c) Copyright by Jack Szwergold; written on February 23, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
