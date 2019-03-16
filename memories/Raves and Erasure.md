@@ -78,7 +78,15 @@ I walked back into the the apartment and spotted our mutal friend who—like me�
 
 We walked around and found them in the apartment’s crammed kitchen.
 
-We both walked into the kicthen, spotted Todd and his girlfriend and sitting in the corner of the kitchen’s hutch was Pete, sucking intently on a pipe as if it were feeding him oxygen
+We both walked into the kicthen, spotted Todd and his girlfriend and sitting in the corner of the kitchen’s hutch was Pete, violently sucking on a pot pipe as if it were feeding him life itself.
+
+“We’re going to head out,” I said to Todd and his girlfriend as politely as possible given what just happened out on the terrace, “Okay, Jack! Bye!” Todd said.
+
+Pete whispered over to Todd loud enough so I could hear it, “Is this the guy who got fired?” Todd nodded while looking at me and Pete then said, “Good luck to you Jack! Have fun Jack! Got fired Jack? Good luck to you!” he said while packing the pipe again, bringing a lighter up to it and puffing away like a sweaty ape.
+
+I just stared at him, then looked at my friend and we took off.
+
+As we walked 
 
 ***
 
