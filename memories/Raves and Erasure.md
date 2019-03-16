@@ -1,4 +1,5 @@
 ## Raves and Erasure
+### About This Asshole Friend of an Asshole I Knew
 
 By Jack Szwergold
 
@@ -6,7 +7,7 @@ Pete was an asshole. I knew he was an asshole before I even knew who he was or e
 
 Pete and Todd were a couple of assholes.
 
-Pete was a jerk in the college town he lived in and then—like all assholes and jerks—he moved off to New York City to work as some toadie in the world of banking and financing. He himself wasn’t a wheeler and dealer, but he fancied himself a journalist; a shaper of words.
+Pete was a jerk in the college town he lived in and then—like all assholes and jerks—he moved off to New York City to work as some toady in the world of banking and financing. He himself wasn’t a wheeler and dealer, but he fancied himself a journalist; a shaper of words.
 
 He worked for some WASPy, slimy guy named Hank or Howard or something. The guy looked like Howdy Doody and acted like a twitchy kid who drank too much coffee or snorted took much cocaine. The guy got busted for insider trading or something, was busted and convicted but it was a slap on the wrist at best. He ended up back on the street doing what he does: Writing finance articles and nonsense but this time for a start-up.
  
@@ -48,7 +49,7 @@ We headed up in the elevator that reminded me of similar elevators in similar bu
 
 A few short steps we were at the door where this “party” was happening and walked in.
 
-The apartment was dark, theer were people and music and such, but the party seemed more to be like a small group of friends disconnecting from reality and being anti-social in a social way.
+The apartment was dark, there were people and music and such, but the party seemed more to be like a small group of friends disconnecting from reality and being anti-social in a social way.
 
 I saw a guy going around in a twitchy way telling people to not touch this, that and the other. The apartment was his and this party was for him yet he seemed to not be having fun.
 
@@ -56,37 +57,39 @@ I saw a guy going around in a twitchy way telling people to not touch this, that
 
 I walked around, grabbed a drink and made sure not to put it down anywhere.
 
-Some people were just sitting around catatonically but cosmopolitanly; they were not dishevled or drity but they were disconnected. From what, who knows? I guess this was one of those “parties” where nobody was having any fun and everyone was just negatively stimulating themselves. The kind of party where assholes thrived. And Pete was the one who dragged us to this dark, entitled flophouse.
+Some people were just sitting around catatonically but cosmopolitanly; they were not disheveled or dirty but they were disconnected. From what, who knows? I guess this was one of those “parties” where nobody was having any fun and everyone was just negatively stimulating themselves. The kind of party where assholes thrived. And Pete was the one who dragged us to this dark, entitled flophouse.
 
 After standing around and soaking in this crap for a while, Todd came over to me and wanted to talk out on the terrace. I walked out with him, he lit up a cigarette, blew it in my face and just blurted, “So I guess it might be hard finding a job out there, Jack.”
 
-Oh, I need to mention at the time this happened—in the spring of 2001—I was no longer working for the wacky weekly newspaper who I helped grow from a midwstern beer and pizza coupon rag to something that was praised by *The New Yorker*. I was kicked out in a cull of staff by the power-hungry business owner who previously pushed out his more editorially-focused creative partner and now had dreams of expanding his wacky weekly newspaper empired into adult classifieds and crap like that. Never mind you film, TV and publishing companies and others wanted to work with us; this guy’s dreams inlcuded selling his paper and his staff short at any and every turn.
+Oh, I need to mention at the time this happened—in the spring of 2001—I was no longer working for the wacky weekly newspaper who I helped grow from a Midwestern beer and pizza coupon rag to something that was praised by *The New Yorker*. I was kicked out in a cull of staff by the power-hungry business owner who previously pushed out his more editorially-focused creative partner and now had dreams of expanding his wacky weekly newspaper empire into adult classifieds and crap like that. Never mind you film, TV and publishing companies and others wanted to work with us; this guy’s dreams included selling his paper and his staff short at any and every turn.
 
 But despite all of that I managed to land a humble—but somewhat stable—freelance gig a few months later. I was financially living from month to month, but at least I was able to not fall off the face of the Earth thanks to the job.
 
 Anyway, Todd was basically bullying me about me being unemployed—he was happy I was ditched since I never acknowledge his unwanted sexual advances and was threatened by me—and he wanted to bask in the glow of ruining someone’s life.
 
-And my response was simply to say, “Well, I have a job now. So hey,” to which his face turned pale and like a paniced roach when the light comes on, he spazzed a bit, blubbered his head a bit and then ran out of the terrace and back onto the dark joyless party.
+And my response was simply to say, “Well, I have a job now. So hey,” to which his face turned pale and like a panicked roach when the light comes on, he spazzed a bit, blubbered his head a bit and then ran out of the terrace and back onto the dark joyless party.
 
 I guess he wanted to gloat about the destruction of my career and it wasn’t fun anymore when I told him life moved on I was back on my feet.
 
 ***
 
-I walked back into the the apartment and spotted our mutal friend who—like me—was dragged to this hot mess from what was a casually fun thing in Brooklyn.
+I walked back into the the apartment and spotted our mutual friend who—like me—was dragged to this hot mess from what was a casually fun thing in Brooklyn.
 
 “Let’s head back to Brooklyn,” I said. He nodded and agreed, but insisted on saying goodbye to Todd and his girlfriend.
 
 We walked around and found them in the apartment’s crammed kitchen.
 
-We both walked into the kicthen, spotted Todd and his girlfriend and sitting in the corner of the kitchen’s hutch was Pete, violently sucking on a pot pipe as if it were feeding him life itself.
+We both walked into the kitchen, spotted Todd and his girlfriend and sitting in the corner of the kitchen’s hutch was Pete, violently sucking on a pot pipe as if it were feeding him life itself.
 
 “We’re going to head out,” I said to Todd and his girlfriend as politely as possible given what just happened out on the terrace, “Okay, Jack! Bye!” Todd said.
 
 Pete whispered over to Todd loud enough so I could hear it, “Is this the guy who got fired?” Todd nodded while looking at me and Pete then said, “Good luck to you Jack! Have fun Jack! Got fired Jack? Good luck to you!” he said while packing the pipe again, bringing a lighter up to it and puffing away like a sweaty ape.
 
-I just stared at him, then looked at my friend and we took off.
+I just stared at him, then looked at my friend and we took off. Out the front door of the apartment, down the elevator and right onto Grand Street.
 
-As we walked 
+As we walked down Grand Street and headed to the subway, my friend said nothing. In fact he said nothing since Pete gave me that passive-aggressive sussing. Not as we walked out the front door of the apartment, and not as we went down the elevator, and not as we walked down Grand Street to the subway.
+
+We waited and waited. No words spoken. Headed back to my place, and he crashed out on the living room floor and I headed into my bedroom and just passed out for the night.
 
 ***
 
