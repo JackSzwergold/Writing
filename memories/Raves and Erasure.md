@@ -62,7 +62,10 @@ After standing around and soaking in this crap for a while, Todd came over to me
 
 Oh, I need to mention at the time this happened—in the spring of 2001—I was no longer working for the wacky weekly newspaper who I helped grow from a midwstern beer and pizza coupon rag to something that was praised by *The New Yorker*. I was kicked out in a cull of staff by the power-hungry business owner who previously pushed out his more editorially-focused creative partner and now had dreams of expanding his wacky weekly newspaper empired into adult classifieds and crap like that. Never mind you film, TV and publishing companies and others wanted to work with us; this guy’s dreams inlcuded selling his paper and his staff short at any and every turn.
 
-But despite all of that I managed to land a humble—but somewhat stable—freelance gig a few months later
+But despite all of that I managed to land a humble—but somewhat stable—freelance gig a few months later. I was financially living from month to month, but at least I was able to not fall off the face of the Earth thanks to the job.
+
+Anyway, Todd was basically bullying me about me being unemployed—he was happy I was ditched since I never acknowledge his unwanted sexual advances and was threatened by me—and he wanted to bask in the glow of ruining someone’s life.
+
 
 ***
 
