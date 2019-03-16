@@ -66,6 +66,7 @@ But despite all of that I managed to land a humble—but somewhat stable—freel
 
 Anyway, Todd was basically bullying me about me being unemployed—he was happy I was ditched since I never acknowledge his unwanted sexual advances and was threatened by me—and he wanted to bask in the glow of ruining someone’s life.
 
+And my response was simply to say, “Well, I have a job now. So hey,” to which his face turned pale and like a paniced roach when the light comes on, he spazzed a bit, blubbered his head a bit and then ran out of the terrace and back onto the dark joyless party.
 
 ***
 
