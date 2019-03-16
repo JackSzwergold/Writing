@@ -68,7 +68,7 @@ Anyway, Todd was basically bullying me about me being unemployed—he was happy 
 
 And my response was simply to say, “Well, I have a job now. So hey,” to which his face turned pale and like a paniced roach when the light comes on, he spazzed a bit, blubbered his head a bit and then ran out of the terrace and back onto the dark joyless party.
 
-I guess he wanted to gloat about the destruction of my career and it wasn’t fun anymore when I told him I was back on my feet.
+I guess he wanted to gloat about the destruction of my career and it wasn’t fun anymore when I told him life moved on I was back on my feet.
 
 ***
 
