@@ -1,4 +1,4 @@
-## Raves and Erasure
+## Raves, Erasure and a Supposedly Fun Party
 ### About This Asshole Friend of an Asshole I Knew
 
 By Jack Szwergold
@@ -93,4 +93,4 @@ We waited and waited. No words spoken. Headed back to my place, and he crashed o
 
 ***
 
-*Raves and Erasure (c) Copyright by Jack Szwergold; written on February 23, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Raves, Erasure and a Supposedly Fun Party (c) Copyright by Jack Szwergold; written on February 23, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
