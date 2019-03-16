@@ -44,8 +44,7 @@ With that we headed outside of the bar on 5th Avenue in Park Slope, hailed two c
 
 So we arrived somewhere in the Lower East Side in that odd area near the East River known by real estate wonks as “Two Bridges.” The party was in a building that—to me—looked like public housing but was actually a co-op building. All of the similar buildings around there were co-ops of some sort; orange bricks, oddly manicured front lawns and general 1960s urban renewal genteelness.
 
-We headed up in the elevator that reminded me of similar elevators in similar buildings in Brooklyn with one big difference: These elevators actually work.
-
+We headed up in the elevator that reminded me of similar elevators in similar buildings in Brooklyn with one big difference: These elevators actually work. And as we get off on whatever floor this party was I notice that everything is clean and well maintained; a stark contrast to other similar buildings I knew of in Brooklyn.
 
 ***
 
