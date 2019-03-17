@@ -53,7 +53,7 @@ The apartment was dark, there were people and music and such, but the party seem
 
 I saw a guy going around in a twitchy way telling people to not touch this, that and the other. The apartment was his and this party was for him yet he seemed to not be having fun.
 
-“Don’t put your drink there, ” he said. “We don’t have coasters.” He said to a couple of people who had literally just gotten drinks from a nearby bin of drinks. I think he grabbed some napkins or paper towels and handed it to them asking then to clean up the minor dampness on the area the mere seconds ago placed their drinks on.
+“Don’t put your drink there, ” he said. “We don’t have coasters.” He said to a couple of people who had literally just gotten drinks from a nearby bin of drinks. I think he grabbed some napkins or paper towels and handed it to them asking then to clean up the minor dampness on the area—they merely seconds ago—placed their drinks on.
 
 I walked around, grabbed a drink and made sure not to put it down anywhere.
 
