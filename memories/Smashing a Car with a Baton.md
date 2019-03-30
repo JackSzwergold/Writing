@@ -4,7 +4,11 @@ By Jack Szwergold
 
 His name was Kevin. God was that guy a dick, a tool, an asshole and all of the above and then some. But most of all we at the wacky weekly newspaper knew him as our lawyer.
 
-How he bacame the wacky weekly newspaper’s lawyer is vague but clear. It happened just before I started in the fall of 1995 and the way I understood it is he was a lawyer.
+How he bacame the wacky weekly newspaper’s lawyer is vague but clear. It happened just before I started in the fall of 1995 and the way I understood it is he was a lawyer for a bunch of aging classic horror movie actors in Hollywood. He specialty was ambulance chasing perceived misuses of his clients name and image in many small cases. Small publications, local conventions and other similar gatherings. The works.
+
+Technically speaking, he was acting within his—and his client’s—legal rights towards rights and fair compensation. But it was all really silly and sad when you think about it.
+
+So anyway, prior to me coming on board the wacky weekly newspaper, they apparently used the likeness of one of his clients pictures in one of their wacky fake news articles.
 
 
 
