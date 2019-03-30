@@ -8,7 +8,11 @@ How he bacame the wacky weekly newspaper’s lawyer is vague but clear. It happe
 
 Technically speaking, he was acting within his—and his client’s—legal rights towards rights and fair compensation. But it was all really silly and sad when you think about it.
 
-So anyway, prior to me coming on board the wacky weekly newspaper, they apparently used the likeness of one of his clients pictures in one of their wacky fake news articles.
+So anyway, prior to me coming on board the wacky weekly newspaper, they apparently used the likeness of one of his clients pictures in one of their wacky fake news articles without securing proper rights and permissions. And out of nowhere, Kevin literally swooped into the newspaper’s offices and threatened to sue them out of existence. A compromise was struck where a financial settlement may or may not have been reached. But as a part of that deal, Kevin was retained as their attorney from that moment forward.
+
+We all hated him. When he helped he helped, but by that point in the wacky newspaper’s history, anyone with common sense could have advised on rights and permission issues. But still he got paid.
+
+
 
 
 
