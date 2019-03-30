@@ -18,7 +18,9 @@ And—just for context about what comes next—he was Jewish. Not like there is 
 
 So one day I came into work—maybe in 1996 or 1997—and one of my co-workers dropped a copy of the local newspaper in front of me and said, “Check this out!” His finger pointed to a small—but prominent piece—below the fold that talked about Kevin damaging some Middle Eastern guy’s car outside of a local downtown hotel.
 
-Turns out his wife
+Turns out his wife was screwing some Middle Eastern business man on the side and Kevin caught on. They were having a fling at that local hotel and Kevin decided the best way to handle the situation was to smash the guy’s car windows with an steel expandable tactical self-defense baton.
+
+We all cracked up at that.
 
 
 
