@@ -2,6 +2,12 @@
 
 By Jack Szwergold
 
+God was that guy a dick. A tool. An asshole and all of the above. But most of all we at the wacky weekly newspaper knew him as our lawyer.
+
+How he bacame the wacky weekly newspaper’s lawyer is vague but clear. It happened just before I started in the fall of 1995 and the way I understood it is he was 
+
+
+
 **QUICK NOTES**: Sketchy lawyer at famous comedy publication. Became their lawyer after threatening to sue them over unauthorized use of image of one of his clients. He is Jewish. Found out his wife was having an affair with an Arab guy at a local hotel. Found his car outside of a hotel, used an expanding baton to smash it’s windows and dent it. Immediately called the police after the incident to tell them what he’d done. Never saw jail time but paid a reduced fine or went on some token amount probation. While he was in the midst of this, he entrusted J.K. to hold onto his guns and weapons.
 
 ***
