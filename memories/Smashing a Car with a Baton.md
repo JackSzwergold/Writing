@@ -24,7 +24,7 @@ We all cracked up at that. Our ambulance chasing lawyer was using a “self-defe
 
 Anyway, as I read on it said that after he smashed the car, he immediately called the police, confessed to what he did and—as a result—didn’t get locked up or anything. It was the first time in my life I realized you could technically get away with commiting a crime if you called the police right away and confessed that you were not in your right mind.
 
-We didn’t see Kevin for a few weeks, but some people at the wacky weekly newspaper had some contact with him.
+We didn’t see Kevin for a few weeks, but some people at the wacky weekly newspaper had some contact with him. The owners—of course—were in contact with him to see if he could still work for them while he was dealing with the aftermath of his bullshit. John—another writer on the staff of the publication—had contact with him as well. Seemed like Kevin was technically on probation for domestic violence
 
 ***
 
