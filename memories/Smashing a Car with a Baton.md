@@ -14,6 +14,12 @@ We all hated him. When he helped he helped, but by that point in the wacky newsp
 
 And—just for context about what comes next—he was Jewish. Not like there is anything wrong with that.
 
+***
+
+So one day I came into work—maybe in 1996 or 1997—and one of my co-workers dropped a copy of the local newspaper in front of me and said, “Check this out!” His finger pointed to a small—but prominent piece—below the fold that talked about Kevin damaging some Middle Eastern guy’s car outside of a local downtown hotel.
+
+Turns out his wife
+
 
 
 ***
