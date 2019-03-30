@@ -20,7 +20,9 @@ So one day I came into work—maybe in 1996 or 1997—and one of my co-workers d
 
 Turns out his wife was screwing some Middle Eastern business man on the side and Kevin caught on. They were having a fling at that local hotel and Kevin decided the best way to handle the situation was to smash the guy’s car windows with an steel expandable tactical self-defense baton.
 
-We all cracked up at that.
+We all cracked up at that. Our ambulance chasing lawyer was using a “self-defense” baton to smash windows on the car of his wife’s lover as he flew into a jealous rage. What a hoot! There goes our laywer, right?
+
+Anyway, as I read on it said that after he 
 
 
 
