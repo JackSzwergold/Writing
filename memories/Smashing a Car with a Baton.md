@@ -12,9 +12,11 @@ So anyway, prior to me coming on board the wacky weekly newspaper, they apparent
 
 We all hated him. When he helped he helped, but by that point in the wacky newspaper’s history, anyone with common sense could have advised on rights and permission issues. But still he got paid.
 
+And—just for context about what comes next—he was Jewish. Not like there is anything wrong with that.
 
 
 
+***
 
 **QUICK NOTES**: Sketchy lawyer at famous comedy publication. Became their lawyer after threatening to sue them over unauthorized use of image of one of his clients. He is Jewish. Found out his wife was having an affair with an Arab guy at a local hotel. Found his car outside of a hotel, used an expanding baton to smash it’s windows and dent it. Immediately called the police after the incident to tell them what he’d done. Never saw jail time but paid a reduced fine or went on some token amount probation. While he was in the midst of this, he entrusted J.K. to hold onto his guns and weapons.
 
