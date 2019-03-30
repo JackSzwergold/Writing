@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-God was that guy a dick. A tool. An asshole and all of the above. His name was Kevin but most of all we at the wacky weekly newspaper knew him as our lawyer.
+His name was Kevin. God was that guy a dick, a tool, an asshole and all of the above and then some. But most of all we at the wacky weekly newspaper knew him as our lawyer.
 
 How he bacame the wacky weekly newspaper’s lawyer is vague but clear. It happened just before I started in the fall of 1995 and the way I understood it is he was a lawyer.
 
