@@ -24,7 +24,11 @@ We all cracked up at that. Our ambulance chasing lawyer was using a “self-defe
 
 Anyway, as I read on it said that after he smashed the car, he immediately called the police, confessed to what he did and—as a result—didn’t get locked up or anything. It was the first time in my life I realized you could technically get away with commiting a crime if you called the police right away and confessed that you were not in your right mind.
 
-We didn’t see Kevin for a few weeks, but some people at the wacky weekly newspaper had some contact with him. The owners—of course—were in contact with him to see if he could still work for them while he was dealing with the aftermath of his bullshit. John—another writer on the staff of the publication—had contact with him as well. Seemed like Kevin was technically on probation for domestic violence
+We didn’t see Kevin for a few weeks, but some people at the wacky weekly newspaper had some contact with him. The owners—of course—were in contact with him to see if he could still work for them while he was dealing with the aftermath of his bullshit. John—another writer on the staff of the publication—had contact with him as well. Seemed that while Kevin was not going to see any jail time, he was technically on probation for domestic violence and—as a result—not able to have any guns in his possession.
+
+So John—a kinda dellusional nutjob in his own right—got to be the guy who held onto Kevin’s guns until the whole episode blew over. This was weird because we never really thought of Kevin as someone who owned guns, but he did; I guess he was one of those “Every Jew a .22” JDL loons. And we knew that John owned a gun, but he was one of those guys who never really wanted to know owned a gun; he was dellusional repressed and violent.
+
+So that’s that. After a few months, Kevin’s probation was over, he was divorced, got his guns back and life went back to normal in the world of the wack weekly newspaper.
 
 ***
 
