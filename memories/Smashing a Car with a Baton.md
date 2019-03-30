@@ -1,4 +1,5 @@
 ## Lawyer Smashes Car Windows with a Baton
+### About The Time a Lawyer I Knew Smashed the Windows of a Car in a Jealous Rage
 
 By Jack Szwergold
 
