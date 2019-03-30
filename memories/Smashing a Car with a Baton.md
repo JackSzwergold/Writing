@@ -24,6 +24,7 @@ We all cracked up at that. Our ambulance chasing lawyer was using a “self-defe
 
 Anyway, as I read on it said that after he smashed the car, he immediately called the police, confessed to what he did and—as a result—didn’t get locked up or anything. It was the first time in my life I realized you could technically get away with commiting a crime if you called the police right away and confessed that you were not in your right mind.
 
+We didn’t see Kevin for a few weeks, but some people at the wacky weekly newspaper had some contact with him.
 
 ***
 
