@@ -18,6 +18,8 @@ Where my parents got job leads is debatable, but it was mostly through word of m
 
 But whatever, this day we were headed to Canal Street to see if my mom could score a job.
 
+I clearly remember climbing up the stairs on the Southwest side of Canal Street
+
 
 ***
 
