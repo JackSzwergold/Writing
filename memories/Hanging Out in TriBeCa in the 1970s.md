@@ -20,7 +20,9 @@ I remember seeing rows upon rows of sewing machines. Nobody seemed to be there y
 
 My dad shouted “Hello!” and it echoed throughout the floor. We all heard some shuffling from the back and a person appeared at the very end of the factory floor and asked “What?”
 
-My mom and dad looked at each other and looked at me and told me to stay up front. I nodded a “Yes…”
+My mom and dad looked at each other and looked at me and told me to stay up front. I nodded a “Yes…” and with that they walked to the back of the factory where that guy was.
+
+I meandered around up front, not wandering too far out of sight of my parents, but
 
 ***
 
