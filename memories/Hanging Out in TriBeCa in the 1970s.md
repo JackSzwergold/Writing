@@ -26,7 +26,9 @@ I meandered around up front, not wandering too far out of sight of my parents, b
 
 I heard looked back down the aisle to my parents talking to the factory guy. I could hear them speak to him in Yiddish and saw lots of gesticulation. Hand motions and such. The discussion was passionate but not crazy or angry. Clearly some kind of negotiation.
 
-After a while my mom and dad came up front and the guy followed.
+After a while my mom and dad came up front and the guy followed. When they came up front my dad said, “Okay time to go home.” The guy looked at me, looked at my parents and just shrugged. It wasn’t a judgemental shrug, but my parents had me in their 40s and at the time of this encounter they were in their early 50s. I looked more like I should be their grandson at the time; not their son.
+
+Pretty sure my parents dragged me along to score some sympathy points.
 
 ***
 
