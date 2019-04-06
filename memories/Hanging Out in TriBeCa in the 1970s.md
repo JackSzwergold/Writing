@@ -28,7 +28,9 @@ I heard looked back down the aisle to my parents talking to the factory guy. I c
 
 After a while my mom and dad came up front and the guy followed. When they came up front my dad said, “Okay time to go home.” The guy looked at me, looked at my parents and just shrugged. It wasn’t a judgemental shrug, but my parents had me in their 40s and at the time of this encounter they were in their early 50s. I looked more like I should be their grandson at the time; not their son.
 
-Pretty sure my parents dragged me along to score some sympathy points. I mean, showing off a kid as a dependent for a job is a thing, 
+Pretty sure my parents dragged me along to score some sympathy points. I mean, showing off a kid as a dependent for a job is a thing.
+
+We walked down the stairs, walked back down Broadway, looked around to see if there was any shopping—something my parents always did after one of these work/family trips—and since there wasn’t much of anything past junk stores, we headed back to the subway and headed back home.
 
 ***
 
