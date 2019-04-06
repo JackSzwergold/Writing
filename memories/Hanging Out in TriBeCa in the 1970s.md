@@ -12,7 +12,9 @@ We all took the train out one Satuday morning. I was grey and overcast. The subw
 
 But that was not to be. First, I was too young and would get hit by a train and die. Second, we needed to head into Manhattan to see if my mom could get a job in a schmata factory.
 
-My dad was essentially laid off due to disability
+My dad was essentially laid off due to disability from having a heart attack in 1975. And he wasn’t in the Union long enough to actually get any benefits. So it was my mom’s turn to step up to bat and be the primary source of income in the family.
+
+Where my parents got job leads is debatable, but it was mostly through word of mouth, gossip
 
 
 ***
