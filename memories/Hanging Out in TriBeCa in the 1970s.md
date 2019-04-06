@@ -14,7 +14,7 @@ But that was not to be. First, I was too young and would get hit by a train and 
 
 My dad was essentially laid off due to disability from having a heart attack in 1975. And he wasn’t in the Union long enough to actually get any benefits. So it was my mom’s turn to step up to bat and be the primary source of income in the family.
 
-Where my parents got job leads is debatable, but it was mostly through word of mouth, gossip
+Where my parents got job leads is debatable, but it was mostly through word of mouth, gossip as well as combing through job listings in the Jewish Press.
 
 
 ***
