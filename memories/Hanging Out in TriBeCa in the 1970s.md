@@ -14,7 +14,7 @@ But that was not to be. First, I was too young and would get hit by a train and 
 
 My dad was essentially laid off due to disability from having a heart attack in 1975. And he wasn’t in the Union long enough to actually around like hawks because this was the classic gritty NYC of the 1970s. Abe Beame’s shithole. The city I grew up in. A genuinely dangerous place.
 
-But I looked around and soaked in what I could. Like
+But I looked around and soaked in what I could. Like Dave’s Luncheonette on the corner. It looked so fancy and cool. But we never stopped in. We just swung onto Broadway and walked a few blocks down, up some dingy staircase.
 
 
 ***
