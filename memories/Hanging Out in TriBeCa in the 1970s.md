@@ -16,6 +16,8 @@ My dad was essentially laid off due to disability from having a heart attack in 
 
 Where my parents got job leads is debatable, but it was mostly through word of mouth, gossip as well as combing through job listings in the Jewish Press.
 
+But whatever, this day we were headed to Canal Street to see if my mom could score a job.
+
 
 ***
 
