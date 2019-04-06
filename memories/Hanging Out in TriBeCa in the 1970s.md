@@ -12,13 +12,9 @@ We all took the train out one Satuday morning. I was grey and overcast. The subw
 
 But that was not to be. First, I was too young and would get hit by a train and die. Second, we needed to head into Manhattan to see if my mom could get a job in a schmata factory.
 
-My dad was essentially laid off due to disability from having a heart attack in 1975. And he wasn’t in the Union long enough to actually get any benefits. So it was my mom’s turn to step up to bat and be the primary source of income in the family.
+My dad was essentially laid off due to disability from having a heart attack in 1975. And he wasn’t in the Union long enough to actually around like hawks because this was the classic gritty NYC of the 1970s. Abe Beame’s shithole. The city I grew up in. A genuinely dangerous place.
 
-Where my parents got job leads is debatable, but it was mostly through word of mouth, gossip as well as combing through job listings in the Jewish Press.
-
-But whatever, this day we were headed to Canal Street to see if my mom could score a job.
-
-I clearly remember climbing up the stairs on the Southwest side of Canal Street
+But I looked around and soaked in what I could. Like
 
 
 ***
