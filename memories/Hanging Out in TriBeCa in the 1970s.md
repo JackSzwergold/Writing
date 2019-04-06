@@ -8,6 +8,8 @@ Not at the Mudd Club or anything like that but in a huge factory just South of C
 
 It was a garment factory and my mom, dad and I heaed out from the ass end of Brooklyn to TriBeCa to look for work.
 
+We all took the train out one Satuday morning. I was grey and overcast. The subway was one of those rickety old cars that was kinda corrugated on the side. The trip was fun. I liked looking out the windows. Especially the window of the first car. I’d get excited toys, balls and junk
+
 
 ***
 
