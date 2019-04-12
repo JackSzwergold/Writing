@@ -8,7 +8,19 @@ It was sometime before the place closed—maybe 7:00pm or 8:00pm—when she head
 
 Anyway, after about 20 minutes or the front buzzer rang, my dad went to the front door to open it up for her and she pretty much ran into the apartment. Not like a sprinter, but faster than her usual stroll.
 
-She started to whisper 
+She started to excitedly whisper to my dad in Polish or Yiddish—definitely not English—as they both hurried into the apartment and into the kitchen.
+
+After a pause, I stood up, headed into the kitchen to see what the fuss was about.
+
+I walked in, saw the grocery bag sitting on the kicthen table, but it was still full. My mom and dad though were opening up a Crown Royal bag on the table and going through the contents.
+
+“What’s in there?” I asked. And as my mom and dad looked at me I looked at the table and saw lots of gold and shiny things. “Jewelry,” my dad said. My mom added, “I find this in the street between this side and the other side,” which I knew, in her broken English, to me meant she found it on the median between traffic between our building and the supermarket.
+
+I came closer and looked and checked out the haul: Lots of jewerly. Lots of gold. Real or fake? No clue. But lots of gold chains. Other stuff too but mainly gold chains.
+
+I felt excited. No idea what anything was worth—or where this Crown Royal bag came from—but I knew one thing: My mom would sell it at the local jewerly store a few blocks away.
+
+
 
 ***
 
