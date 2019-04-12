@@ -48,7 +48,7 @@ She was a teacher who studied at the Bank Street College in the 1970s; thus she 
 
 Anyway, so here I am talking on the phone to her and none of my generic chit-chat items would stop her from prying. “Really?” she would say and “What else is happening?” she would add. Typed out that seems innocuous and silly to get upset about. But when you have a full grown adult—who is 20 years older than you—prying into your adolescent life it was all anxiety inducing bullshit.
 
-At some point she cracked me open enough to blurt something about
+At some point she cracked me open enough to blurt something about the Crown Royal bag. Immediately after saying something about it being filled with jewelry
 
 ***
 
