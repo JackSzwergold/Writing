@@ -50,7 +50,19 @@ Anyway, so here I am talking on the phone to her and none of my generic chit-cha
 
 At some point she cracked me open enough to blurt something about the Crown Royal bag. Immediately after saying something about it being filled with jewelry she said, “Well you should return it to the police!” Which anyone who knew anything about finding stuff on the street in a poor neighborhood would know was stupid on so many levels.
 
-First, the chances of the police being able to reunite the jewelry with the original owner was prety much zilch. Second, you bring to the police you run the risk of being known as a rat in the neighborhood.
+First, the chances of the police being able to reunite the jewelry with the original owner was prety much zilch. Second, you bring to the police you run the risk of being known as a rat in the neighborhood. Taking the loot and selling it was actually the best and most practical thing to do.
+
+But the damage was done. I blurted out something I should have not blurted out and now my brother’s miserable wife was going to start a fight with my parents.
+
+I handed the phone back to my dad. And she started ripping into him. I have no idea what she said, but my father got visibly agitated by it. He was shouting and has faced was getting red. After a while he asked that he talk to my brother, his son, again.
+
+My dad was still excited, but when he talked to my brother—in between the Yiddish or Polish being spoken—he clearly said, “None of your business!”
+
+After a while he hung up the phone. He looked at me and calmly—but kinda breathlessly—said, “You shouldn’t have told her.” And he was right. I felt horrible.
+
+He went back to the living room to watch TV. I waited a while and joined him. He wasn’t that upset anymore. But I was still regretting what I said. He saw this and said, “No big deal. We sold the stuff anyway.” And patted my hand.
+
+We both sat there and watched TV for the next 1/2 hour or so before turning in for the night.
 
 ***
 
