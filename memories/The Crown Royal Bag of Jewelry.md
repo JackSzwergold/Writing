@@ -40,7 +40,7 @@ So with the jewelry sold, all that was left was a purple Crown Royal bag that sh
 
 ***
 
-
+Some time later, my brother called for his weekly family check in. This stuff was tedious for me at best. At some time after talking to my mom or dad, my mom or dad would walk over to my room and say “Ben wants to talk to you…” I’d drag myself to the phone, and engage in some pandering idle chit chat. At some point
 
 ***
 
