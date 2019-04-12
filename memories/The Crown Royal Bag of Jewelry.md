@@ -30,9 +30,17 @@ Nothing was practically of concern at that moment past the fact that whatever my
 
 A week or so passed, and I don’t know when she did it but she definitely sold the haul to the local jeweler.
 
-I didn’t go along with her at the time—I was too old—but I liked the jeweler and only have fond memories of him.
+I didn’t go along with her at the time—I was too old—but I liked the jeweler and only have fond memories of him. He was a older Orthodox Jewish guy who seemed to be perpetually dressed in a white shirt, grey slacks, balding head, big beard and a Yarmulke.
 
-When I was younger, my mom would drag me along to the shop. Like most low-rent neighborhood jewelry shops, it had a small array of goods for sale, but was also a kina pawn shop for the neighborhood. No questions asked, bring your stuff in
+When I was younger, my mom would drag me along to the shop. Like most low-rent neighborhood jewelry shops, it had a small array of goods for sale, but was also a kina pawn shop for the neighborhood.
+
+No questions asked, just bring your stuff in, he would take a look at it with the jeweler’s loupe he had hanging around his neck, negotiate a sale price and that was that.
+
+So with the jewelry sold, all that was left was a purple Crown Royal bag that she kept on her dresser.
+
+***
+
+
 
 ***
 
