@@ -30,7 +30,9 @@ Nothing was practically of concern at that moment past the fact that whatever my
 
 A week or so passed, and I don’t know when she did it but she definitely sold the haul to the local jeweler.
 
-I didn’t go along with her at the time, but I liked the jeweler and only have fond memories of him
+I didn’t go along with her at the time—I was too old—but I liked the jeweler and only have fond memories of him.
+
+When I was younger, my mom would drag me along 
 
 ***
 
