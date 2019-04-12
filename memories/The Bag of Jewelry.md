@@ -1,4 +1,4 @@
-## The Crown Royal Bag of Jewelry
+## The Bag of Jewelry
 
 By Jack Szwergold
 
@@ -66,4 +66,4 @@ We both sat there and watched TV for the next 1/2 hour or so before turning in f
 
 ***
 
-*The Crown Royal Bag of Jewelry (c) Copyright by Jack Szwergold; written on April 12, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*The Bag of Jewelry (c) Copyright by Jack Szwergold; written on April 12, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
