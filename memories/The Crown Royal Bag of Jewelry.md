@@ -48,7 +48,9 @@ She was a teacher who studied at the Bank Street College in the 1970s; thus she 
 
 Anyway, so here I am talking on the phone to her and none of my generic chit-chat items would stop her from prying. “Really?” she would say and “What else is happening?” she would add. Typed out that seems innocuous and silly to get upset about. But when you have a full grown adult—who is 20 years older than you—prying into your adolescent life it was all anxiety inducing bullshit.
 
-At some point she cracked me open enough to blurt something about the Crown Royal bag. Immediately after saying something about it being filled with jewelry
+At some point she cracked me open enough to blurt something about the Crown Royal bag. Immediately after saying something about it being filled with jewelry she said, “Well you should return it to the police!” Which anyone who knew anything about finding stuff on the street in a poor neighborhood would know was stupid on so many levels.
+
+First, the chances of the police being able to reunite the jewelry with the original owner was prety much zilch. Second, you bring to the police you run the risk of being known as a rat in the neighborhood.
 
 ***
 
