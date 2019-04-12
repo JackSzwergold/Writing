@@ -46,7 +46,9 @@ So after some chit chat, his miserable wife wanted to talk to me. I really brace
 
 She was a teacher who studied at the Bank Street College in the 1970s; thus she was a kind of down-to-earth yet condescending and elitist know it all who “pitied” my public school life. I mean, she read some books about it, right?
 
-Anyway, so here I am talking on the phone to her and none of my generic chit-chat items would stop her from prying. “Really?” she would say and “What else is happening?” she would add. Typed out that seems 
+Anyway, so here I am talking on the phone to her and none of my generic chit-chat items would stop her from prying. “Really?” she would say and “What else is happening?” she would add. Typed out that seems innocuous and silly to get upset about. But when you have a full grown adult—who is 20 years older than you—prying into your adolescent life it was all anxiety inducing bullshit.
+
+At some point she cracked me open enough to blurt something about
 
 ***
 
