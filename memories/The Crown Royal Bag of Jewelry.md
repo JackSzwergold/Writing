@@ -2,7 +2,9 @@
 
 By Jack Szwergold
 
+It was sometime in the 1980s, and my mom wanted to go out to get something from the supermarket across the avenue. It was either called Met Foods or Speedway; don’t remember when the name switch happened but it was still the same supermarket even with branding changes.
 
+It was 7:00pm 
 
 ***
 
