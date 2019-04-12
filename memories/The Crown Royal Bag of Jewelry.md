@@ -28,6 +28,10 @@ Nothing was practically of concern at that moment past the fact that whatever my
 
 ***
 
+A week or so passed, and I don’t know when she did it but she definitely sold the haul to the local jeweler.
+
+I didn’t go along with her at the time, but I liked the jeweler and only have fond memories of him
+
 ***
 
 *The Crown Royal Bag of Jewelry (c) Copyright by Jack Szwergold; written on April 12, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
