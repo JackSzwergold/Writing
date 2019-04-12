@@ -4,7 +4,9 @@ By Jack Szwergold
 
 It was sometime in the 1980s, and my mom wanted to go out to get something from the supermarket across the avenue. It was either called Met Foods or Speedway; don’t remember when the name switch happened but it was still the same supermarket even with branding changes.
 
-It was sometime before the place closed—maybe 7:00pm or 8:00pm—when she headed out. “I need to buy something,” she said as she headed out the front door. My dad and I really didn’t know what she had to get, but who knew. We really didn’t stock up on anything past the basics in the pantry
+It was sometime before the place closed—maybe 7:00pm or 8:00pm—when she headed out. “I need to buy something,” she said as she headed out the front door. My dad and I really didn’t know what she had to get, but who knew. We really didn’t stock up on anything past the basics in the pantry and my dad knew what we had. She most likely heard about something from one of her co-workers at the Gowanus sweatshop she worked in.
+
+Anyway, after about 20 minutes or so
 
 ***
 
