@@ -20,7 +20,13 @@ I came closer and looked and checked out the haul: Lots of jewerly. Lots of gold
 
 I felt excited. No idea what anything was worth—or where this Crown Royal bag came from—but I knew one thing: My mom would sell it at the local jewerly store a few blocks away.
 
+“Don’t tell anybody,” my dad said. And I knew what he meant. Life was hard enough without neighborhood Yentas, gossips and low lifes knowing that we found this haul.
 
+Who owned this stuff? Was the stuff stolen? Did it all belong to one person if stolen? Was there anyway to return the stuff?
+
+Nothing was practically of concern at that moment past the fact that whatever my mom just found was worth something. And to a family that was poor, that meant some kind of magical bonus that could help us survive. And that’s what was important.
+
+***
 
 ***
 
