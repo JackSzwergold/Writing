@@ -32,7 +32,7 @@ A week or so passed, and I don’t know when she did it but she definitely sold 
 
 I didn’t go along with her at the time—I was too old—but I liked the jeweler and only have fond memories of him.
 
-When I was younger, my mom would drag me along 
+When I was younger, my mom would drag me along to the shop. Like most low-rent neighborhood jewelry shops, it had a small array of goods for sale, but was also a kina pawn shop for the neighborhood. No questions asked, bring your stuff in
 
 ***
 
