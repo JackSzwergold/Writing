@@ -12,6 +12,18 @@ So anyway, one weekend I get a call from one of my friends. I thought he was cal
 
 “Slopie?” I asked and he responded, “Yeah, some kids who live in Park Slope. They have their whole brownstone to themselves.” I barely knew what a brownstone was at the time, but didn’t ask; all I knew it was an expensive home of some kind in a part of Brooklyn far away from Brighton Beach. This was no apartment party… It was a house party of some kind and I was all for it.
 
+So with that, I headed outside to hang out in front of the building on Ocean Parkway and wait for my ride. Which was always awkward.
+
+While other buildings had security systems, doormen and even dogs, our building had a classic Brighton Beach security system: A bunch of Yentas just sitting outside on their folding chairs. They sat around, had some fresh air, gossiped to each other in Yiddish and stood watch.
+
+It was kind of excruciating to be honest.
+
+“Where are you going?” some would ask.
+
+“Why don’t you go home?” others would insist.
+
+In general if you spent more than 5 minutes 
+
 ***
 
 *Going to a Slopie Party in the 1980s (c) Copyright by Jack Szwergold; written on April 26, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
