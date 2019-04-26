@@ -62,6 +62,10 @@ As we all sat around wondering what to do—or what we just got into—I noticed
 
 I mean, this being Park Slope or not, a car with a window slightly open in the 1980s in Brooklyn was a weird thing to see.
 
+As we approached the car, a friend of mine recognized the car as belonging to the family whose Brownstone party we crashed. We were easilly able to open the car door and jump inside. “Wait, we’ll get busted!” I said but was then shrugged off when my friend said, “It’s no big deal. We can lock it up again.”
+
+But then we all noticed that the car was parked in nuetral.
+
 ***
 
 *Going to a Slopie Party in the 1980s (c) Copyright by Jack Szwergold; written on April 26, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
