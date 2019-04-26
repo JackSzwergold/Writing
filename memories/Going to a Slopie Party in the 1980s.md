@@ -8,7 +8,9 @@ While Lincoln was a high school that was a well mixed population of kids from Br
 
 The main reason I knew about this party and that crowd was from some friends of mine in Junior High School who happened to luck out and get into Midwood. We were still friends, but they were still somehow outsiders to Midwood and even to the neighborhood kids. Social stratification was happening… But we weren’t all aware of it yet. At the time we were just friends who saw each other less often becuase of social school rifts.
 
-So anyway, one weekend I get a call from one of my friends. I thought he was calling to do our usual thing of going to “Video on the Bay” scoring a movie of some kind, scoring some kind of alcohol of some kind and just hanging out and watching a movie and getting drunk.
+So anyway, one weekend I get a call from one of my friends. I thought he was calling to do our usual thing of going to “Video on the Bay” scoring a movie of some kind, scoring some kind of alcohol of some kind and just hanging out and watching a movie and getting drunk. Instead he told me that he got invited to a “Slopie” party and I should come along.
+
+“Slopie?” I asked and he responded, “Yeah, some kids who live in Park Slope. They have their whole brownstone to themselves.” I barely knew what a brownstone was at the time, but 
 
 ***
 
