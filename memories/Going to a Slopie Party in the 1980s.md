@@ -42,7 +42,9 @@ As we turned onto one of the Park Slope streets I looked around for obvious sign
 
 And with that we headed inside the Brownstone to see what was up with the party. As we walked in nothing seemed dour, but not much seemed like a party. There was literally jusy a bowl of chips, a bowl of some pretzels and a cooler with a humble amount of beer in it. Some people were sitting around on a nearby couch, others on the stairs. Some music was playing, but it wasn’t too loud. A guy was sitting on the stairs either tuning or playing an accoustic guitar.
 
+“Well, I guess this is it,” I said to my friend. We then both looked around and shrugged and decided to see what was happening upstairs.
 
+As we walked towards the stairs the guitar guy on the steps blocked us and said, “Can’t go up there. Nothing is happening up there.” And with that we headed over to the bowls of chips and pretzels, grabbed a beer and just hung around
 
 ***
 
