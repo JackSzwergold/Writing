@@ -68,6 +68,14 @@ But then we all noticed that the car was parked in nuetral. “Whoa!” we all s
 
 Bored out of our skulls at this bullshit party, we concoted a plan to move the car down the block to the other side of the street.
 
+And with that, we opened both side windows, and pushed the car down the street while my friend behind the wheel steered the car.
+
+Soon enough we managed to get the car perfectly parked down the street and headed back into the party.
+
+Proudly one of my friends found the guy whose family’s Brownstone this party was happening in and drunk giggled, “Hey! Something happened to your car.” The guy’s eyes lit up as he ran outside and stared at the empty space where the car was once parked.
+
+“Oh my God!” he said in a hushed, concerned and meek tone as the three of us all laughed. After a
+
 ***
 
 *Going to a Slopie Party in the 1980s (c) Copyright by Jack Szwergold; written on April 26, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
