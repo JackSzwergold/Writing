@@ -28,6 +28,14 @@ And just as I was about to get stressed by that Yenta bullshit, my friends pulle
 
 I jumped in the back, and we headed up Ocean Parkway, onto the Belt Parkway and up to Park Slope.
 
+I leaned over from the backseat and asked the obvious question, “So who’s party is this?” And my friends looked at each other, looked at me, shrugged and said, “Someone…” Turned out this was a general party that people in certain circles at Midwood High School somehow knew about. And we may or may not be crashing said party, but whatever. It was a full house party so who cared.
+
+I’d been to parties before but this was a house party. I had some silly fantasy ideas of what that might mean. I pictured mutiple floors of a party happening. Kinda like what it seemed like in “Pretty in Pink” but less suburban.
+
+***
+
+As we turned onto one of the Park Slope streets I looked around for obvious signs of a party. None could really be found. Then we slowed down as we approached the building number we knew the party was happening in. Two 
+
 ***
 
 *Going to a Slopie Party in the 1980s (c) Copyright by Jack Szwergold; written on April 26, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
