@@ -54,6 +54,14 @@ With that we just headed outside and sat on the stoop.
 
 The night was quiet, the block was quiet and the stoop was quiet. It wasn’t that bad a night, but it was boring as hell.
 
+“Man,” I said. “This stinks.” And it was only around 10:00pm.
+
+As we all sat around wondering what to do—or what we just got into—I noticed a car parked in front of the Brownstone had its passenger side window opened a little bit.
+
+“Check it out!” I said to my friends. And with that we went down to investigate.
+
+I mean, this being Park Slope or not, a car with a window slightly open in the 1980s in Brooklyn was a weird thing to see.
+
 ***
 
 *Going to a Slopie Party in the 1980s (c) Copyright by Jack Szwergold; written on April 26, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
