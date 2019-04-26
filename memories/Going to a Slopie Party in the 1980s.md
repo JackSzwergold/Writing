@@ -34,7 +34,11 @@ I’d been to parties before but this was a house party. I had some silly fantas
 
 ***
 
-As we turned onto one of the Park Slope streets I looked around for obvious signs of a party. None could really be found. Then we slowed down as we approached the building number we knew the party was happening in. Two 
+As we turned onto one of the Park Slope streets I looked around for obvious signs of a party. None could really be found. Then we slowed down as we approached the building number we knew the party was happening in. Two kids in jeans and sandals with socks on them were hanging out on the stoop.
+
+“This is it,” a friend said. And with that done, me and the friend who wasn’t driving jumped out while my other friend who was driving went to park the car.
+
+
 
 ***
 
