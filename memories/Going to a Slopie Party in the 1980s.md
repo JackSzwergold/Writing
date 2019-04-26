@@ -74,7 +74,7 @@ Soon enough we managed to get the car perfectly parked down the street and heade
 
 Proudly one of my friends found the guy whose family’s Brownstone this party was happening in and drunk giggled, “Hey! Something happened to your car.” The guy’s eyes lit up as he ran outside and stared at the empty space where the car was once parked.
 
-“Oh my God!” he said in a hushed, concerned and meek tone as the three of us all laughed. After a
+“Oh my God!” he said in a hushed, concerned and meek tone as the three of us all laughed. After a while other party atendees stood with us on the stoop and stared at the empty space on the tree-lined street.
 
 ***
 
