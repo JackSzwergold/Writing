@@ -24,6 +24,10 @@ It was kind of excruciating to be honest.
 
 In general if you spent more than 5 minutes in front of any buidling in Brighton Beach, the Yentas would start barking bullshit at you. Not for any reason other than that’s their life.
 
+And just as I was about to get stressed by that Yenta bullshit, my friends pulled up in someone’s dad’s car.
+
+I jumped in the back, and we headed up Ocean Parkay, onto the Belt Parkway and up to Park Slope.
+
 ***
 
 *Going to a Slopie Party in the 1980s (c) Copyright by Jack Szwergold; written on April 26, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
