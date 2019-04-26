@@ -80,7 +80,25 @@ Proudly one of my friends found the guy whose family’s Brownstone this party w
 
 “It’s cool. The car was in neutral. We just moved it down the street.” We collectively pointed to it and just patted him on his back to calm him down.
 
-“Why did you do that!?” he shouted, “That’s not funny!” he added.
+“Why did you do that!?” he shouted, “That’s not funny!” he added as he collapsed onto the stoop steps.
+
+It was weird. The car wasn’t gone or damaged. We just moved it and here is this Slopie kid having a mini breakdown.
+
+As the other party attendies absorbed the situation, they all looked at us three non-Slopie kids and said, “That‘s not funny.” And “You shouldn’t have done that.” Some girl sat down next to the upset kid and put his arm around him.
+
+Us three non-Slopies just said “Sorry…” in various ways and stood around for abit and then headed inside.
+
+After a moment or two, other party attendies came in and said, “We all decided you have to leave.” Which was a weird thing to say, but kind of understandable but still weird at best.
+
+“Okay,” we all said as we headed outside.
+
+The kid whose family owned the Brownstone was on the steps crying as if this car being moved was equivalent of a death or something. We all politely said goodbye to him and walked back to our car.
+
+We turned back as we headed down the block and saw the whole “party”—which seemed to consist of 6-8 people standing on the stoop and staring at us.
+
+If the Yentas were barking at me as I waited for my ride back in Brighton Beach, these Slopies were dead staring us with silence and judgement. While nobody explictly said we were non-Slope, deep Brooklyn rednecks we were still treated as such.
+
+We got back in the car and all headed back home. I think I got back at 11:30pm and just headed straight to bed.
 
 ***
 
