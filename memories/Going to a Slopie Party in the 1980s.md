@@ -6,7 +6,7 @@ It was sometime in the 1980s. I want to say 1984 or 1985 since I was in high sch
 
 While Lincoln was a high school that was a well mixed population of kids from Brooklyn, Midwood was the closest thing to a “preppie” high school that I knew of. Everyone who went to Midwood was well-to-do in some way. And I was definitely an outsider to that world.
 
-The main reason I knew about this party and that crowd was from some friends of mine in Junior High School who happened to luck out and get into Midwood. We were still friends, but they were still somehow outsiders to Midwood and even to the neighborhood kids. Social stratification was happening… But we weren’t all aware of it yet. At the time we were just friends who saw each other less often becuase of social school rifts.
+The main reason I knew about this party and that crowd was from some friends of mine in Junior High School who happened to luck out and get into Midwood. We were still friends, but they were still somehow outsiders to Midwood and even to the neighborhood kids. Social stratification was happening… But we weren’t all aware of it yet. At the time we were just friends who saw each other less often because of social school rifts.
 
 So anyway, one weekend I get a call from one of my friends. I thought he was calling to do our usual thing of going to “Video on the Bay” scoring a movie of some kind, scoring some kind of alcohol of some kind and just hanging out and watching a movie and getting drunk. Instead he told me that he got invited to a “Slopie” party and I should come along.
 
@@ -22,7 +22,7 @@ It was kind of excruciating to be honest.
 
 “Why don’t you go home?” others would insist.
 
-In general if you spent more than 5 minutes in front of any buidling in Brighton Beach, the Yentas would start barking bullshit at you. Not for any reason other than that’s their life.
+In general if you spent more than 5 minutes in front of any building in Brighton Beach, the Yentas would start barking bullshit at you. Not for any reason other than that’s their life.
 
 And just as I was about to get stressed by that Yenta bullshit, my friends pulled up in someone’s dad’s car.
 
@@ -30,7 +30,7 @@ I jumped in the back, and we headed up Ocean Parkway, onto the Belt Parkway and 
 
 I leaned over from the backseat and asked the obvious question, “So who’s party is this?” And my friends looked at each other, looked at me, shrugged and said, “Someone…” Turned out this was a general party that people in certain circles at Midwood High School somehow knew about. And we may or may not be crashing said party, but whatever. It was a full house party so who cared.
 
-I’d been to parties before but this was a house party. I had some silly fantasy ideas of what that might mean. I pictured mutiple floors of a party happening. Kinda like what it seemed like in “Pretty in Pink” but less suburban.
+I’d been to parties before but this was a house party. I had some silly fantasy ideas of what that might mean. I pictured multiple floors of a party happening. Kinda like what it seemed like in “Pretty in Pink” but less suburban.
 
 ***
 
@@ -40,7 +40,7 @@ As we turned onto one of the Park Slope streets I looked around for obvious sign
 
 “Hey,” I said to the kids sitting on the stoop. They said hey back, both looked at each other and then one said, “You don’t go to Midwood, right?” I looked at my friend and said, “Nope. I go to Lincoln.” And the kids on the stoop looked at each other and one of them said, “Lincoln? I think my dad went there.” And with that one of them passed a joint to the other person. Me and my friend were never offered.
 
-And with that we headed inside the Brownstone to see what was up with the party. As we walked in nothing seemed dour, but not much seemed like a party. There was literally jusy a bowl of chips, a bowl of some pretzels and a cooler with a humble amount of beer in it. Some people were sitting around on a nearby couch, others on the stairs. Some music was playing, but it wasn’t too loud. A guy was sitting on the stairs either tuning or playing an accoustic guitar.
+And with that we headed inside the Brownstone to see what was up with the party. As we walked in nothing seemed dour, but not much seemed like a party. There was literally just a bowl of chips, a bowl of some pretzels and a cooler with a humble amount of beer in it. Some people were sitting around on a nearby couch, others on the stairs. Some music was playing, but it wasn’t too loud. A guy was sitting on the stairs either tuning or playing an acoustic guitar.
 
 “Well, I guess this is it,” I said to my friend. We then both looked around and shrugged and decided to see what was happening upstairs.
 
@@ -62,11 +62,11 @@ As we all sat around wondering what to do—or what we just got into—I noticed
 
 I mean, this being Park Slope or not, a car with a window slightly open in the 1980s in Brooklyn was a weird thing to see.
 
-As we approached the car, a friend of mine recognized the car as belonging to the family whose Brownstone party we crashed. We were easilly able to open the car door and jump inside. “Wait, we’ll get busted!” I said but was then shrugged off when my friend said, “It’s no big deal. We can lock it up again.”
+As we approached the car, a friend of mine recognized the car as belonging to the family whose Brownstone party we crashed. We were easily able to open the car door and jump inside. “Wait, we’ll get busted!” I said but was then shrugged off when my friend said, “It’s no big deal. We can lock it up again.”
 
-But then we all noticed that the car was parked in nuetral. “Whoa!” we all said.
+But then we all noticed that the car was parked in neutral. “Whoa!” we all said.
 
-Bored out of our skulls at this bullshit party, we concoted a plan to move the car down the block to the other side of the street.
+Bored out of our skulls at this bullshit party, we concocted a plan to move the car down the block to the other side of the street.
 
 And with that, we opened both side windows, and pushed the car down the street while my friend behind the wheel steered the car.
 
@@ -74,7 +74,7 @@ Soon enough we managed to get the car perfectly parked down the street and heade
 
 Proudly one of my friends found the guy whose family’s Brownstone this party was happening in and drunk giggled, “Hey! Something happened to your car.” The guy’s eyes lit up as he ran outside and stared at the empty space where the car was once parked.
 
-“Oh my God!” he said in a hushed, concerned and meek tone as the three of us all laughed. After a while other party atendees stood with us on the stoop and stared at the empty space on the tree-lined street.
+“Oh my God!” he said in a hushed, concerned and meek tone as the three of us all laughed. After a while other party attendees stood with us on the stoop and stared at the empty space on the tree-lined street.
 
 “What happened? Where is it?” one of the people at the party asked. And just as it seemed like the guy whose family car was seemingly gone was about to cry, we broke down and confessed.
 
@@ -84,11 +84,11 @@ Proudly one of my friends found the guy whose family’s Brownstone this party w
 
 It was weird. The car wasn’t gone or damaged. We just moved it and here is this Slopie kid having a mini breakdown.
 
-As the other party attendies absorbed the situation, they all looked at us three non-Slopie kids and said, “That‘s not funny.” And “You shouldn’t have done that.” Some girl sat down next to the upset kid and put his arm around him.
+As the other party attendees absorbed the situation, they all looked at us three non-Slopie kids and said, “That‘s not funny.” And “You shouldn’t have done that.” Some girl sat down next to the upset kid and put his arm around him.
 
-Us three non-Slopies just said “Sorry…” in various ways and stood around for abit and then headed inside.
+Us three non-Slopies just said “Sorry…” in various ways and stood around for a bit and then headed inside.
 
-After a moment or two, other party attendies came in and said, “We all decided you have to leave.” Which was a weird thing to say, but kind of understandable but still weird at best.
+After a moment or two, other party attendees came in and said, “We all decided you have to leave.” Which was a weird thing to say, but kind of understandable but still weird at best.
 
 “Okay,” we all said as we headed outside.
 
@@ -96,7 +96,7 @@ The kid whose family owned the Brownstone was on the steps crying as if this car
 
 We turned back as we headed down the block and saw the whole “party”—which seemed to consist of 6-8 people standing on the stoop and staring at us.
 
-If the Yentas were barking at me as I waited for my ride back in Brighton Beach, these Slopies were dead staring us with silence and judgement. While nobody explictly said we were non-Slope, deep Brooklyn rednecks we were still treated as such.
+If the Yentas were barking at me as I waited for my ride back in Brighton Beach, these Slopies were dead staring us with silence and judgement. While nobody explicitly said we were non-Slope, deep Brooklyn rednecks we were still treated as such.
 
 We got back in the car and all headed back home. I think I got back at 11:30pm and just headed straight to bed.
 
