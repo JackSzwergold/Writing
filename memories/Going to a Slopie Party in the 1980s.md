@@ -64,7 +64,9 @@ I mean, this being Park Slope or not, a car with a window slightly open in the 1
 
 As we approached the car, a friend of mine recognized the car as belonging to the family whose Brownstone party we crashed. We were easilly able to open the car door and jump inside. “Wait, we’ll get busted!” I said but was then shrugged off when my friend said, “It’s no big deal. We can lock it up again.”
 
-But then we all noticed that the car was parked in nuetral.
+But then we all noticed that the car was parked in nuetral. “Whoa!” we all said.
+
+Bored out of our skulls at this bullshit party, we concoted a plan to move the car down the block to the other side of the street.
 
 ***
 
