@@ -26,7 +26,7 @@ In general if you spent more than 5 minutes in front of any buidling in Brighton
 
 And just as I was about to get stressed by that Yenta bullshit, my friends pulled up in someone’s dad’s car.
 
-I jumped in the back, and we headed up Ocean Parkay, onto the Belt Parkway and up to Park Slope.
+I jumped in the back, and we headed up Ocean Parkway, onto the Belt Parkway and up to Park Slope.
 
 ***
 
