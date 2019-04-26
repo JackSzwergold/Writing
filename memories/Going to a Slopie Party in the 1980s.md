@@ -38,7 +38,9 @@ As we turned onto one of the Park Slope streets I looked around for obvious sign
 
 “This is it,” a friend said. And with that done, me and the friend who wasn’t driving jumped out while my other friend who was driving went to park the car.
 
+“Hey,” I said to the kids sitting on the stoop. They said hey back, both looked at each other and then one said, “You don’t go to Midwood, right?” I looked at my friend and said, “Nope. I go to Lincoln.” And the kids on the stoop looked at each other and one of them said, “Lincoln? I think my dad went there.” And with that one of them passed a joint to the other person. Me and my friend were never offered.
 
+And with that we headed inside the Brownstone to see what was up with the party. As we walked in nothing seemed dour, but not much seemed like a party. There was literally jusy a bowl of chips, a bowl of some pretzels and a cooler with a humble amount of beer in it
 
 ***
 
