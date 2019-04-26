@@ -22,7 +22,7 @@ It was kind of excruciating to be honest.
 
 “Why don’t you go home?” others would insist.
 
-In general if you spent more than 5 minutes 
+In general if you spent more than 5 minutes in front of any buidling in Brighton Beach, the Yentas would start barking bullshit at you. Not for any reason other than that’s their life.
 
 ***
 
