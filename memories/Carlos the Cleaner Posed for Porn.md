@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-I worked for a comic book company back in the late 1980s. I wasn’t an artist or anything, but I was basically a “worker” wokring in the shipping department, taking orders, doing data entry, and all that.
+I worked for a comic book company called Castilian Communications back in the late 1980s. I wasn’t an artist or anything, but I was basically a “worker” wokring in the shipping department, taking orders, doing data entry, and all that.
 
 And the company itself was a boutique business run out of a loft on 19th Street in the Flatiron district. One half of the loft was an illustration business, ther other half was a graphic novel business. The two guys who ran the place lived in the back of the loft.
 
@@ -15,6 +15,8 @@ I generally didn’t get along with anyone there. Especially when the main “go
 So after a few weeks of making maybe $80 total, Rob called me and said there was a job more up my alley at this place called Castilian Communications. I never heard of them before, but it sounded more like a real job. So I called them up, met the owner, we got along and I got a summer job in “the city.”
 
 ***
+
+
 
 ***
 
