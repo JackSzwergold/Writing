@@ -32,7 +32,9 @@ When he cooked for us that was a genuine treat. It was an all day affair. I woul
 
 Some days I just grinned and beared it. Just humoring him and nodding in agreement as I walked around the office. Other days I would avoid him which was suprisingly easy given the size of the loft. In general, I was cool with it.
 
-Then when the time came for him to serve the food, he would make sure to 
+Then when the time came for him to serve the food, he would make sure to remind me the chicken tasted better than pussy by repeatedly saying to me “Jack, you’re gonna love it. It tastes better than pussy, believe me!”
+
+And you know what? The chicken tasted really good.
 
 ***
 
