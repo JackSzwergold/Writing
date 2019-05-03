@@ -36,7 +36,7 @@ Then when the time came for him to serve the food, he would make sure to remind 
 
 And you know what? The chicken tasted really good. Was it better than pussy? I don’t know know if that is a comparison that respects the chicken or pussy in a fair way, but it was decent chicken.
 
-Then one day after one of these meals, Carlos got into one of his sporadic fights 
+Then one day after one of these meals, Carlos got into one of his sporadic fights with the head guy at Castilian Communications. I think it was over pay or something. Maybe money owed for other stuff? Who knows. But when these fights happened, we all cleared out and headed back to our humble desk area.
 
 ***
 
