@@ -62,6 +62,18 @@ As I put down my bag I said, “Really?” and with that Miguel turned around an
 
 “Wow!” I said, as I closed the folder up again and passed it back to Miguel. “No! No! Jack you are missing the best part,” he said as he opened it up, flipped some pages and passed it back to me.
 
+As I took the magazine in my hand, I looked at the page Miguel opened it to and there was a full spread featuring Carlos. And wow, the guy was hung.
+
+“It’s like down to his knee?” I said as I looked at it.
+
+“Yup!” Miguel said.
+
+I stared at it a bit and looked around and asked “Where’s Carlos?” Miguel responded “He’s running some errands. But we can’t let the boss see it.”
+
+It wasn’t like the boss was homophobic or a prude or anything—far from either to be honest—but Carlos just never let the boss see any of the shots from his brief stint as a male porn model.
+
+With that I passed the magazine back to to Miguel who slipped it back into the pile of stuff on the shelf behind him and we all got back to doing whatever we were doing that day.
+
 ***
 
 *Carlos the Cleaner Posed for Porn (c) Copyright by Jack Szwergold; written on April 26, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
