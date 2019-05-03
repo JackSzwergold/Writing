@@ -24,13 +24,13 @@ Like whenever Carlos—the cleaning guy—would do pretty much anything.
 
 ***
 
-Carlos was Puerto Rican and proud. Was short, wore a cap with the Puerto Rican flag on it and had a huge moustache that made him look like John Oates from *Hall and Oates*. He was cool, but he’d needle you a bit just for fun. And he liked needling me a lot because as some deep Brooklyn white guy working in the Flatiron I was kinda “redneck” compared to them.
+Carlos was Puerto Rican and proud. Was short, wore a cap with the Puerto Rican flag on it and had a huge mustache that made him look like John Oates from *Hall and Oates*. He was cool, but he’d needle you a bit just for fun. And he liked needling me a lot because as some deep Brooklyn white guy working in the Flatiron I was kinda “redneck” compared to them.
 
 When he cooked for us that was a genuine treat. It was an all day affair. I would get in at 10:00am and he would already be cooking a huge pot of rice, beans and chicken. The rice was done quickly and would just sit there. The beans and chicken? He’d babysit them all day so he could serve it to us around 4:00pm or 5:00pm.
 
 “You’re gonna like it, Jack,” he’d pester me all day saying. “It tastes better than pussy Jack. I assure you,” he’d add.
 
-Some days I just grinned and beared it. Just humoring him and nodding in agreement as I walked around the office. Other days I would avoid him which was suprisingly easy given the size of the loft. In general, I was cool with it.
+Some days I just grinned and bore it. Just humoring him and nodding in agreement as I walked around the office. Other days I would avoid him which was surprisingly easy given the size of the loft. In general, I was cool with it.
 
 Then when the time came for him to serve the food, he would make sure to remind me the chicken tasted better than pussy by repeatedly saying to me “Jack, you’re gonna love it. It tastes better than pussy, believe me!”
 
@@ -48,9 +48,9 @@ What would happen is Carlos and the owner would fight. The owner would go off so
 
 This was all predictable and would usually blow over in 10 to 15 minutes. But when it happened at the end of the day it was extra annoying. Nobody wanted to leave in the middle of one of his rants and somehow—inadvertently—disrespect him. And it was the end of the day and we all wanted to go home after eating that delicious “better than pussy” chicken he made for us.
 
-But this time he added something new to his rant, “You know, I was famous once. I posed for porn magazines!” Which was a new one so we all instantly said, “Really?” and he repsonded, “You don’t believe me? I did!”
+But this time he added something new to his rant, “You know, I was famous once. I posed for porn magazines!” Which was a new one so we all instantly said, “Really?” and he responded, “You don’t believe me? I did!”
 
-Somehow he interpretted us questioning his porn career as some kind of personal slight. “Really? Really? That is what you think?” he would say all nervous. “Well fuck you! Fuck you Jack! Fuck you Miguel! Fuck you Shannon!” he screamed at us. “Just you wait! I’lll show you!” he said as he stormed off, got to the elevator and shouted a final “Fuck you!” to all of us as he headed out.
+Somehow he interpreted us questioning his porn career as some kind of personal slight. “Really? Really? That is what you think?” he would say all nervous. “Well fuck you! Fuck you Jack! Fuck you Miguel! Fuck you Shannon!” he screamed at us. “Just you wait! I’lll show you!” he said as he stormed off, got to the elevator and shouted a final “Fuck you!” to all of us as he headed out.
 
 We all looked at each other stunned, chatted a bit about Carlos and then we all headed home.
 
@@ -58,7 +58,7 @@ We all looked at each other stunned, chatted a bit about Carlos and then we all 
 
 The next day I came in a little late, but when I arrived it seemed like another boring day at the boutique loft office when suddenly Miguel nervously said to me, “Carlos brought in one of the porn magazines he was in.”
 
-As I put down my bag I said, “Really?” and with that Miguel turned around and passed me a manilla office folder. I opened it up and inside of it was some kind of male porno mag—*Caivellier* or something like that—and there on the cover was a shirtless, hairy and ripped Carlos in all of his glory. His jeans were open, but that was about it for the cover.
+As I put down my bag I said, “Really?” and with that Miguel turned around and passed me a manilla office folder. I opened it up and inside of it was some kind of male porno mag—*Cavalier* or something like that—and there on the cover was a shirtless, hairy and ripped Carlos in all of his glory. His jeans were open, but that was about it for the cover.
 
 “Wow!” I said, as I closed the folder up again and passed it back to Miguel. “No! No! Jack you are missing the best part,” he said as he opened it up, flipped some pages and passed it back to me.
 
