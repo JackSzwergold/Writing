@@ -30,6 +30,10 @@ When he cooked for us that was a genuine treat. It was an all day affair. I woul
 
 “You’re gonna like it, Jack,” he’d pester me all day saying. “It tastes better than pussy Jack. I assure you,” he’d add.
 
+Some days I just grinned and beared it. Just humoring him and nodding in agreement as I walked around the office. Other days I would avoid him which was suprisingly easy given the size of the loft. In general, I was cool with it.
+
+Then when the time came for him to serve the food, he would make sure to 
+
 ***
 
 *Carlos the Cleaner Posed for Porn (c) Copyright by Jack Szwergold; written on April 26, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
