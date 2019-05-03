@@ -28,9 +28,7 @@ Carlos was Puerto Rican and proud. Was short, wore a cap with the Puerto Rican f
 
 When he cooked for us that was a genuine treat. It was an all day affair. I would get in at 10:00am and he would already be cooking a huge pot of rice, beans and chicken. The rice was done quickly and would just sit there. The beans and chicken? He’d babysit them all day so he could serve it to us around 4:00pm or 5:00pm.
 
-***
-
-**QUICK NOTES**: About a co-worker at Castilian Communications who mainly cleaned the place was obsessed with proving to us he posed in a porn magazine. He liked to make chicken and rice and would come over to me and say, “It’s better than pussy, right Jack?”
+“You’re gonna like it, Jack,” he’d pester me all day saying. “It tastes better than pussy Jack. I assure you,” he’d add.
 
 ***
 
