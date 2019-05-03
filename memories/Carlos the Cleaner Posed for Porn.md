@@ -34,7 +34,9 @@ Some days I just grinned and beared it. Just humoring him and nodding in agreeme
 
 Then when the time came for him to serve the food, he would make sure to remind me the chicken tasted better than pussy by repeatedly saying to me “Jack, you’re gonna love it. It tastes better than pussy, believe me!”
 
-And you know what? The chicken tasted really good.
+And you know what? The chicken tasted really good. Was it better than pussy? I don’t know know if that is a comparison that respects the chicken or pussy in a fair way, but it was decent chicken.
+
+Then one day after one of these meals, Carlos got into one of his sporadic fights 
 
 ***
 
