@@ -16,6 +16,10 @@ So after a few weeks of making maybe $80 total, Rob called me and said there was
 
 ***
 
+So anyway, the job at Castilian Communications was pretty cool for a summer job. I unloaded trucks, filled orders, responded to customer inquiries/complaints, went to the bank, went to the post office and all of that stuff.
+
+But the thing is the place wasn’t really an office or a real workplace. It was like a huge home office that I happened to work in so things got oddly casual at times.
+
 
 
 ***
