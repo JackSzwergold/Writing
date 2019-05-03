@@ -42,7 +42,11 @@ And that’s where we waited for the Carlos’ post fight venting.
 
 ***
 
-What would happen is
+What would happen is Carlos and the owner would fight. The owner would go off somewhere and Carlos would then be flustered, paced around the office and then would come back to our humble little desk area to vent.
+
+“He’s bullshit man!” he would say. “I do a ton of work here and he treats me like shit,” he would add. “I’m gonna quit, man, and let him learn,” and so on and so on.
+
+This was all predictable and would usually blow over in 10 to 15 minutes. But when it happened at the end of the day it was extra annoying. Nobody wanted to leave in the middle of one of his rants and somehow—inadvertently—disrespect him.
 
 ***
 
