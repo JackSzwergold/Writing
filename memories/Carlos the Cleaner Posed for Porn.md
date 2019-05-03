@@ -50,7 +50,9 @@ This was all predictable and would usually blow over in 10 to 15 minutes. But wh
 
 But this time he added something new to his rant, “You know, I was famous once. I posed for porn magazines!” Which was a new one so we all instantly said, “Really?” and he repsonded, “You don’t believe me? I did!”
 
-Somehow he interpretted us questioning his porn career as some kind of personal slight.
+Somehow he interpretted us questioning his porn career as some kind of personal slight. “Really? Really? That is what you think?” he would say all nervous. “Well fuck you! Fuck you Jack! Fuck you Miguel! Fuck you Shannon!” he screamed at us. “Just you wait! I’lll show you!” he said as he stormed off, got to the elevator and shouted a final “Fuck you!” to all of us as he headed out.
+
+We all looked at each other stunned
 
 ***
 
