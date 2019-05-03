@@ -2,7 +2,9 @@
 
 By Jack Szwergold
 
-About a co-worker at Castilian Communications who mainly cleaned the place was obsessed with proving to us he posed in a porn magazine. He liked to make chicken and rice and would come over to me and say, “It’s better than pussy, right Jack?”
+***
+
+**QUICK NOTES**: About a co-worker at Castilian Communications who mainly cleaned the place was obsessed with proving to us he posed in a porn magazine. He liked to make chicken and rice and would come over to me and say, “It’s better than pussy, right Jack?”
 
 ***
 
