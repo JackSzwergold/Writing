@@ -8,6 +8,14 @@ And the company itself was a boutique business run out of a loft on 19th Street 
 
 I got hooked up with the gig after writing for a summer job at another boutique comic book publisher called Rough Books. They were well known and one of the main guys at the place gained some fame writing a comic book about his family’s experience during the Holocaust. And knowing that, I wrote to them, explained my interest in comics as well as my family’s connection to the Holocaust, and asked for a summer job. They responded and I got a “job” at the place.
 
+But it turned out to be just a shitty internship doing things I wasn’t really interested in for barely any salary whatsoever. Yeah, as an adult now I understand the value of a real internship. But back then I just wanted a job at a cool place and—most of all—to get paid in the process.
+
+I generally didn’t get along with anyone there. Especially when the main “gofer” at the place—this guy named Rob—would delay paying me every week as he promised. It was my first introduction to the art and publishing world, but I wasn’t really ready for it.
+
+So after a few weeks of making maybe $80 total, Rob called me and said there was a job more up my alley at this place called Castilian Communications. I never heard of them before, but it sounded more like a real job. So I called them up, met the owner, we got along and I got a summer job in “the city.”
+
+***
+
 ***
 
 **QUICK NOTES**: About a co-worker at Castilian Communications who mainly cleaned the place was obsessed with proving to us he posed in a porn magazine. He liked to make chicken and rice and would come over to me and say, “It’s better than pussy, right Jack?”
