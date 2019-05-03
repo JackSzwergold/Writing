@@ -24,7 +24,7 @@ Like whenever Carlos—the cleaning guy—would cook us all meals.
 
 ***
 
-Carlos was Puerto Rican and proud. Was short, wore a cap with the Puerto Rican flag on it and had a huge moustache that made him look like John Oates from *Hall and Oates*. He was cool, but he’d needle you a bit just for fun. And he liked 
+Carlos was Puerto Rican and proud. Was short, wore a cap with the Puerto Rican flag on it and had a huge moustache that made him look like John Oates from *Hall and Oates*. He was cool, but he’d needle you a bit just for fun. And he liked needling me a lot because as some deep Brooklyn white guy working in the Flatiron I was kinda “redneck” compared to them.
 
 
 
