@@ -20,13 +20,13 @@ So anyway, the job at Castilian Communications was pretty cool for a summer job.
 
 But the thing is the place wasn’t really an office or a real workplace. It was like a huge home office that I happened to work in so things got oddly casual at times.
 
-Like whenever Carlos—the cleaning guy—would cook us all meals.
+Like whenever Carlos—the cleaning guy—would do pretty much anything.
 
 ***
 
 Carlos was Puerto Rican and proud. Was short, wore a cap with the Puerto Rican flag on it and had a huge moustache that made him look like John Oates from *Hall and Oates*. He was cool, but he’d needle you a bit just for fun. And he liked needling me a lot because as some deep Brooklyn white guy working in the Flatiron I was kinda “redneck” compared to them.
 
-
+When he
 
 ***
 
