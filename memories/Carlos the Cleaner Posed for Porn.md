@@ -56,6 +56,12 @@ We all looked at each other stunned, chatted a bit about Carlos and then we all 
 
 ***
 
+The next day I came in a little late, but when I arrived it seemed like another boring day at the boutique loft office when suddenly Miguel nervously said to me, “Carlos brought in one of the porn magazines he was in.”
+
+As I put down my bag I said, “Really?” and with that Miguel turned around and passed me a manilla office folder. I opened it up and inside of it was some kind of male porno mag—*Caivellier* or something like that—and there on the cover was a shirtless, hairy and ripped Carlos in all of his glory. His jeans were open, but that was about it for the cover.
+
+“Wow!” I said, as I closed the folder up again and passed it back to Miguel. “No! No! Jack you are missing the best part,” he said as he opened it up, flipped some pages and passed it back to me.
+
 ***
 
 *Carlos the Cleaner Posed for Porn (c) Copyright by Jack Szwergold; written on April 26, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
