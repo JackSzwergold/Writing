@@ -2,9 +2,9 @@
 
 By Jack Szwergold
 
-I worked for a comic book company called Castilian Communications back in the late 1980s. I wasn’t an artist or anything, but I was basically a “worker” wokring in the shipping department, taking orders, doing data entry, and all that.
+I worked for a comic book company called Castilian Communications back in the late 1980s. I wasn’t an artist or anything, but I was basically a “worker” working in the shipping department, taking orders, doing data entry, and all that.
 
-And the company itself was a boutique business run out of a loft on 19th Street in the Flatiron district. One half of the loft was an illustration business, ther other half was a graphic novel business. The two guys who ran the place lived in the back of the loft.
+And the company itself was a boutique business run out of a loft on 19th Street in the Flatiron district. One half of the loft was an illustration business, the other half was a graphic novel business. The two guys who ran the place lived in the back of the loft.
 
 I got hooked up with the gig after writing for a summer job at another boutique comic book publisher called Rough Books. They were well known and one of the main guys at the place gained some fame writing a comic book about his family’s experience during the Holocaust. And knowing that, I wrote to them, explained my interest in comics as well as my family’s connection to the Holocaust, and asked for a summer job. They responded and I got a “job” at the place.
 
