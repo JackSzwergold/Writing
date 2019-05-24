@@ -44,9 +44,9 @@ A few weeks had passed and my brother called for his weekly family check in. His
 
 So a short while after talking to my mom or dad, my mom or dad would walk over to my room and say “Ben wants to talk to you…” Then I’d drag myself to the phone, and engage in some pandering idle chit chat with my “brother” (who I never had a relationship with) who was 20 years older than me as if I cared. At some point he would always say I was “always welcome” to visit him and his utterly miserable wife in Washington Heights. At no point did he ever get the hint I hated visiting him up there nor that I found these “glib” conversations of any value at best.
 
-So after some chit chat, his miserable wife wanted to talk to me. I really braced myself when this happened, because while my brother could be distracted, Karen was a stubborn and nasty piece of work.
+So after some chit chat—and just when I thought I could get off the phone and get back to doing anything else—he told me his miserable wife wanted to talk to me. I really braced myself when this happened, because while my brother could be easily distracted and entertained, Karen (the miserable wife herself) was a stubborn, nasty and massively passive aggressive piece of work herself.
 
-She was a teacher who studied at the Bank Street College in the 1970s; thus she was a kind of down-to-earth yet condescending and elitist know it all who “pitied” my public school life. I mean, she read some books about it, right?
+She was a math teacher who studied at the Bank Street College in the West Village in the 1970s; thus she was a kind of “down-to-earth” yet condescending and elitist know-it-all who “pitied” my public school life and would try to “save” me from my dreaded non-Montessori-based education. She also creepily liked to engage children of all ages as if they were all the “same age” so that made it even weirder.
 
 Anyway, so here I am talking on the phone to her and none of my generic chit-chat items would stop her from prying. “Really?” she would say and “What else is happening?” she would add. Typed out that seems innocuous and silly to get upset about. But when you have a full grown adult—who is 20 years older than you—prying into your adolescent life it was all anxiety inducing bullshit.
 
