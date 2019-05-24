@@ -62,7 +62,7 @@ I handed the phone back to my dad. And after a pause you could tell she started 
 
 My dad was still riled up about it, but when he talked to my brother—in between the Yiddish or Polish being spoken—he clearly said in English, “It’s none of your business!”
 
-And after a few minutes, he hung up the phone and looked at me. He calmly—but in a breathless way—simply said, “You shouldn’t have told her.” And he was right. I shouldn’t have told her. And I felt horrible.
+And after a few minutes, he hung up the phone, took a deep breath and looked at me. He calmly—but in a breathless way—simply said, “You shouldn’t have told her.” And he was right. I shouldn’t have told her. And I felt horrible.
 
 He went back to the living room to watch TV. I waited a while and joined him. He wasn’t that upset anymore. But I was still regretting what I said. He saw this and said, “No big deal. We sold the stuff anyway.” And patted my hand.
 
