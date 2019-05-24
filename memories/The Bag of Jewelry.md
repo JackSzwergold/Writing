@@ -48,7 +48,7 @@ So after some chit chat—and just when I thought I could get off the phone and 
 
 She was a math teacher who studied at the Bank Street College in the West Village in the 1970s; thus she was a kind of “down-to-earth” yet condescending and elitist know-it-all who “pitied” my public school life and would try to “save” me from my dreaded non-Montessori-based education. She also creepily liked to engage children of all ages as if they were all the “same age” so that made it even weirder.
 
-Anyway, so here I am talking on the phone to her and none of my generic chit-chat items would stop her from prying. “Really?” she would say and “What else is happening?” she would add. Typed out that seems innocuous and silly to get upset about. But when you have a full grown adult—who is 20 years older than you—prying into your adolescent life it was all anxiety inducing bullshit.
+Anyway, so here I am talking on the phone to her and none of my generic chit-chat items would stop her from prying into my teenage life. “Really?” she would say and “What else is happening?” she would add when I tried to lob verbal distractions her way. Typed out that seems innocuous and silly to get upset about. But when you have a full grown adult—who is 20 years older than you—prying into your teenage life it all added up to just being a pile of anxiety inducing bullshit.
 
 At some point she cracked me open enough to blurt something about the Crown Royal bag. Immediately after saying something about it being filled with jewelry she said, “Well you should return it to the police!” Which anyone who knew anything about finding stuff on the street in a poor neighborhood would know was stupid on so many levels.
 
