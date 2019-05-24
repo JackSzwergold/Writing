@@ -50,9 +50,11 @@ She was a math teacher who studied at the Bank Street College in the West Villag
 
 Anyway, so here I am talking on the phone to her and none of my generic chit-chat items would stop her from prying into my teenage life. “Really?” she would say and “What else is happening?” she would add when I tried to lob verbal distractions her way. Typed out that seems innocuous and silly to get upset about. But when you have a full grown adult—who is 20 years older than you—prying into your teenage life it all added up to just being a pile of anxiety inducing bullshit.
 
-At some point she cracked me open enough to blurt something about the Crown Royal bag. Immediately after saying something about it being filled with jewelry she said, “Well you should return it to the police!” Which anyone who knew anything about finding stuff on the street in a poor neighborhood would know was stupid on so many levels.
+At some point she mangaged to genteelly break down my will enough so that I would blurt something out I didn’t want to share. Such as me letting something about the Crown Royal bag slip out to her.
 
-First, the chances of the police being able to reunite the jewelry with the original owner was pretty much zilch. Second, you bring to the police you run the risk of being known as a rat in the neighborhood. Taking the loot and selling it was actually the best and most practical thing to do.
+Within milliseconds of me saying something about the jewelry filled Crown Royal bag haul she said, “Well you should return it to the police.” Which anyone who knew anything about finding stuff on the street in a poor neighborhood would know was stupid on so many levels.
+
+First, the chances of the police being able to reunite the jewelry with the original owner—or owners—was pretty much zilch. Second, if you brought to the police into something like that you ran the risk of being known as a rat in the neighborhood. Taking the jewelry and selling it was actually the best—and most realistic—thing one could do all things considered.
 
 But the damage was done. I blurted out something I should have not blurted out and now my brother’s miserable wife was going to start a fight with my parents.
 
