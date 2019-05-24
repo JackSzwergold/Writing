@@ -56,13 +56,13 @@ Within milliseconds of me saying something about the jewelry filled Crown Royal 
 
 First, the chances of the police being able to reunite the jewelry with the original owner—or owners—was pretty much zilch. Second, if you brought to the police into something like that you ran the risk of being known as a rat in the neighborhood. Taking the jewelry and selling it was actually the best—and most realistic—thing one could do all things considered.
 
-But the damage was done. I blurted out something I should have not blurted out and now my brother’s miserable wife was going to start a fight with my parents.
+But my lose lips slipped and the damage was done. I blurted out something I should have not blurted out and now my brother’s miserable wife was going to start a fight with my parents about the jewelry.
 
-I handed the phone back to my dad. And she started ripping into him. I have no idea what she said, but my father got visibly agitated by it. He was shouting and has faced was getting red. After a while he asked that he talk to my brother, his son, again.
+I handed the phone back to my dad. And after a pause you could tell she started ripping into him. I have no idea what she said, but my father got visibly agitated by it. He was shouting and his faced was getting red. After a while he asked that he talk to her husband—my brother, his son—again.
 
-My dad was still excited, but when he talked to my brother—in between the Yiddish or Polish being spoken—he clearly said, “None of your business!”
+My dad was still riled up about it, but when he talked to my brother—in between the Yiddish or Polish being spoken—he clearly said in English, “It’s none of your business!”
 
-After a while he hung up the phone. He looked at me and calmly—but kinda breathlessly—said, “You shouldn’t have told her.” And he was right. I felt horrible.
+And after a few minutes, he hung up the phone and looked at me. He calmly—but in a breathless way—simply said, “You shouldn’t have told her.” And he was right. I shouldn’t have told her. And I felt horrible.
 
 He went back to the living room to watch TV. I waited a while and joined him. He wasn’t that upset anymore. But I was still regretting what I said. He saw this and said, “No big deal. We sold the stuff anyway.” And patted my hand.
 
