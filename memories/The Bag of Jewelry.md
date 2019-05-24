@@ -16,9 +16,9 @@ I walked in, saw the brown paper grocery bag sitting on the kitchen table, but i
 
 “What’s in there?” I asked. And as my mom and dad looked at me I looked at the table and saw for myself what was in there: It was lots of gold and shiny things. “Jewelry,” my dad said. My mom added, “I find this in the street between this side and the other side,” which I knew, in her broken English, to me meant she found it on the median between on Brighton Beach Avenue between the block our building was on and the supermarket across the street.
 
-I leaned in cloaser to check out the haul: Lots of jewelry. Lots of gold-ish looking items. Were they real or fake? No clue. But lots of gold-ish chains and other stuff… But mainly gold-ish chains.
+I leaned in cloaser to check out the haul: Lots of jewelry. Lots of gold colored pieces of jewelry. Were they real or fake? No clue. But lots of gold-ish chains and other stuff… But mainly gold-ish chains.
 
-I felt excited. No idea what anything was worth—or where this Crown Royal bag came from—but I knew one thing: My mom would sell it at the local jewelry store a few blocks away.
+I felt excited for us. No idea what anything was worth—or where this Crown Royal bag came from—but I knew one thing: My mom would sell it at the local jewelry store a few blocks away and that would ease our family’s poverty a bit.
 
 “Don’t tell anybody,” my dad said. And I knew what he meant. Life was hard enough without neighborhood Yentas, gossips and low lifes knowing that we found this haul.
 
