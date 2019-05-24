@@ -12,11 +12,11 @@ As she waked in, she started to excitedly whisper to my dad in Polish or Yiddish
 
 After a brief pause, I stood up and headed into the kitchen to see for myself what the fuss was about.
 
-I walked in, saw the grocery bag sitting on the kitchen table, but it was still full. My mom and dad though were opening up a Crown Royal bag on the table and going through the contents.
+I walked in, saw the brown paper grocery bag sitting on the kitchen table, but it was still packed and full. Instead, my mom and dad though were opening up a small-ish purple Crown Royal bag on the table and going through the contents.
 
-“What’s in there?” I asked. And as my mom and dad looked at me I looked at the table and saw lots of gold and shiny things. “Jewelry,” my dad said. My mom added, “I find this in the street between this side and the other side,” which I knew, in her broken English, to me meant she found it on the median between traffic between our building and the supermarket.
+“What’s in there?” I asked. And as my mom and dad looked at me I looked at the table and saw for myself what was in there: It was lots of gold and shiny things. “Jewelry,” my dad said. My mom added, “I find this in the street between this side and the other side,” which I knew, in her broken English, to me meant she found it on the median between on Brighton Beach Avenue between the block our building was on and the supermarket across the street.
 
-I came closer and looked and checked out the haul: Lots of jewelry. Lots of gold. Real or fake? No clue. But lots of gold chains. Other stuff too but mainly gold chains.
+I leaned in cloaser to check out the haul: Lots of jewelry. Lots of gold-ish looking items. Were they real or fake? No clue. But lots of gold-ish chains and other stuff… But mainly gold-ish chains.
 
 I felt excited. No idea what anything was worth—or where this Crown Royal bag came from—but I knew one thing: My mom would sell it at the local jewelry store a few blocks away.
 
