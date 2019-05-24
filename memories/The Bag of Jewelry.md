@@ -4,7 +4,7 @@ By Jack Szwergold
 
 It was sometime in the 1980s in Brighton Beach, and my mom wanted to go out to get something from the supermarket across the avenue. It was either called Met Foods or Speedway; don’t remember when the name switch happened but it was still the same supermarket even with branding changes. Larger than a corner store and smaller than a “good” supermarket like Waldbaum’s or Pathmark. Whatever the size it was my family’s supermarket.
 
-Andway, just before the place closed—maybe 7:00pm or 8:00pm—when she headed out. “I need to buy something,” she said as she headed out the front door. My dad and I really didn’t know what she had to get, but who knew. We really didn’t stock up on anything past the basics in the pantry and my dad knew what we had. She most likely heard about something from one of her co-workers at the Gowanus sweatshop she worked in or someone in front of the building and just decided she needed it at that moment.
+Anyway, just before the place closed—maybe 7:00pm or 8:00pm—when she headed out. “I need to buy something,” she said as she headed out the front door. My dad and I really didn’t know what she had to get, but who knew. We really didn’t stock up on anything past the basics in the pantry and my dad knew what we had. She most likely heard about something from one of her co-workers at the Gowanus sweatshop she worked in or someone in front of the building and just decided she needed it at that moment.
 
 Anyway, after about 20 minutes or so the front buzzer rang, it was my mom and my dad went to the front door to open it up for her and she pretty much ran as fast as she could into the apartment. She was no sprinter, but the urgency of her pace was faster than her usual stroll.
 
@@ -16,7 +16,7 @@ I walked in, saw the brown paper grocery bag sitting on the kitchen table, but i
 
 “What’s in there?” I asked. And as my mom and dad looked at me I looked at the table and saw for myself what was in there: It was lots of gold and shiny things. “Jewelry,” my dad said. My mom added, “I find this in the street between this side and the other side,” which I knew, in her broken English, to me meant she found it on the median between on Brighton Beach Avenue between the block our building was on and the supermarket across the street.
 
-I leaned in cloaser to check out the haul: Lots of jewelry. Lots of gold colored pieces of jewelry. Were they real or fake? No clue. But lots of gold-ish chains and other stuff… But mainly gold-ish chains.
+I leaned in closer to check out the haul: Lots of jewelry. Lots of gold colored pieces of jewelry. Were they real or fake? No clue. But lots of gold-ish chains and other stuff… But mainly gold-ish chains.
 
 I felt excited for us. No idea what anything was worth—or where this Crown Royal bag came from—but I knew one thing: My mom would sell it at the local jewelry store a few blocks away and that would ease our family’s poverty a bit.
 
@@ -50,13 +50,13 @@ She was a math teacher who studied at the Bank Street College in the West Villag
 
 Anyway, so here I am talking on the phone to her and none of my generic chit-chat items would stop her from prying into my teenage life. “Really?” she would say and “What else is happening?” she would add when I tried to lob verbal distractions her way. Typed out that seems innocuous and silly to get upset about. But when you have a full grown adult—who is 20 years older than you—prying into your teenage life it all added up to just being a pile of anxiety inducing bullshit.
 
-At some point she mangaged to genteelly break down my will enough so that I would blurt something out I didn’t want to share. Such as me letting something about the Crown Royal bag slip out to her.
+At some point she managed to genteelly break down my will enough so that I would blurt something out I didn’t want to share. Such as me letting something about the Crown Royal bag slip out to her.
 
 Within milliseconds of me saying something about the jewelry filled Crown Royal bag haul she said, “Well you should return it to the police.” Which anyone who knew anything about finding stuff on the street in a poor neighborhood would know was stupid on so many levels.
 
 First, the chances of the police being able to reunite the jewelry with the original owner—or owners—was pretty much zilch. Second, if you brought to the police into something like that you ran the risk of being known as a rat in the neighborhood. Taking the jewelry and selling it was actually the best—and most realistic—thing one could do all things considered.
 
-But my lose lips slipped and the damage was done. I blurted out something I should have not blurted out and now my brother’s miserable wife was going to start a fight with my parents about the jewelry.
+But my loose lips slipped and the damage was done. I blurted out something I should have not blurted out and now my brother’s miserable wife was going to start a fight with my parents about the jewelry.
 
 I handed the phone back to my dad. And after a pause you could tell she started ripping into him. I have no idea what she said, but my father got visibly agitated by it. He was shouting and his faced was getting red. After a while he asked that he talk to her husband—my brother, his son—again.
 
