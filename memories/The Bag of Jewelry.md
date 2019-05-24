@@ -40,7 +40,9 @@ So with the jewelry sold, all that was left was a purple Crown Royal bag that sh
 
 ***
 
-Some time later, my brother called for his weekly family check in. This stuff was tedious for me at best. At some time after talking to my mom or dad, my mom or dad would walk over to my room and say “Ben wants to talk to you…” I’d drag myself to the phone, and engage in some pandering idle chit chat with my “brother” (who I never had a relationship with) who was 20 years older than me. At some point he would always say I was “always welcome” to visit him and his miserable wife in Washington Heights. At no point did he ever get the hint I hated visiting him up there.
+A few weeks had passed and my brother called for his weekly family check in. His check in calls were tedious for me at best but I knew the routine: Waited a short bit for him to talk to my mom and dad and then I got on the phone and talked to him to “make him happy” or something.
+
+So a short while after talking to my mom or dad, my mom or dad would walk over to my room and say “Ben wants to talk to you…” I’d drag myself to the phone, and engage in some pandering idle chit chat with my “brother” (who I never had a relationship with) who was 20 years older than me. At some point he would always say I was “always welcome” to visit him and his miserable wife in Washington Heights. At no point did he ever get the hint I hated visiting him up there.
 
 So after some chit chat, his miserable wife wanted to talk to me. I really braced myself when this happened, because while my brother could be distracted, Karen was a stubborn and nasty piece of work.
 
