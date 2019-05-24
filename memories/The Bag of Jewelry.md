@@ -10,7 +10,7 @@ Anyway, after about 20 minutes or so the front buzzer rang, it was my mom and my
 
 As she waked in, she started to excitedly whisper to my dad in Polish or Yiddish—definitely not English—as they both hurried into the apartment and then straight into the kitchen.
 
-After a pause, I stood up, headed into the kitchen to see what the fuss was about.
+After a brief pause, I stood up and headed into the kitchen to see for myself what the fuss was about.
 
 I walked in, saw the grocery bag sitting on the kitchen table, but it was still full. My mom and dad though were opening up a Crown Royal bag on the table and going through the contents.
 
