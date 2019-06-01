@@ -24,7 +24,7 @@ Like whenever Carlos—the cleaning guy—would do pretty much anything in the o
 
 ***
 
-Carlos was a NYC born and bred Puerto Rican guy and proud of it. He was short, wore a cap with the Puerto Rican flag on it and had a huge mustache that made him look exactly like John Oates from *Hall and Oates*. He was cool, but he’d needle you a bit just for fun. And he liked needling me a lot because as some deep Brooklyn white guy working in the Flatiron I was kinda “redneck” compared to them.
+Carlos was a NYC born and bred Puerto Rican guy and proud of it. He was short, wore a cap with the Puerto Rican flag on it and had a huge mustache that made him look exactly like John Oates from *Hall and Oates*. He was cool, but he’d needle, harangue and pester you a bit just for fun. And he liked pick on me a lot because—as some deep Brooklyn white guy working in “the city”—I was kind of a “redneck” compared to them.
 
 When he cooked for us that was a genuine treat. It was an all day affair. I would get in at 10:00am and he would already be cooking a huge pot of rice, beans and chicken. The rice was done quickly and would just sit there. The beans and chicken? He’d babysit them all day so he could serve it to us around 4:00pm or 5:00pm.
 
