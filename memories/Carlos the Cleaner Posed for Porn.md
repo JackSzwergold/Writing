@@ -54,7 +54,7 @@ But this time he added something new to his rant, “You know, I was famous once
 
 Somehow he interpreted us questioning his porn career as some kind of personal slight. “Really? Really?!? That is what you think?” he would say all nervous and indignant. “Well fuck you! Fuck you Jack! Fuck you Miguel! Fuck you Shannon! Fuck you Vinnie!” he screamed at us. “Just you wait! I’ll show you!” he said as he stormed off all red faced and upset. When he got to the elevator he shouted a final “Fuck you!” to all of us as he headed out.
 
-We all looked at each other—stunned and shocked—and then chatted a bit about what just happened with Carlos and then we all headed home.
+We all looked at each other—stunned and shocked—and then chatted a bit about what just happened with Carlos and then all headed home.
 
 ***
 
