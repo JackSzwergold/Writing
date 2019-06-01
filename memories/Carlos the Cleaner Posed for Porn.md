@@ -16,15 +16,15 @@ So after a few weeks of making maybe $80 total for my efforts, Rob called me and
 
 ***
 
-So anyway, the job at Castilian Communications was pretty cool for a summer job. I unloaded trucks, filled orders, responded to customer inquiries/complaints, went to the bank, went to the post office and all of that stuff.
+So anyway, the job at Castilian Communications was pretty cool for a lightweight summer job. I unloaded trucks, filled orders, responded to customer inquiries/complaints, went to the bank, went to the post office and all of that stuff.
 
-But the thing is the place wasn’t really an office or a real workplace. It was like a huge home office that I happened to work in so things got oddly casual at times.
+But the thing is the place wasn’t really an office or a real workplace. It was like a huge home office that I happened to work in so things got oddly casual—and weird—at times.
 
-Like whenever Carlos—the cleaning guy—would do pretty much anything.
+Like whenever Carlos—the cleaning guy—would do pretty much anything in the office.
 
 ***
 
-Carlos was Puerto Rican and proud. Was short, wore a cap with the Puerto Rican flag on it and had a huge mustache that made him look like John Oates from *Hall and Oates*. He was cool, but he’d needle you a bit just for fun. And he liked needling me a lot because as some deep Brooklyn white guy working in the Flatiron I was kinda “redneck” compared to them.
+Carlos was a NYC born and bred Puerto Rican guy and proud of it. He was short, wore a cap with the Puerto Rican flag on it and had a huge mustache that made him look exactly like John Oates from *Hall and Oates*. He was cool, but he’d needle you a bit just for fun. And he liked needling me a lot because as some deep Brooklyn white guy working in the Flatiron I was kinda “redneck” compared to them.
 
 When he cooked for us that was a genuine treat. It was an all day affair. I would get in at 10:00am and he would already be cooking a huge pot of rice, beans and chicken. The rice was done quickly and would just sit there. The beans and chicken? He’d babysit them all day so he could serve it to us around 4:00pm or 5:00pm.
 
