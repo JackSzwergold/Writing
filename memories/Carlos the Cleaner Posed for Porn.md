@@ -34,7 +34,7 @@ On days like that, I would get in at 10:00am and he would already be cooking a h
 
 Some days I just smiled and ignored it. Just humoring him and nodding in agreement as I walked around the office to let it pass as quickly as possible. Other days I would ouright avoid him which was surprisingly easy given the size and layout of the loft. In general, I was cool with it—as a form of basic hazing—as long as I could somehow get so space away from it when I could.
 
-Then when the time came for him to serve the food, he would make sure to remind me the chicken tasted better than pussy by repeatedly saying to me “Jack, you’re gonna love it. It tastes better than pussy, believe me!”
+Then when the time came for him to serve the food, he would double down on reminding me that the chicken tasted better than pussy by repeatedly saying “Jack, you’re gonna love it. It tastes better than pussy, believe me!”
 
 And you know what? The chicken tasted really good. Was it better than pussy? I don’t know know if that is a comparison that respects the chicken or pussy in a fair way, but it was decent chicken.
 
