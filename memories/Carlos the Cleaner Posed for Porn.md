@@ -26,7 +26,9 @@ Like whenever Carlos—the cleaning guy—would do pretty much anything in the o
 
 Carlos was a NYC born and bred Puerto Rican guy and proud of it. He was short, wore a cap with the Puerto Rican flag on it and had a huge mustache that made him look exactly like John Oates from *Hall and Oates*. He was cool, but he’d needle, harangue and pester you a bit just for fun. And he liked pick on me a lot because—as some deep Brooklyn white guy working in “the city”—I was kind of a “redneck” compared to them.
 
-When he cooked for us that was a genuine treat. It was an all day affair. I would get in at 10:00am and he would already be cooking a huge pot of rice, beans and chicken. The rice was done quickly and would just sit there. The beans and chicken? He’d babysit them all day so he could serve it to us around 4:00pm or 5:00pm.
+But every once in a while—seemingly out of the blue—Carlos would cook a meal for us. And when he cooked for us, that was an all day affair.
+
+I would get in at 10:00am and he would already be cooking a huge pot of rice, beans and chicken. The rice was done quickly and would just sit there. The beans and chicken? He’d babysit them all day so he could serve it to us around 4:00pm or 5:00pm.
 
 “You’re gonna like it, Jack,” he’d pester me all day saying. “It tastes better than pussy Jack. I assure you,” he’d add.
 
