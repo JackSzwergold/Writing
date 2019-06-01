@@ -36,9 +36,9 @@ Some days I just smiled and ignored it. Just humoring him and nodding in agreeme
 
 Then when the time came for him to serve the food, he would double down on reminding me that the chicken tasted better than pussy by repeatedly saying “Jack, you’re gonna love it. It tastes better than pussy, believe me!”
 
-And you know what? The chicken tasted really good. Was it better than pussy? I don’t know know if that is a comparison that respects the chicken or pussy in a fair way, but it was decent chicken.
+And you know what? The chicken tasted really good. Was it better than pussy? That’s not really a comparison that properly respects chicken or pussy in a fair and even-handed way. But I will say tihs… It was definitely some decent chicken.
 
-Then one day after one of these meals, Carlos got into one of his sporadic fights with the head guy at Castilian Communications. I think it was over pay or something. Maybe money owed for other stuff? Who knows. But when these fights happened, we all cleared out and headed back to our humble little desk area.
+Then one day after one of these meals, Carlos got into one of his verbally violent and sporadic fights with the head guy at Castilian Communications. I think it was over pay, work or something like that. Maybe money owed for other stuff he did on the side for him? Who knows. But when these fights happened, we all cleared out and headed back to our humble little desk area and pretended to ignore it as much as possible.
 
 And that’s where we waited for the Carlos’ post fight venting.
 
