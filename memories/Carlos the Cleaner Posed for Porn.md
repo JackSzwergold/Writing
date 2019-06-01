@@ -48,7 +48,7 @@ What would happen is Carlos and the boss would fight. The boss would go off some
 
 “He’s bullshit man!” he would say. “I do a ton of work here and he treats me like shit,” he would add. “I’m gonna quit, man, and let him learn,” and so on and so on.
 
-This was all predictable and would usually blow over in 10 to 15 minutes. But when it happened at the end of the day it was extra annoying. Nobody wanted to leave in the middle of one of his rants and somehow—inadvertently—disrespect him. And it was the end of the day and we all wanted to go home after eating that delicious “better than pussy” chicken he made for us.
+This was all painful yet predictable and would usually blow over in 10 to 15 minutes like a passing storm. But when it happened at the end of the day—when everyone was trying to get work done and head home—it was extra annoying. Nobody wanted to leave in the middle of one of his rants and somehow—inadvertently—disrespect him; that would just stretch the bullshit on even longer. And we all just wanted to go home after eating that delicious “better than pussy” chicken he made for us and just not think about work anyway.
 
 But this time he added something new to his rant, “You know, I was famous once. I posed for porn magazines!” Which was a new one so we all instantly said, “Really?” and he responded, “You don’t believe me? I did!”
 
