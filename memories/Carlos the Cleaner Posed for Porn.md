@@ -10,12 +10,9 @@ I got hooked up with the gig after blinding writing for a summer job at another 
 
 But the supposed “job” turned out to be just a shitty internship doing things I wasn’t really interested in for barely any salary whatsoever. I had to basically sit around in this SoHo loft all day like some servant on call to do… Whatever… Whenever they decided I could do things like lift boxes or file papers. Yeah, as an adult now I understand the value of a real internship at a place you can feel a career connection to. But back then I just wanted a job at a place that didn’t exactly have to be cool, but was at least somewhat fun to spend time in and—most of all—to get paid in the process.
 
-Which is all to say in the case of Roar Bocks, I generally didn’t get along with anyone there and 
+Which is all to say in the case of Roar Books, I generally didn’t get along with anyone there and didn’t find being there to be a positive experience at all. Especially when the main gofer/“toadie” at the place—this guy named Rob—would endlessly put off paying me every week as he promised. It was my first introduction to the art and publishing world—and the endless excuse of non-payment—but I wasn’t really ready for it then.
 
-
-. Especially when the main “gofer” at the place—this guy named Rob—would delay paying me every week as he promised. It was my first introduction to the art and publishing world, but I wasn’t really ready for it.
-
-So after a few weeks of making maybe $80 total, Rob called me and said there was a job more up my alley at this place called Castilian Communications. I never heard of them before, but it sounded more like a real job. So I called them up, met the owner, we got along and I got a summer job in “the city.”
+So after a few weeks of making maybe $80 total for my efforts, Rob called me and said—in this really passive aggressive way—that there was a job more up my alley at this place called Castilian Communications. I never heard of them before, but it sounded more like a real job with real responsibilities and real pay. So I called Castilian Communications up, met the owner, we got along and I got a decent summer job in “the city.”
 
 ***
 
