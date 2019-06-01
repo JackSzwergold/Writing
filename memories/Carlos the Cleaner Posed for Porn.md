@@ -4,9 +4,9 @@ By Jack Szwergold
 
 One of the first jobs I had in late 1980s working for a comic book company called Castilian Communications. I was still in college—and wasn’t an artist or anything—but I was basically a “worker” working in the shipping department, taking orders, doing data entry, and all that. General small company office bullshit.
 
-And the company itself wasn’t really some big formal business, but rather it was a boutique business that was run out of a residential loft on 19th Street near Park Avenue South in the Flatiron district. One half of the loft was a Spanish illustration agency and the other half was a graphic novel business. The two guys who ran the both business lived in the back of the loft.
+And the company itself wasn’t really some big formal business, but rather it was a boutique business that was run out of a residential loft on 19th Street near Park Avenue South in the Flatiron district. One half of the loft was a Spanish illustration agency and the other half was a graphic novel business. The two guys who ran the both business lived in the back of the loft itself.
 
-I got hooked up with the gig after writing for a summer job at another boutique comic book publisher called Rough Books. They were well known and one of the main guys at the place gained some fame writing a comic book about his family’s experience during the Holocaust. And knowing that, I wrote to them, explained my interest in comics as well as my family’s connection to the Holocaust, and asked for a summer job. They responded and I got a “job” at the place.
+I got hooked up with the gig after blinding writing for a summer job at another boutique comic book publisher called Roar Books. They were well known and well rehgarded and one of the main guys at Roar Books gained some fame writing a comic book about his family’s experience during the Holocaust. Knowing that—and seeing similarities between his family’s Holocaust experience and mine—I wrote to them, explained my interest in comics as well as my family’s connection to the Holocaust, and basically asked them for a summer job. They responded positively—it seemed—and I got a “job” at the place.
 
 But it turned out to be just a shitty internship doing things I wasn’t really interested in for barely any salary whatsoever. Yeah, as an adult now I understand the value of a real internship. But back then I just wanted a job at a cool place and—most of all—to get paid in the process.
 
@@ -56,7 +56,7 @@ We all looked at each other stunned, chatted a bit about Carlos and then we all 
 
 ***
 
-The next day I came in a little late, but when I arrived it seemed like another boring day at the boutique loft office when suddenly Miguel nervously said to me, “Carlos brought in one of the porn magazines he was in.”
+The next day I came in a little late, but when I arrived it seemed like another boring day at the boutique loft office when suddenly Miguel nervously said to me, “Carlos bRoart in one of the porn magazines he was in.”
 
 As I put down my bag I said, “Really?” and with that Miguel turned around and passed me a manilla office folder. I opened it up and inside of it was some kind of male porno mag—*Cavalier* or something like that—and there on the cover was a shirtless, hairy and ripped Carlos in all of his glory. His jeans were open, but that was about it for the cover.
 
