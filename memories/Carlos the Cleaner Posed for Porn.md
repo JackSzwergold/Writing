@@ -50,11 +50,11 @@ What would happen is Carlos and the boss would fight. The boss would go off some
 
 This was all painful yet predictable and would usually blow over in 10 to 15 minutes like a passing storm. But when it happened at the end of the day—when everyone was trying to get work done and head home—it was extra annoying. Nobody wanted to leave in the middle of one of his rants and somehow—inadvertently—disrespect him; that would just stretch the bullshit on even longer. And we all just wanted to go home after eating that delicious “better than pussy” chicken he made for us and just not think about work anyway.
 
-But this time he added something new to his rant, “You know, I was famous once. I posed for porn magazines!” Which was a new one so we all instantly said, “Really?” and he responded, “You don’t believe me? I did!”
+But this time he added something new to his rant, “You know, I was famous once. I posed for porn!” Which was a new one so we all instantly said, “Really?” and he responded, “You don’t believe me? I did!”
 
-Somehow he interpreted us questioning his porn career as some kind of personal slight. “Really? Really? That is what you think?” he would say all nervous. “Well fuck you! Fuck you Jack! Fuck you Miguel! Fuck you Shannon!” he screamed at us. “Just you wait! I’lll show you!” he said as he stormed off, got to the elevator and shouted a final “Fuck you!” to all of us as he headed out.
+Somehow he interpreted us questioning his porn career as some kind of personal slight. “Really? Really?!? That is what you think?” he would say all nervous and indignant. “Well fuck you! Fuck you Jack! Fuck you Miguel! Fuck you Shannon! Fuck you Vinnie!” he screamed at us. “Just you wait! I’ll show you!” he said as he stormed off all red faced and upset. When he got to the elevator he shouted a final “Fuck you!” to all of us as he headed out.
 
-We all looked at each other stunned, chatted a bit about Carlos and then we all headed home.
+We all looked at each other—stunned and shocked—and then chatted a bit about what just happened with Carlos and then we all headed home.
 
 ***
 
