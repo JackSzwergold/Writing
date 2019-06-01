@@ -4,7 +4,7 @@ By Jack Szwergold
 
 One of the first jobs I had in late 1980s working for a comic book company called Castilian Communications. I was still in college—and wasn’t an artist or anything—but I was basically a “worker” working in the shipping department, taking orders, doing data entry, and all that. General small company office bullshit.
 
-And the company itself was a boutique business run out of a loft on 19th Street in the Flatiron district. One half of the loft was an illustration business, the other half was a graphic novel business. The two guys who ran the place lived in the back of the loft.
+And the company itself wasn’t really some big formal business, but rather it was a boutique business that was run out of a residential loft on 19th Street near Park Avenue South in the Flatiron district. One half of the loft was a Spanish illustration agency and the other half was a graphic novel business. The two guys who ran the both business lived in the back of the loft.
 
 I got hooked up with the gig after writing for a summer job at another boutique comic book publisher called Rough Books. They were well known and one of the main guys at the place gained some fame writing a comic book about his family’s experience during the Holocaust. And knowing that, I wrote to them, explained my interest in comics as well as my family’s connection to the Holocaust, and asked for a summer job. They responded and I got a “job” at the place.
 
