@@ -40,7 +40,7 @@ And you know what? The chicken tasted really good. Was it better than pussy? Tha
 
 Then one day after one of these meals, Carlos got into one of his verbally violent and sporadic fights with the head guy at Castilian Communications. I think it was over pay, work or something like that. Maybe money owed for other stuff he did on the side for him? Who knows. But when these fights happened, we all cleared out and headed back to our humble little desk area and pretended to ignore it as much as possible.
 
-And that’s where we waited for the Carlos’ post fight venting.
+And that’s where we waited for Carlos’ post fight co-worker venting to happen.
 
 ***
 
