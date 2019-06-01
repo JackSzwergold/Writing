@@ -28,9 +28,9 @@ Carlos was a NYC born and bred Puerto Rican guy and proud of it. He was short, w
 
 But every once in a while—seemingly out of the blue—Carlos would cook a meal for us. And when he cooked for us, that was an all day affair.
 
-I would get in at 10:00am and he would already be cooking a huge pot of rice, beans and chicken. The rice was done quickly and would just sit there. The beans and chicken? He’d babysit them all day so he could serve it to us around 4:00pm or 5:00pm.
+On days like that, I would get in at 10:00am and he would already be cooking a huge pot of rice, beans and chicken. The rice was done quickly and would just sit there. The beans and chicken? He’d babysit them all day so he could serve it to us around 4:00pm or 5:00pm.
 
-“You’re gonna like it, Jack,” he’d pester me all day saying. “It tastes better than pussy Jack. I assure you,” he’d add.
+“You’re gonna like it, Jack,” he’d say to me. “It tastes better than pussy Jack. I assure you,” he’d add.
 
 Some days I just grinned and bore it. Just humoring him and nodding in agreement as I walked around the office. Other days I would avoid him which was surprisingly easy given the size of the loft. In general, I was cool with it.
 
