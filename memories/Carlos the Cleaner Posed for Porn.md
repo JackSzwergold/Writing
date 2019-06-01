@@ -12,7 +12,7 @@ But the supposed “job” turned out to be just a shitty internship doing thing
 
 Which is all to say in the case of Roar Books, I generally didn’t get along with anyone there and didn’t find being there to be a positive experience at all. Especially when the main gofer/“toadie” at the place—this guy named Rob—would endlessly put off paying me every week as he promised. It was my first introduction to the art and publishing world—and the endless excuse of non-payment—but I wasn’t really ready for it then.
 
-So after a few weeks of making maybe $80 total for my efforts, Rob called me and said—in this really passive aggressive way—that there was a job more up my alley at this place called Castilian Communications. I never heard of them before, but it sounded more like a real job with real responsibilities and real pay. So I called Castilian Communications up, met the owner, we got along and I got a decent summer job in “the city.”
+So after a few weeks of making maybe $80 total for my efforts, Rob called me and said—in this really passive aggressive way—that there was a job more up my alley at this place called Castilian Communications. I never heard of them before, but it sounded more like a real job with real responsibilities and real pay. So I called Castilian Communications up, met the owner and—although he was a bit odd in his own way—we got along better than I did with the folks at Roar Books and I ended up getting decent summer job in “the city.”
 
 ***
 
