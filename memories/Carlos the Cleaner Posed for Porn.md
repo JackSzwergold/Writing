@@ -44,7 +44,7 @@ And that’s where we waited for Carlos’ post fight co-worker venting to happe
 
 ***
 
-What would happen is Carlos and the owner would fight. The owner would go off somewhere and Carlos would then be flustered, paced around the office and then would come back to our humble little desk area to vent.
+What would happen is Carlos and the boss would fight. The boss would go off somewhere and Carlos would then be flustered, paced back and forth around the office and then would come back to our humble little desk area to vent.
 
 “He’s bullshit man!” he would say. “I do a ton of work here and he treats me like shit,” he would add. “I’m gonna quit, man, and let him learn,” and so on and so on.
 
