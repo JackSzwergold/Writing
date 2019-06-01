@@ -6,11 +6,14 @@ One of the first jobs I had in late 1980s working for a comic book company calle
 
 And the company itself wasn’t really some big formal business, but rather it was a boutique business that was run out of a residential loft on 19th Street near Park Avenue South in the Flatiron district. One half of the loft was a Spanish illustration agency and the other half was a graphic novel business. The two guys who ran the both business lived in the back of the loft itself.
 
-I got hooked up with the gig after blinding writing for a summer job at another boutique comic book publisher called Roar Books. They were well known and well rehgarded and one of the main guys at Roar Books gained some fame writing a comic book about his family’s experience during the Holocaust. Knowing that—and seeing similarities between his family’s Holocaust experience and mine—I wrote to them, explained my interest in comics as well as my family’s connection to the Holocaust, and basically asked them for a summer job. They responded positively—it seemed—and I got a “job” at the place.
+I got hooked up with the gig after blinding writing for a summer job at another boutique comic book publisher called Roar Books. They were well known and well rehgarded and one of the main guys at Roar Books gained some fame writing a comic book about his family’s experience during the Holocaust. Knowing that—and seeing similarities between his family’s Holocaust experience and mine—I wrote to them, explained my interest in comics as well as my family’s connection to the Holocaust, and basically asked them for a summer job. They responded positively—it seemed—and I got what I was led to believe was a job at the place.
 
-But it turned out to be just a shitty internship doing things I wasn’t really interested in for barely any salary whatsoever. Yeah, as an adult now I understand the value of a real internship. But back then I just wanted a job at a cool place and—most of all—to get paid in the process.
+But the supposed “job” turned out to be just a shitty internship doing things I wasn’t really interested in for barely any salary whatsoever. I had to basically sit around in this SoHo loft all day like some servant on call to do… Whatever… Whenever they decided I could do things like lift boxes or file papers. Yeah, as an adult now I understand the value of a real internship at a place you can feel a career connection to. But back then I just wanted a job at a place that didn’t exactly have to be cool, but was at least somewhat fun to spend time in and—most of all—to get paid in the process.
 
-I generally didn’t get along with anyone there. Especially when the main “gofer” at the place—this guy named Rob—would delay paying me every week as he promised. It was my first introduction to the art and publishing world, but I wasn’t really ready for it.
+Which is all to say in the case of Roar Bocks, I generally didn’t get along with anyone there and 
+
+
+. Especially when the main “gofer” at the place—this guy named Rob—would delay paying me every week as he promised. It was my first introduction to the art and publishing world, but I wasn’t really ready for it.
 
 So after a few weeks of making maybe $80 total, Rob called me and said there was a job more up my alley at this place called Castilian Communications. I never heard of them before, but it sounded more like a real job. So I called them up, met the owner, we got along and I got a summer job in “the city.”
 
