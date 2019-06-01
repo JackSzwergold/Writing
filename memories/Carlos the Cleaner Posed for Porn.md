@@ -60,7 +60,7 @@ We all looked at each other—stunned and shocked—and then chatted a bit about
 
 The next day I came in a little late, but when I arrived it seemed like another boring day at the boutique loft office when suddenly Miguel—lauging nervously—said to me, “Jack, Carlos brought in one of the porn magazines he was in.”
 
-As I put down my bag I said, “Really?” and with that Miguel turned around and passed me a manilla office folder. I opened it up and inside of it was some kind of male porno mag—*Cavalier* or something like that—and there on the cover was a shirtless, hairy and ripped Carlos in all of his glory. His jeans were open, but that was about it for the cover.
+As I put down my bag I said, “Really?” and with that Miguel turned around and passed me a manilla office folder. I opened it up and inside of it was some kind of low-rent male porno mag—*Cavalier* or something like that—and there on the cover was a shirtless, hairy, ripped, glistening and sweaty Carlos in all of his natural glory. His jeans were unzipped at the tope, but that was about all one could see on the cover.
 
 “Wow!” I said, as I closed the folder up again and passed it back to Miguel. “No! No! Jack you are missing the best part,” he said as he opened it up, flipped some pages and passed it back to me.
 
