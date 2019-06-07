@@ -36,7 +36,9 @@ I ran over, opened the back door, jumped in and we headed up Ocean Parkway, onto
 
 I leaned over from the backseat and, “So who’s party is this?” And my friends looked at each other, looked at me, shrugged and said, “Someone…” Turned out this was some kind of generic party that people in certain circles at Midwood High School somehow knew about. And we may or may not be crashing said party, but whatever. It was a house party so who cared; we’d blend in, right?
 
-I’d been to parties before but this was a house party. I had some silly fantasy ideas of what that might mean. I pictured multiple floors of a party happening. Kinda like what it seemed like in “Pretty in Pink” but less suburban.
+Anyway, this was my first house party so I had unrealistic expectations to say the least. I mean, I had been to parties before but in the case of this house party, I had some silly fantasies of what that might mean. I pictured multiple floors of active partying happening. Kinda like what a that house party in “Pretty in Pink” was like, but less suburban.
+
+At least that’s what I hoped for.
 
 ***
 
