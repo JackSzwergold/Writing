@@ -20,13 +20,15 @@ So with that, I headed outside to hang out in front of the building on Ocean Par
 
 You see, while other buildings had actual security systems, doormen and even dogs, our building had a classic Brighton Beach improvised security system: A bunch of old gossipy Yentas just sitting outside on their folding chairs watching the world pass by. They sat around, had some fresh air, gossiped—and judged others—in Yiddish and stood (sat?) watch.
 
-It was kind of excruciating to be honest.
+And while I have some nostalgia for those Yentas, it was all kind of excruciating to be honest.
 
 “Where are you going?” some would ask.
 
 “Why don’t you go home?” others would insist.
 
-In general if you spent more than 5 minutes in front of any building in Brighton Beach, the Yentas would start barking bullshit at you. Not for any reason other than that’s their life.
+“Your parents worry about you…” others would state.
+
+In general if you spent more than 5 minutes in front of any building in Brighton Beach, the Yentas would start barking needling, meddling and gossipy bullshit at you. Not for any reason other than that’s all they could do to interact with humans younger than them at that stage of their lives.
 
 And just as I was about to get stressed by that Yenta bullshit, my friends pulled up in someone’s dad’s car.
 
