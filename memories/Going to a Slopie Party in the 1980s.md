@@ -8,7 +8,7 @@ While Lincoln was a high school that had a well mixed population of kids from Br
 
 The main reason I knew about this party—and that whole Midwood High School crowd—was because some neighborhood friends of mine from Junior High School happened to luck out and get into Midwood. We were still friends, but they—despite their qualifying to go to Midwood—were still somehow outsiders to the Midwood social scene themselves.
 
-Social, geographic and economic stratification was happening… But we weren’t all aware of it yet… Or were at least in some level of dellusional denial or something. Whatever… We were still friends despite the social school rifts and divisions that existed.
+Social, geographic and economic stratification was happening… But we weren’t all aware of it yet… Or were at least in some level of delusional denial or something. Whatever… We were still friends despite the social school rifts and divisions that existed.
 
 So anyway, one weekend I get a call from one of my friends. I thought he was calling to do our usual teenage weekend thing of going to local video rental store,  scoring a movie of some kind, scoring some kind of alcohol and snacks of some kind and just hanging out and watching a movie and getting drunk. Instead he told me that he got invited to a “Slopie” party and I should come along.
 
@@ -46,11 +46,11 @@ As we turned onto one of the streets in Park Slope I looked around for obvious s
 
 “This is it,” a friend said. And with that done, me and the friend—who wasn’t driving—jumped out while my other friend who was driving went to park the car.
 
-“Hey,” I said to the kids sitting on the stoop. They said hey back, both looked at each other and then one bluntly said, “You don’t go to Midwood, right?” I looked at my friend and said, “Nope. I go to Lincoln.” And the kids on the stoop looked at each other and one of them said, “Lincoln?” And after a pregnant pause added, “I think my dad went to Lincoln.” And with that one of them passed a joint to the other person. Me and my friend stood there waint for it to be passed onto us but that never happened.
+“Hey,” I said to the kids sitting on the stoop. They said hey back, both looked at each other and then one bluntly said, “You don’t go to Midwood, right?” I looked at my friend and said, “Nope. I go to Lincoln.” And the kids on the stoop looked at each other and one of them said, “Lincoln?” And after a pregnant pause added, “I think my dad went to Lincoln.” And with that one of them passed a joint to the other person. Me and my friend stood there, waiting for it to be passed onto us but that never happened.
 
 And then—without a word spoken between us—we headed inside the Brownstone to see what the party was all about.
 
-As we walked into the place nothing seemed dour or negative, but not much seemed to be happening that could be considerd a “party” in any way. It all seemed dead. There was literally just a lone bowl of chips sitting next to a lone bowl of some pretzels and a small cooler with a humble amount of beer—and maybe a wine bottle—in it and not much else.
+As we walked into the place nothing seemed dour or negative, but not much seemed to be happening that could be considered a “party” in any way. It all seemed dead. There was literally just a lone bowl of chips sitting next to a lone bowl of some pretzels and a small cooler with a humble amount of beer—and maybe a wine bottle—in it and not much else.
 
 Some people were sitting around on a nearby couch and there were a few others on the stairs. Some music was playing, but it wasn’t too loud or anything too great. A guy was sitting on the stairs either tuning or playing an acoustic guitar if that could be considered anything.
 
@@ -108,7 +108,7 @@ The kid whose family owned the Brownstone was on the steps crying as if this car
 
 As we headed down the block we all turned back and saw the whole “party”—which seemed to consist of six to eight people at best—standing on the stoop and staring at us with daggers in their eyes.
 
-If the Yentas were judgementally barking at me as I waited for my friend’s to pick me up back in Brighton Beach, these Slopies were dead staring us with silence and judgement in their own privledged, precious and entitled way. While nobody bluntly called us out as non-Slope “outsiders” to their world, the fact that they saw us as deep Brooklyn rednecks was pretty clear as day on that night.
+If the Yentas were judgmentally barking at me as I waited for my friend’s to pick me up back in Brighton Beach, these Slopies were dead staring us with silence and judgement in their own privileged, precious and entitled way. While nobody bluntly called us out as non-Slope “outsiders” to their world, the fact that they saw us as deep Brooklyn rednecks was pretty clear as day on that night.
 
 We all back in the car and all headed back home. I think I got back at 11:30pm and just all headed straight to bed that night.
 
