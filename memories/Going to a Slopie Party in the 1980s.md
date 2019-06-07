@@ -32,7 +32,7 @@ In general if you spent more than 5 minutes in front of any building in Brighton
 
 And just as the Yenta bullshit was about to creep completely under my skin, my friends pulled up in someone’s dad’s car and honked for me.
 
-I jumped in the back, and we headed up Ocean Parkway, onto the Belt Parkway and up to Park Slope.
+I ran over, opened the back door, jumped in and we headed up Ocean Parkway, onto the Belt Parkway and up to Park Slope.
 
 I leaned over from the backseat and asked the obvious question, “So who’s party is this?” And my friends looked at each other, looked at me, shrugged and said, “Someone…” Turned out this was a general party that people in certain circles at Midwood High School somehow knew about. And we may or may not be crashing said party, but whatever. It was a full house party so who cared.
 
