@@ -72,9 +72,9 @@ As we all sat around wondering what to do—or what we just got into—I noticed
 
 “Check it out!” I said to my friends. And with that we went down to investigate.
 
-I mean, this being Park Slope or not, a car with a window slightly open in the 1980s in Brooklyn was a weird thing to see.
+I mean—regardless of this being Park Slope or not—a car with a window slightly open in Brooklyn in the 1980s was a weird thing to see.
 
-As we approached the car, a friend of mine recognized the car as belonging to the family whose Brownstone party we crashed. We were easily able to open the car door and jump inside. “Wait, we’ll get busted!” I said but was then shrugged off when my friend said, “It’s no big deal. We can lock it up again.”
+As we approached the car, a friend of mine recognized the it as belonging to the family whose Brownstone “party” we crashed. We fiddled around and were able to easily open the car door and jump inside. “Wait, we’ll get busted!” I said but was then shrugged off when my friend said, “It’s no big deal. We can lock it up again.” Which made sense.
 
 But then we all noticed that the car was parked in neutral. “Whoa!” we all said.
 
