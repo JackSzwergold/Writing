@@ -8,7 +8,9 @@ While Lincoln was a high school that had a well mixed population of kids from Br
 
 The main reason I knew about this party—and that whole Midwood High School crowd—was because some neighborhood friends of mine from Junior High School happened to luck out and get into Midwood. We were still friends, but they—despite their qualifying to go to Midwood—were still somehow outsiders to the Midwood social scene themselves.
 
-Social stratification was happening… But we weren’t all aware of it yet. At the time we were just friends who saw each other less often because of social school rifts.
+Social, geographic and economic stratification was happening… But we weren’t all aware of it yet… Or were at least in some level of dellusional denial or something. Whatever…
+
+At the time we were just friends who saw each other less often because of social school rifts.
 
 So anyway, one weekend I get a call from one of my friends. I thought he was calling to do our usual thing of going to “Video on the Bay” scoring a movie of some kind, scoring some kind of alcohol of some kind and just hanging out and watching a movie and getting drunk. Instead he told me that he got invited to a “Slopie” party and I should come along.
 
