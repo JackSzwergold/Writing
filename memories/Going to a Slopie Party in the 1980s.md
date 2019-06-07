@@ -56,7 +56,7 @@ Some people were sitting around on a nearby couch and there were a few others on
 
 “Well, I guess this is it,” I said to my friend. We then both looked around and shrugged and decided to see what was happening upstairs.
 
-As we walked towards the stairs the guitar guy on the steps blocked us and said, “Can’t go up there. Nothing is happening up there.” And with that we headed over to the bowls of chips and pretzels, grabbed a beer and just hung around.
+As we walked towards the stairs the guitar guy on the steps blocked us and said, “Can’t go up there. Nothing is happening up there.” And with that we headed over to the bowls of chips and pretzels, grabbed a beer and just stood around.
 
 ***
 
@@ -64,7 +64,7 @@ After a while my other friend—who was parking the car—showed up. “So what�
 
 With that we just headed outside and sat on the stoop.
 
-The night was quiet, the block was quiet and the stoop was quiet. It wasn’t that bad a night, but it was boring as hell.
+The night was quiet, the block was quiet and the stoop was quiet. It wasn’t that bad a night to be somewhere else, but it was boring as hell.
 
 “Man,” I said. “This stinks.” And it was only around 10:00pm.
 
