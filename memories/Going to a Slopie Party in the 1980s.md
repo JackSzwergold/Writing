@@ -108,9 +108,9 @@ The kid whose family owned the Brownstone was on the steps crying as if this car
 
 As we headed down the block we all turned back and saw the whole “party”—which seemed to consist of six to eight people at best—standing on the stoop and staring at us with daggers in their eyes.
 
-If the Yentas were barking at me as I waited for my ride back in Brighton Beach, these Slopies were dead staring us with silence and judgement. While nobody explicitly said we were non-Slope, deep Brooklyn rednecks we were still treated as such.
+If the Yentas were judgementally barking at me as I waited for my friend’s to pick me up back in Brighton Beach, these Slopies were dead staring us with silence and judgement in their own privledged, precious and entitled way. While nobody bluntly called us out as non-Slope “outsiders” to their world, the fact that they saw us as deep Brooklyn rednecks was pretty clear as day on that night.
 
-We got back in the car and all headed back home. I think I got back at 11:30pm and just headed straight to bed.
+We all back in the car and all headed back home. I think I got back at 11:30pm and just all headed straight to bed that night.
 
 ***
 
