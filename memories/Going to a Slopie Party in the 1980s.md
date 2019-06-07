@@ -42,11 +42,11 @@ At least that’s what I hoped for.
 
 ***
 
-As we turned onto one of the streets in Park Slope I looked around for obvious signs of a party. None could really be found; just trees and Brownstones and trees and Brownstones and no signs of life. After a short while we slowed down as we approached the building where we knew the party was happening and there I finally saw some life: Two kids in jeans and sandals with socks on them were hanging out on the stoop.
+As we turned onto one of the streets in Park Slope I looked around for obvious signs of a party. None could really be found; just trees and Brownstones and trees and Brownstones and no signs of life. After a short while the car slowed down as we approached the building where we knew the party was happening and there I finally saw some life: Two kids in jeans and sandals with socks on them were hanging out on the stoop.
 
-“This is it,” a friend said. And with that done, me and the friend who wasn’t driving jumped out while my other friend who was driving went to park the car.
+“This is it,” a friend said. And with that done, me and the friend—who wasn’t driving—jumped out while my other friend who was driving went to park the car.
 
-“Hey,” I said to the kids sitting on the stoop. They said hey back, both looked at each other and then one said, “You don’t go to Midwood, right?” I looked at my friend and said, “Nope. I go to Lincoln.” And the kids on the stoop looked at each other and one of them said, “Lincoln? I think my dad went there.” And with that one of them passed a joint to the other person. Me and my friend were never offered.
+“Hey,” I said to the kids sitting on the stoop. They said hey back, both looked at each other and then one bluntly said, “You don’t go to Midwood, right?” I looked at my friend and said, “Nope. I go to Lincoln.” And the kids on the stoop looked at each other and one of them said, “Lincoln?” And after a pregnant pause added, “I think my dad went to Lincoln.” And with that one of them passed a joint to the other person. Me and my friend stood there waint for it to be passed onto us but that never happened.
 
 And with that we headed inside the Brownstone to see what was up with the party. As we walked in nothing seemed dour, but not much seemed like a party. There was literally just a bowl of chips, a bowl of some pretzels and a cooler with a humble amount of beer in it. Some people were sitting around on a nearby couch, others on the stairs. Some music was playing, but it wasn’t too loud. A guy was sitting on the stairs either tuning or playing an acoustic guitar.
 
