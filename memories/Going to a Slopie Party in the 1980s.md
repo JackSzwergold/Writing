@@ -84,13 +84,13 @@ And with that, we opened both side windows of the car and pushed it down the str
 
 After some literal legwork, teamwork and effort, we managed to get the car perfectly parked down the street and headed back into the party.
 
-Proudly—and utterly shamelessly—one of my friends found the guy whose family’s Brownstone this party was happening in and drunk giggled, “Hey! Something happened to your car.” The guy’s eyes lit up as he ran outside and stared at the empty space where the car was once parked.
+Proudly—and utterly shamelessly—one of my friends found the guy whose family’s Brownstone this party was happening in and drunk giggled, “Hey! Something happened to your car.” The guy’s eyes lit up in a minor panic as he ran outside and stared at the empty space where the car was once parked.
 
-“Oh my God!” he said in a hushed, concerned and meek tone as the three of us all laughed. After a while other party attendees stood with us on the stoop and stared at the empty space on the tree-lined street.
+“Oh my God!” he said in a hushed, concerned and utterly meek tone as the three of us all laughed. After a while other party attendees stood with us on the stoop and stared at the empty space on the tree-lined street.
 
-“What happened? Where is it?” one of the people at the party asked. And just as it seemed like the guy whose family car was seemingly gone was about to cry, we broke down and confessed.
+“What happened? Where is it?” one of the people at the party asked. And just as it seemed like the guy—whose family car was seemingly gone—was about to cry, we broke down and confessed to the prank.
 
-“It’s cool. The car was in neutral. We just moved it down the street.” We collectively pointed to it and just patted him on his back to calm him down.
+“It’s cool. The car was in neutral. We just moved it down the street.” We collectively pointed to it and just patted him on his back to reassure him all was cool. But it clearly wasn’t.
 
 “Why did you do that!?” he shouted, “That’s not funny!” he added as he collapsed onto the stoop steps.
 
