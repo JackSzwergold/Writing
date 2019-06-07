@@ -34,7 +34,7 @@ And just as the Yenta bullshit was about to creep completely under my skin, my f
 
 I ran over, opened the back door, jumped in and we headed up Ocean Parkway, onto the Belt Parkway and up to Park Slope.
 
-I leaned over from the backseat and asked the obvious question, “So who’s party is this?” And my friends looked at each other, looked at me, shrugged and said, “Someone…” Turned out this was a general party that people in certain circles at Midwood High School somehow knew about. And we may or may not be crashing said party, but whatever. It was a full house party so who cared.
+I leaned over from the backseat and, “So who’s party is this?” And my friends looked at each other, looked at me, shrugged and said, “Someone…” Turned out this was some kind of generic party that people in certain circles at Midwood High School somehow knew about. And we may or may not be crashing said party, but whatever. It was a house party so who cared; we’d blend in, right?
 
 I’d been to parties before but this was a house party. I had some silly fantasy ideas of what that might mean. I pictured multiple floors of a party happening. Kinda like what it seemed like in “Pretty in Pink” but less suburban.
 
