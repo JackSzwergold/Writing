@@ -92,15 +92,15 @@ Proudly—and utterly shamelessly—one of my friends found the guy whose family
 
 “It’s cool. The car was in neutral. We just moved it down the street.” We collectively pointed to it and just patted him on his back to reassure him all was cool. But it clearly wasn’t.
 
-“Why did you do that!?” he shouted, “That’s not funny!” he added as he collapsed onto the stoop steps.
+“Why did you do that!?” his voice cracked as he shouted, “That’s not funny!” he added as he collapsed onto the stoop steps.
 
-It was weird. The car wasn’t gone or damaged. We just moved it and here is this Slopie kid having a mini breakdown.
+It was weird. The car wasn’t gone or damaged. We just moved it down the block and here is this Slopie kid having a mini nervous breakdown.
 
 As the other party attendees absorbed the situation, they all looked at us three non-Slopie kids and said, “That‘s not funny.” And “You shouldn’t have done that.” Some girl sat down next to the upset kid and put his arm around him.
 
-Us three non-Slopies just said “Sorry…” in various ways and stood around for a bit and then headed inside.
+Us three non-Slopies just repeatedly said “Sorry…” in various ways and stood around for a bit and then headed inside to regroup give the rest of them space.
 
-After a moment or two, other party attendees came in and said, “We all decided you have to leave.” Which was a weird thing to say, but kind of understandable but still weird at best.
+After a moment or two, other party attendees came in and said, “Hey, we all decided you have to leave.” Which was a weird thing to say, but kind of understandable but still weird at best.
 
 “Okay,” we all said as we headed outside.
 
