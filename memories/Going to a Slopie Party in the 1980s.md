@@ -30,7 +30,7 @@ And while I have some nostalgia for those Yentas, it was all kind of excruciatin
 
 In general if you spent more than 5 minutes in front of any building in Brighton Beach, the Yentas would start barking needling, meddling and gossipy bullshit at you. Not for any reason other than that’s all they could do to interact with humans younger than them at that stage of their lives.
 
-And just as I was about to get stressed by that Yenta bullshit, my friends pulled up in someone’s dad’s car.
+And just as the Yenta bullshit was about to creep completely under my skin, my friends pulled up in someone’s dad’s car and honked for me.
 
 I jumped in the back, and we headed up Ocean Parkway, onto the Belt Parkway and up to Park Slope.
 
