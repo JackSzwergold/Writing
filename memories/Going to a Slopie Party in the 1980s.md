@@ -104,9 +104,9 @@ After a moment or two, other party attendees came in and said, “Hey, we all de
 
 “Okay,” we all said as we headed outside.
 
-The kid whose family owned the Brownstone was on the steps crying as if this car being moved was equivalent of a death or something. We all politely said goodbye to him and walked back to our car.
+The kid whose family owned the Brownstone was on the steps crying as if this car being moved was equivalent of the death of a child or something. We all politely said goodbye to him, but he never looked back at us or acknowledged us. So we just walked back to our car to head home.
 
-We turned back as we headed down the block and saw the whole “party”—which seemed to consist of 6-8 people standing on the stoop and staring at us.
+As we headed down the block we all turned back and saw the whole “party”—which seemed to consist of six to eight people at best—standing on the stoop and staring at us with daggers in their eyes.
 
 If the Yentas were barking at me as I waited for my ride back in Brighton Beach, these Slopies were dead staring us with silence and judgement. While nobody explicitly said we were non-Slope, deep Brooklyn rednecks we were still treated as such.
 
