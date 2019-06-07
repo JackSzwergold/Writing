@@ -18,7 +18,7 @@ So with that, I headed outside to hang out in front of the building on Ocean Par
 
 ***
 
-You see, while other buildings had security systems, doormen and even dogs, our building had a classic Brighton Beach security system: A bunch of old gossipy Yentas just sitting outside on their folding chairs watching the world pass by. They sat around, had some fresh air, gossiped—and judged others—in Yiddish and stood (sat?) watch.
+You see, while other buildings had actual security systems, doormen and even dogs, our building had a classic Brighton Beach improvised security system: A bunch of old gossipy Yentas just sitting outside on their folding chairs watching the world pass by. They sat around, had some fresh air, gossiped—and judged others—in Yiddish and stood (sat?) watch.
 
 It was kind of excruciating to be honest.
 
