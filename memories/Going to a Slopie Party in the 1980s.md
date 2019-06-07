@@ -78,13 +78,13 @@ As we approached the car, a friend of mine recognized the it as belonging to the
 
 But then we all noticed that the car was parked in neutral. “Whoa!” we all said.
 
-Bored out of our skulls at this bullshit party, we concocted a plan to move the car down the block to the other side of the street.
+Since we were bored out of our skulls at this bullshit party—and the car was parked in neutral—we concocted a plan to move the car down the block to the other side of the street as some kind of innocent little prank to kill time and entertain us.
 
-And with that, we opened both side windows, and pushed the car down the street while my friend behind the wheel steered the car.
+And with that, we opened both side windows of the car and pushed it down the street while whoever was behind the wheel steered the car.
 
-Soon enough we managed to get the car perfectly parked down the street and headed back into the party.
+After some literal legwork, teamwork and effort, we managed to get the car perfectly parked down the street and headed back into the party.
 
-Proudly one of my friends found the guy whose family’s Brownstone this party was happening in and drunk giggled, “Hey! Something happened to your car.” The guy’s eyes lit up as he ran outside and stared at the empty space where the car was once parked.
+Proudly—and utterly shamelessly—one of my friends found the guy whose family’s Brownstone this party was happening in and drunk giggled, “Hey! Something happened to your car.” The guy’s eyes lit up as he ran outside and stared at the empty space where the car was once parked.
 
 “Oh my God!” he said in a hushed, concerned and meek tone as the three of us all laughed. After a while other party attendees stood with us on the stoop and stared at the empty space on the tree-lined street.
 
