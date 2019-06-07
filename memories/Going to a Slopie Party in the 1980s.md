@@ -14,9 +14,11 @@ So anyway, one weekend I get a call from one of my friends. I thought he was cal
 
 “Slopie?” I asked—never hearing that slang before—and he responded, “Yeah, some kids who live in Park Slope. They have their whole brownstone to themselves.” I barely knew what a brownstone was at the time, but didn’t ask; all I knew it was an expensive home of some kind in a part of Brooklyn far away from Brighton Beach so this was no apartment party… It was a house party of some kind and I was into it.
 
-So with that, I headed outside to hang out in front of the building on Ocean Parkway and wait for my ride. Which was always awkward.
+So with that, I headed outside to hang out in front of the building on Ocean Parkway and wait for my ride. Which was always awkward at best.
 
-While other buildings had security systems, doormen and even dogs, our building had a classic Brighton Beach security system: A bunch of Yentas just sitting outside on their folding chairs. They sat around, had some fresh air, gossiped to each other in Yiddish and stood watch.
+***
+
+You see, while other buildings had security systems, doormen and even dogs, our building had a classic Brighton Beach security system: A bunch of old gossipy Yentas just sitting outside on their folding chairs watching the world pass by. They sat around, had some fresh air, gossiped—and judged others—in Yiddish and stood (sat?) watch.
 
 It was kind of excruciating to be honest.
 
