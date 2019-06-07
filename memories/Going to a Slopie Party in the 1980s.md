@@ -12,7 +12,7 @@ Social, geographic and economic stratification was happening… But we weren’t
 
 So anyway, one weekend I get a call from one of my friends. I thought he was calling to do our usual teenage weekend thing of going to local video rental store,  scoring a movie of some kind, scoring some kind of alcohol and snacks of some kind and just hanging out and watching a movie and getting drunk. Instead he told me that he got invited to a “Slopie” party and I should come along.
 
-“Slopie?” I asked—never hearing that slang before—and he responded, “Yeah, some kids who live in Park Slope. They have their whole brownstone to themselves.” I barely knew what a brownstone was at the time, but didn’t ask; all I knew it was an expensive home of some kind in a part of Brooklyn far away from Brighton Beach so this was no apartment party… It was a house party of some kind and I was all for it.
+“Slopie?” I asked—never hearing that slang before—and he responded, “Yeah, some kids who live in Park Slope. They have their whole brownstone to themselves.” I barely knew what a brownstone was at the time, but didn’t ask; all I knew it was an expensive home of some kind in a part of Brooklyn far away from Brighton Beach so this was no apartment party… It was a house party of some kind and I was into it.
 
 So with that, I headed outside to hang out in front of the building on Ocean Parkway and wait for my ride. Which was always awkward.
 
