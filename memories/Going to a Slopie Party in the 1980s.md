@@ -6,7 +6,9 @@ It was sometime in the 1980s. I want to say 1984 or 1985 since I was in high sch
 
 While Lincoln was a high school that had a well mixed population of kids from Brooklyn that came from all kinds of ethnic and economic backgrounds, Midwood was the closest thing to a “preppie” high school in the New York City education system that I knew of. Everyone who went to Midwood was well-to-do in some way; either blatantly rich or somewhat on the spectrum of “crunchy granola” entitlement. And I—with my working class, first generation American background—was definitely an outsider to that world.
 
-The main reason I knew about this party and that crowd was from some friends of mine in Junior High School who happened to luck out and get into Midwood. We were still friends, but they were still somehow outsiders to Midwood and even to the neighborhood kids. Social stratification was happening… But we weren’t all aware of it yet. At the time we were just friends who saw each other less often because of social school rifts.
+The main reason I knew about this party—and that whole Midwood High School crowd—was because some neighborhood friends of mine from Junior High School happened to luck out and get into Midwood. We were still friends, but they—despite their qualifying to go to Midwood—were still somehow outsiders to the Midwood social scene themselves.
+
+Social stratification was happening… But we weren’t all aware of it yet. At the time we were just friends who saw each other less often because of social school rifts.
 
 So anyway, one weekend I get a call from one of my friends. I thought he was calling to do our usual thing of going to “Video on the Bay” scoring a movie of some kind, scoring some kind of alcohol of some kind and just hanging out and watching a movie and getting drunk. Instead he told me that he got invited to a “Slopie” party and I should come along.
 
