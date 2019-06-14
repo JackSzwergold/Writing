@@ -8,11 +8,11 @@ Not at the Mudd Club or Artist’s Spaceor anything like that but in a huge fact
 
 The space was a garment factory and—one Saturday morning—my mom, dad and I headed out from the ass end of Brooklyn to TriBeCa so my mom could look for work.
 
-We all took the train out of Brighton Beach. I was grey and overcast and—since it was a weekend morning—the subway was pretty dead and desolate. The train car itself was one of those rickety old metal cars that was kinda corrugated on the side; most likely still had the old “TA” (Transit Authority) logo on the side. And—like every subway trip for me—the trip was fun. I really liked looking out the windows of subway as it trudged through Brooklyn. Especially the window at the front of the first car; it felt like I was driving it as it sped along.
+We all took the train out of Brighton Beach. I was grey and overcast and—since it was a weekend morning—the subway was pretty dead and desolate. The train car itself was one of those rickety old metal cars that was kinda corrugated on the side; most likely still had the old “TA” (Transit Authority) logo on the side. And—like every subway trip for me—the trip was fun. I really liked looking out the windows of subway as it trudged through Brooklyn. Especially the window at the front of the first car; looking out and holding onto the door handle of the first car felt like I was actually driving the train as it sped along.
 
-I’d get excited when I saw glimmers of what looked like toys, balls and related cool junk on the tracks and had daydreams of rushing off at a nearby stop and running onto the subway tracks and to score some free cool stuff.
+As the train rolled along, I’d get excited when I saw glimmers of what looked like toys, balls and related cool junk on the tracks. I even had daydreams of rushing off at a nearby stop and running onto the subway tracks and to score some free cool stuff.
 
-But that was not to be. First, I was too young and would get hit by a train and die. Second, we needed to head into Manhattan to see if my mom could get a job in a schmatta factory.
+But that was not to be. First, I was too young and would get hit by a train and die—or at least loose a limb—if I did something like that. Second, we needed to head into Manhattan to see if my mom could get a job in a schmatta factory.
 
 My dad was essentially laid off due to disability from having a heart attack in 1975. And he wasn’t in the Union long enough to actually around like hawks because this was the classic gritty NYC of the 1970s. Abe Beame’s shithole. The city I grew up in. A genuinely dangerous place.
 
