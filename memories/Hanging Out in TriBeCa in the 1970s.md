@@ -2,7 +2,7 @@
 
 By Jack Szwergold
 
-Call me cool, but back in 1975 or 1976 when I was 7 or 8 years old I hung out in TriBeCa.
+If you want to call me a cool kid, please do. You see, back in 1975 or 1976—when I was 7 or 8 years old—I visited  TriBeCa for the first time… With my mom and dad.
 
 Not at the Mudd Club or anything like that but in a huge factory just South of Canal Street.
 
