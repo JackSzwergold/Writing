@@ -34,9 +34,9 @@ I heard some mumbling and looked back down the aisle to my parents talking to th
 
 After a while there was a pause and my mom and dad came up front withb the factory guy following close behind. When they came up front my dad leaned over and said to me, “Okay. It’s time to go home.” The factory guy looked at me, looked at my parents and just miscellaneously shrugged. It wasn’t a judgmental shrug, but my parents had me in their 40s and at the time of this encounter they were in their early 50s. I looked more like I should be their grandson at the time; not their son. But there I was and their son I was.
 
-While it was never said explicitly, I’m pretty sure my parents dragged me along to score some sympathy points with the factory guy. I mean, showing off a kid as a desperate dependent for a job is a way of pushing symapthy buttons, right?
+While it was never explicitly said, I’m pretty sure my parents dragged me along to score some sympathy points with the factory guy. I mean, showing off a kid as a desperate dependent for a job is a way of pushing symapthy buttons, right?
 
-We walked down the stairs, walked back down Broadway, looked around to see if there was any shopping—something my parents always did after one of these work/family trips—and since there wasn’t much of anything past junk stores, we headed back to the subway and headed back home.
+Anway, we walked back down the stairs of the factory, walked up Broadway—past Dave’s Luncheonette—and turned onto Canal Street. We briefly paused to look around and see if there was any bargain hunting to be done—something my parents always did after one of these work/family trips—and since there wasn’t much of anything we could spy past basic junk stores, we headed back into the subway and headed back home to the ass end of Brooklyn.
 
 ***
 
