@@ -26,7 +26,7 @@ I remember seeing rows upon rows of sewing machines all lined up in various rows
 
 After a brief pause to look around, my dad shouted a “Hello!” that echoed throughout the floor. We heard some faint shuffling from the far end of the floor and a person appeared out of a side room at the very back of the factory floor and responded “What?”
 
-My mom and dad looked at each other, looked at me and told me to stay up front. I nodded a “Yes…” and with that they walked to the back of the factory where that guy was.
+My mom and dad looked at each other, looked at me and told me to stay “Right here…” meaning up front. I nodded a humble child-like “Yes…” and with that they walked to the back of the factory where that guy was.
 
 I meandered around up front, not wandering too far out of sight of my parents, but not really standing still either. I peered around and peeked around to see what I could see. I was a kid so I was looking for some cool stuff to shove in my pocket, but all I saw were miscellaneous things like screws, nails, sewing machine needs and old-school cans of oil. Nothing worth much of anything to me.
 
