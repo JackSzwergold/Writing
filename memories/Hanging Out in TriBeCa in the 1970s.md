@@ -22,7 +22,7 @@ While my parents looked around and tried to spot threats—real and imagined—b
 
 To me, the place looked so fancy and cool with it’s neon signs and shiny diner exterior highlights. But we never stopped in the place at all; not even to use the bathroom. In our case, we just stepped out of the subway, swung onto Broadway and walked a few blocks down, then through a rickety door and up a dingy staircase to a darkened—but dimmly lit—factory floor. Light streamed in from whatever windows were still there but nobody was working.
 
-I remember seeing rows upon rows of sewing machines. Nobody seemed to be there yet we walked in as if it were no issue.
+I remember seeing rows upon rows of sewing machines all lined up in various rows; too many to count. Lots of industrial green and bare wood all around. And it was relatively quiet; not even the sound of a radio could be heard in the cavernous space. Nobody seemed to be there yet we walked in as if it were no issue.
 
 My dad shouted “Hello!” and it echoed throughout the floor. We all heard some shuffling from the back and a person appeared at the very end of the factory floor and asked “What?”
 
