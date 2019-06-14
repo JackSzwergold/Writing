@@ -30,7 +30,10 @@ My mom and dad looked at each other, looked at me and told me to stay “Right h
 
 I stood around, but also meandered around up front; not wandering too far out of sight of my parents, but not really standing still either. I peered around and peeked around to see what I could see. I was a kid so I was also looking for some cool stuff to shove in my pocket. But all I saw were miscellaneous things like screws, nails, sewing machine realted items and old-school tin cans of oil. Nothing worth much of anything to me or any other kid.
 
-I heard looked back down the aisle to my parents talking to the factory guy. I could hear them speak to him in Yiddish and saw lots of gesticulation. Hand motions and such. The discussion was passionate but not crazy or angry. Clearly some kind of negotiation.
+I heard some mumbling and looked back down the aisle to my parents talking to the factory guy. I could hear them speak to him in Yiddish, Hebrew or whatever and saw my dad and the guy leaning into each other with lots of hand gesticulation and “expression” going on. Hand motions, waving and other such stuff that immigrants were wont to do.
+
+
+. The discussion was passionate but not crazy or angry. Clearly some kind of negotiation.
 
 After a while my mom and dad came up front and the guy followed. When they came up front my dad said, “Okay time to go home.” The guy looked at me, looked at my parents and just shrugged. It wasn’t a judgmental shrug, but my parents had me in their 40s and at the time of this encounter they were in their early 50s. I looked more like I should be their grandson at the time; not their son.
 
