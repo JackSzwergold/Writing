@@ -12,9 +12,12 @@ We all took the train out of Brighton Beach. I was grey and overcast and—since
 
 As the train rolled along, I’d get excited when I saw glimmers of what looked like toys, balls and related cool junk on the tracks. I even had daydreams of rushing off at a nearby stop and running onto the subway tracks and to score some free cool stuff.
 
-But that was not to be. First, I was too young and would get hit by a train and die—or at least loose a limb—if I did something like that. Second, we needed to head into Manhattan to see if my mom could get a job in a schmatta factory.
+But all of that was not to be. First, I was too young and would most likely get hit by a train and die—or at least loose a limb—if I did something like that. Second, we—as a family—needed to head into Manhattan to see if my mom could get a job in some kind of schmatta factory somewhere.
 
-My dad was essentially laid off due to disability from having a heart attack in 1975. And he wasn’t in the Union long enough to actually around like hawks because this was the classic gritty NYC of the 1970s. Abe Beame’s shithole. The city I grew up in. A genuinely dangerous place.
+You see, my dad was essentially laid off from his job at the Williamsburg box factory in 1975 due to disability. He had a heart attack and—on doctor’s orders—could not do any heavy manual work anymore. And he wasn’t in the Union long enough to get disability; 4-5 years shy by my estimation. So with no real job prospects for my dad, my mom stepped up to the plate to be the new breadwinner of the family. And since—like my dad—she didn’t even have a high school education, the best she could do was manual labor of some sort in the lower rungs of the garment industry. 
+
+
+y around like hawks because this was the classic gritty NYC of the 1970s. Abe Beame’s shithole. The city I grew up in. A genuinely dangerous place.
 
 But I looked around and soaked in what I could. Like Dave’s Luncheonette on the corner. It looked so fancy and cool. But we never stopped in. We just swung onto Broadway and walked a few blocks down, up some dingy staircase and only the darkened—but still lit—factory floor. Light streamed in from whatever windows were still there.
 
