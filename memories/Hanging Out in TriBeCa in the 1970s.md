@@ -32,9 +32,9 @@ I stood around, but also meandered around up front; not wandering too far out of
 
 I heard some mumbling and looked back down the aisle to my parents talking to the factory guy. I could hear them speak to him in Yiddish, Hebrew or whatever and saw my dad and the guy leaning into each other with lots of hand gesticulation and “expression” going on. Hand motions, waving and other such stuff that immigrants tended to do when they communicated passionately about something. And passionate it was; not angry or hateful. Clearly some kind of ethnic negotiation was going on.
 
-After a while my mom and dad came up front and the guy followed. When they came up front my dad said, “Okay time to go home.” The guy looked at me, looked at my parents and just shrugged. It wasn’t a judgmental shrug, but my parents had me in their 40s and at the time of this encounter they were in their early 50s. I looked more like I should be their grandson at the time; not their son.
+After a while there was a pause and my mom and dad came up front withb the factory guy following close behind. When they came up front my dad leaned over and said to me, “Okay. It’s time to go home.” The factory guy looked at me, looked at my parents and just miscellaneously shrugged. It wasn’t a judgmental shrug, but my parents had me in their 40s and at the time of this encounter they were in their early 50s. I looked more like I should be their grandson at the time; not their son. But there I was and their son I was.
 
-Pretty sure my parents dragged me along to score some sympathy points. I mean, showing off a kid as a dependent for a job is a thing.
+While it was never said explicitly, I’m pretty sure my parents dragged me along to score some sympathy points with the factory guy. I mean, showing off a kid as a desperate dependent for a job is a way of pushing symapthy buttons, right?
 
 We walked down the stairs, walked back down Broadway, looked around to see if there was any shopping—something my parents always did after one of these work/family trips—and since there wasn’t much of anything past junk stores, we headed back to the subway and headed back home.
 
