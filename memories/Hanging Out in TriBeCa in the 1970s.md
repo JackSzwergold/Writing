@@ -16,10 +16,11 @@ But all of that was not to be. First, I was too young and would most likely get 
 
 You see, my dad was essentially laid off from his job at the Williamsburg box factory in 1975 due to disability. He had a heart attack and—on doctor’s orders—could not do any heavy manual work anymore. And he wasn’t in the Union long enough to get disability; 4-5 years shy by my estimation. So with no real job prospects for my dad, my mom stepped up to the plate to be the new breadwinner of the family. And since—like my dad—she didn’t even have a high school education, the best she could do was manual labor of some sort in the lower rungs of the garment industry. 
 
+As we got off subway, we all stuck together and absorbed everything around us around like hawks because this was the classic gritty NYC of the 1970s. Abe Beame’s shithole of a city whihc was the city I grew up in and it was a genuinely dangerous place at the time.
 
-y around like hawks because this was the classic gritty NYC of the 1970s. Abe Beame’s shithole. The city I grew up in. A genuinely dangerous place.
+While my parents looked around and tried to spot threats—real and imagined—before they happened, I soaked in what I could trying to find any shred of fun I could find in this dump of a city. Like Dave’s Luncheonette on the corner of Canal Street and Broadway.
 
-But I looked around and soaked in what I could. Like Dave’s Luncheonette on the corner. It looked so fancy and cool. But we never stopped in. We just swung onto Broadway and walked a few blocks down, up some dingy staircase and only the darkened—but still lit—factory floor. Light streamed in from whatever windows were still there.
+To me, the place looked so fancy and cool with it’s neon signs and shiny diner exterior highlights. But we never stopped in the place at all; not even to use the bathroom. In our case, we just stepped out of the subway, swung onto Broadway and walked a few blocks down, then through a rickety door and up a dingy staircase to a darkened—but dimmly lit—factory floor. Light streamed in from whatever windows were still there but nobody was working.
 
 I remember seeing rows upon rows of sewing machines. Nobody seemed to be there yet we walked in as if it were no issue.
 
