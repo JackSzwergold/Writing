@@ -8,7 +8,10 @@ Not at the Mudd Club or Artist’s Spaceor anything like that but in a huge fact
 
 The space was a garment factory and—one Saturday morning—my mom, dad and I headed out from the ass end of Brooklyn to TriBeCa so my mom could look for work.
 
-We all took the train out of Brighton Beach. I was grey and overcast and—since it was a weekend morning—the subway was pretty dead and desolate. The train car itself was one of those rickety old metal cars that was kinda corrugated on the side; most likely still had the old “TA” (Transit Authority) logo on the side. The trip was fun. I liked looking out the windows. Especially the window of the first car. I’d get excited toys, balls and junk on the tracks and had fantasies of getting off at a nearby stop, running onto the tracks and scoring some free toys.
+We all took the train out of Brighton Beach. I was grey and overcast and—since it was a weekend morning—the subway was pretty dead and desolate. The train car itself was one of those rickety old metal cars that was kinda corrugated on the side; most likely still had the old “TA” (Transit Authority) logo on the side. And—like every subway trip for me—the trip was fun. I really liked looking out the windows. Especially the window at the front of the first car.
+
+
+I’d get excited toys, balls and junk on the tracks and had fantasies of getting off at a nearby stop, running onto the tracks and scoring some free toys.
 
 But that was not to be. First, I was too young and would get hit by a train and die. Second, we needed to head into Manhattan to see if my mom could get a job in a schmatta factory.
 
