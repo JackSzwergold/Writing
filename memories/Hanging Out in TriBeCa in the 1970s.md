@@ -22,9 +22,9 @@ While my parents looked around and tried to spot threats—real and imagined—b
 
 To me, the place looked so fancy and cool with it’s neon signs and shiny diner exterior highlights. But we never stopped in the place at all; not even to use the bathroom. In our case, we just stepped out of the subway, swung onto Broadway and walked a few blocks down, then through a rickety door and up a dingy staircase to a darkened—but dimmly lit—factory floor. Light streamed in from whatever windows were still there but nobody was working.
 
-I remember seeing rows upon rows of sewing machines all lined up in various rows; too many to count. Lots of industrial green and bare wood all around. And it was relatively quiet; not even the sound of a radio could be heard in the cavernous space. Nobody seemed to be there yet we walked in as if it were no issue.
+I remember seeing rows upon rows of sewing machines all lined up in various rows; too many to count. Lots of industrial green and bare wood all around. And it was relatively quiet; not even the sound of a radio could be heard in the empty, cavernous space. And past any of that, nobody seemed to be in the factory yet we walked in as if it were no issue; New York was unsafe back then but the front door was just open like that? Weird.
 
-My dad shouted “Hello!” and it echoed throughout the floor. We all heard some shuffling from the back and a person appeared at the very end of the factory floor and asked “What?”
+After a brief pause to look around, my dad shouted a “Hello!” that echoed throughout the floor. We heard some faint shuffling from the far end of the floor and a person appeared out of a side room at the very end of the factory floor and responded “What?”
 
 My mom and dad looked at each other and looked at me and told me to stay up front. I nodded a “Yes…” and with that they walked to the back of the factory where that guy was.
 
