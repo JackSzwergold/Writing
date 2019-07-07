@@ -1,4 +1,5 @@
 # The Time I Met a Family Friend Who Liked The Beatles
+### About the Time I Finally Met Someone Who My Family Knew Who Wasn’t Old
 
 One of the problems with being the child of old parents was nothing my parents did or liked was hip or cool.
 
@@ -51,3 +52,7 @@ Back when I was a kid, when we visited them back then, they were just moving in.
 A few days after we visited, their son was installing a window air conditioner on his own when his grip slipped and the air conditioner fell out of the window. Either he tried to stop it’s fall by grabbing the power cord, or the power cord got tangled around his legs but whatever the specifics were the end result was he was dragged out the window by the air conditioner and died.
 
 That was about it.
+
+***
+
+*The Time I Met a Family Friend Who Liked The Beatles (c) Copyright by Jack Szwergold; written on June 30, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
