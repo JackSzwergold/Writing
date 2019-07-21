@@ -2,42 +2,49 @@
 
 Some friends of mine from P.S. 253 had a vacation home in Vermont. This was weird and kinda entitled in the 1970s since most—if not all—of the people who lived in Brighton Beach were poor, working class and were lucky enough to live a few blocks away from the beach let alone own a second vacation home out of state.
 
-But the way I understood it is my friend’s parents both worked for the city—the mom was a social worker and the dad was a school guidance counselor—so they managed to know someone who knew someone who sold them a small vacation home in Vermont.
+The way I understood it is my friend’s parents both worked for the city—the mom was a social worker and the dad was a school guidance counselor—so they managed to know someone who knew someone who sold them a small vacation home in Vermont.
 
-Anyway, sometime in 4th or 5th grade they invited me to visit them up in Vermont. It was a cool invitation, but my parents were older and didn’t drive. Which meant it was up to my brother—who is 20 years older than me—to be my vacation partner.
+Anyway, sometime in 4th or 5th grade they invited me to visit them up in Vermont. It was a cool, kind and generous invitation extended to me and my city-kid life. But my parents were older and didn’t drive. Which meant it was up to my brother—who is 20 years older than me—to be my vacation partner.
 
-Truth be told, my brother wasn’t manifesting himself as a complete jerk at that time. But this trip would be shades of things to come.
-
-***
-
-The trip up to Vermont was actually fun. Never went on a significant road trip until then and even driving past Bear Mountain was a thrill.
-
-[Need to flesh this out a bit.]
-
-When we got to my friend’s place it was actually a humble little house. Not exactly a shack, but not exactly a mansion either. Just basic and rustic and near a stream.
+Truth be told, my brother wasn’t manifesting himself as a complete jerk at that time. But this trip would slowly reveal shades of his nasty side I had not really seen yet.
 
 ***
 
-We spent days doing tons of nothing like exploring the woods or rummaging through a small junkyard filled with old glass and rusty metal stuff. There was even the rusted out shell of a car sitting nearby. It was weed covered, but still had seat springs and a steering wheel in place.
+The trip up to Vermont was actually fun. Never went on a significant road trip until then and even driving past Bear Mountain in upstate New York was it’s own thrill.
 
-Unfortunately we couldn’t get that rusty car out of the junkyard, so we had to do other things to bide our childhood time during the summer. Like going fishing.
+We got to stop at cool rest stops and I marveled at the wood paneling and orange seats; they looked like a very “good” and well maintained McDonald’s but more WASPy. Never saw so many pickup trucks in nice shape as well as vending machines that sold smoking monkeys and other silly novelties as well. But like every trip with my brother I could never actually purchase anything I liked without a headache inducing fight.
 
-Much like a lot of my city childhood memories, fishing wasn’t anything kids did. I mainly saw middle-aged to older guys either fishing on the rocks of beach in Brighton Beach or fishing off of the pier near the parachute jump in Coney Island. The only time I ever saw kids fishing were in TV shows  like “The Andy Griffith Show” or old Little Rascals reruns. 
-So this was a learning experience for me.
+“Why do you want this garbage?” he asked as I started to put money in the machine to get a smoking monkey. “Because I like it,” I responded and as I was about to shove some quarters into the machine he would grab me and say “There’s no time. We have to go.” And without that I would be literally dragged kicking and screaming away from the machine to the front door of the rest stop. “We can buy better toys when we get back,” he said which triggered it’s own unique anxiety in me.  Nothing was worse than having my brother and his stupid wife—who hated mainstream mass-marketed toys and had a Bank Street College degree to assert her biases against mainstream mass-marketed toys—drag me to an “educational” toy store.
 
-First, this was a “no adults” outing. We simply grabbed some fishing poles from the closet, grabbed a pocket knife, and headed down the country road near us to the nearby lake.
-
-We passed by some fields with old fashioned fences and cows behind them. Don’t know if they were working farms, but the cows were cool. After a while—just about when the walk was getting tedious—we arrived in town.
-
-Town consisted of a strip of maybe six to seven buildings. Only a few of them shops. I mainly remember a gas station, general store and maybe a junk store of some kind. This town was clearly fading, if it ever shone, but was not a complete tourist trap or discarded memory yet.
-
-We walked into the general store and asked about worms. Owner pointed to the freezer case in front of the register. It blew my city kid’s mind: There right next to the ice cream and cups of ice were small styrofoam cups filled with dirt and worms. The cups were covered in some kind of plastic wrap (with air holes punched) and that was held in place with a rubber band.
-
-We opened up the freezer, picked a cup of worms, paid and walked over to the lake.
+But that was neither here nor there since—thankfully—my brother was forgetful of unwanted promises like that and after a decent trip to Vermont he would definitely forget it. And soon enough we would be back on the road and headed up to Vermont.
 
 ***
 
-It was a bright and sunny day; not too warm and not too hot. We sat down near the paved edge of the lake, opened up the cup of worms and grabbed one.
+When we got to my friend’s place it was cool and comfortable. It was a humble little house; not exactly a shack, but not exactly a mansion either. Just a basic and rustic little two story structure and near a stream.
+
+We spent days doing tons of useful nothing things like exploring the woods or rummaging through a small junkyard filled with old glass and rusty metal stuff. There was even the rusted out shell of a car sitting nearby. It was covered with weeds and vines, but still had seat springs and a steering wheel in place.
+
+Unfortunately we couldn’t get that rusty car out of the junkyard to bring it back to the cabin, so we had to do other things to bide our lazy summer childhood time during the summer. Like going fishing.
+
+***
+
+Much like a lot of my city childhood memories, fishing wasn’t anything city kids really did. When it came to fishing, I mainly saw middle-aged to older guys either fishing on the rocks of beach in Brighton Beach or fishing off of the pier near the parachute jump in Coney Island. The only time I ever saw kids fishing were in TV shows  like “The Andy Griffith Show” or old Little Rascals reruns and stuff like that.
+
+So this whole “gone fishing” thing was a learning experience for me.
+
+First—and most importantly—this was a “no adults” outing. Which was great! We simply—and pretty impulsively—grabbed some fishing poles from the closet, grabbed a pocket knife, and headed down the country road near us to the nearby lake.
+
+We passed by some fields with old fashioned stake and wire fences and cows behind them. Don’t know if they were working farms, but the cows were cool. After a while—just about when the walk was getting boring, tedious and tiresome—we arrived in town.
+
+This “town” consisted of a strip of maybe six to seven buildings at most. Only a few of them were shops of any kind. I mainly remember a gas station, general store and maybe a junk store of some kind mixed in there. Even as a kid I knew this town was clearly fading away, if it ever shone at all. But was not a complete tourist trap or discarded memory yet so it was a comfortable sort of limbo to meander around.
+
+We walked into the general store and asked about worms. The guy behind the counter pointed to the cooler case in front of the register. Asking about worms was weird enough, but it blew my city kid’s mind when I peered into to cooler case: Right there—next to the ice cream and cups of ice—were small styrofoam cups filled with dirt and worms. The cups were covered in some kind of plastic wrap (with air holes punched) and that was held in place with a rubber band. Nothing fancy; just cups of cooler chilled worms up for sale.
+
+We opened up the cooler, randomly picked a cup of worms, paid he guy for the works and just walked over to the lake.
+
+***
+
+It was a bright and sunny day; not too warm and not too hot with just enough of a breeze to cool you off every now and the. We sat down near the paved edge of the lake, opened up the cup of worms and grabbed one lucky worm who had the honor to be the first worm to be used as fishing bait.
 
 “You do it,” my friend said when it came time to put one on the hook. “What?” I responded, “I never did that before.”
 
