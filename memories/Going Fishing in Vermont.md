@@ -56,9 +56,11 @@ So with that he pulled out his pocket knife and I put the worm down on the cemen
 
 It writhed around a bit and I said, “Okay, cut him.” But my friend chickened out and handed me the knife. “You do it,” he said. And I guess that became my job for the day.
 
-I looked at the knife, and like all kids pocket knives the blade was shiny but still looked dull. I took it in my hand, held onto the worm and sliced it in half. “Ewww,” my friend said as I took the squirming half of the worm in my hand and poked it through the hook. With that I stood up, positioned the pole behind me and flung the weighted hook into the lake.
+I looked at the knife and—like all kids pocket knives—the blade was kinda shiny but still looked dull; I guess pocket knife manufacturers didn’t want kids stabbing each other. That said, in took the knife in my hand, held onto the worm, pressed that dull knife as hard as I could onto it, and sliced it in half. “Ewww,” my friend said as I took a squirming half of the worm in my hand and poked it through the hook. With that I stood up, positioned the pole behind me and flung the weighted hook into the lake.
 
-My pole’s floater bobbed a bit and the my friend did the same thing with his half of the worm and his pole.
+My pole’s floater bobbed a bit in the lake and my friend did the same thing with the other half of the worm and his pole.
+
+[Done Above]
 
 Soon enough both of our lines were in the water and we both just sat and waited for the floaters to bob a bit meaning a fish bit the hook and we caught one.
 
