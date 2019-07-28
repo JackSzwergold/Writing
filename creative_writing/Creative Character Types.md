@@ -1,4 +1,4 @@
-Creative Character Types
+# Creative Character Types
 
 ## Outraged Ineffectual Enabler
 
@@ -53,3 +53,7 @@ Kinda like the “cool mom/dad” but they don’t realize they are the cool mom
 ## Humble Narcissist
 
 Person acts kind, humble and deferential in many situations until an opportunity comes to be a narcissist and then they turn on a dime.
+
+***
+
+*Creative Character Types (c) Copyright by Jack Szwergold; written on July 27, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
