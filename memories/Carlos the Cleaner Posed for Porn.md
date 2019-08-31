@@ -75,7 +75,7 @@ I stared at it a bit and looked around and asked “Where’s Carlos?” Miguel 
 
 It wasn’t like the boss was homophobic or a prude or anything—far from either to be honest—but Carlos just never let the boss see any of the shots from his brief stint as a male porn model. It was some weird unwritten rule about their relationship I guess.
 
-Sp with that I passed the magazine back to to Miguel who slipped it back into the pile of stuff on the shelf behind him and we all got back to doing whatever we were doing that day.
+So with that I passed the magazine back to to Miguel who slipped it back into the pile of stuff on the shelf behind him and we all got back to doing whatever we were doing that day.
 
 ***
 
