@@ -4,4 +4,4 @@
 
 ***
 
-*Going to a Private School (c) Copyright by Jack Szwergold; written on August 31, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+Going to a Private School (c) Copyright by Jack Szwergold; written on August 31, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).
