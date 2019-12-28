@@ -1,7 +1,9 @@
 # Heroin Holiday in Brighton Beach
 ## About the time I went to a holiday party on the Upper East Side and listened to someone I barely knew tell me my childhood neighborhood was a good place to do a heroin holiday.
 
-I wasn’t at rock bottom but I sure wasn’t at the top either. I had moved back to NYC in the fall 2000 with the wacky weekly newspaper, and my ass was unceremoniously canned in early 2001. In a power play, the creative editor, director and co-owner of the place was pushed out by the mouth breathing, pothead midwestern sub shop king. And — despite years of service at mediocre pay — I was culled our because I was apparently difficult to work with.
+I wasn’t at rock bottom but I sure wasn’t at the top either.
+
+I had moved back to NYC in the fall 2000 with the wacky weekly newspaper, and my ass was unceremoniously canned in early 2001. In a power play, the creative editor, director and co-owner of the place was pushed out by the mouth breathing, pothead midwestern sub shop king. And — despite years of service at mediocre pay — I was culled our because I was apparently difficult to work with.
 
 As I implied, the real cause for all of this was a power play to force the award winning editorial team to work more closely with the lunkhead boiler room business staff. Which was ridiculous.
 
