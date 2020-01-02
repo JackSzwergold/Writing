@@ -5,7 +5,7 @@ It was a Saturday in the early 1980s; maybe 1981 or 1982. The day was nice and n
 
 It was odd because there would always be sound of some kind. Either my mom and dad talking to each other, noise from the TV or radio or even the noise of food being prepared or cleaned up in the kitchen. Pure silence didn’t occur in my apartment unless it was intentional. And judging by the faint whispers I heard from my mom and dad, something intentional was happening.
 
-I got up and walked down the hallway. As nothing and nobody in the bedroom and less in the bathroom and kitchen. But as I got to the living room, that’s when I saw it: My mom was sitting down on the couch talking to my dad in Polish or Yiddish and my dad was standing near the window looking down to the alley in the back of the building and talking back to my mom.
+I got up and walked down the hallway of the apartment. There was nothing and nobody in the bedroom and less in the bathroom and kitchen. But as I got to the living room, that’s when I saw it: My mom was sitting down on the couch talking to my dad in Polish or Yiddish and my dad was standing near the window looking down to the alley in the back of the building and talking back to my mom.
 
 “What’s happening?” I asked my dad. He shushed me a bit, and made a hand motion for me to come to him.
 
