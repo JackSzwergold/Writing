@@ -1,5 +1,5 @@
 # Kittens in the Alley
-## About the time I found a bunch of maggot covered kittens in an air shaft alleyway in the building when I was a kid.k
+## About the time I found a bunch of maggot covered kittens in an air shaft alleyway in the building when I was a kid.
 
 It was sometime in the mid 1970s and one of my favorite childhood pastimes was getting out of the apartment and running around outside. Literally just that: Getting out of the apartment, emerging into the outside world of Ocean Parkway and running around; playing with other kids and all that.
 
