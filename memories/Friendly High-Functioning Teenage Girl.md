@@ -1,4 +1,4 @@
-# Friendly Teenaged High-Functioning Girl
+# Friendly High-Functioning Teenage Girl
 ## About the time I was waiting for the bus in 2017 or so.
 
 She ran across the street to the bus stop to meet someone at the bus stop. That person looked like an older version than her.
@@ -13,4 +13,4 @@ On the bus the younger girl is completely fascinated with the rain coming down. 
 
 ***
 
-*Friendly Teenaged High-Functioning Girl (c) Copyright by Jack Szwergold; written on January 20, 2020. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Friendly High-Functioning Teenage Girl (c) Copyright by Jack Szwergold; written on January 20, 2020. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
