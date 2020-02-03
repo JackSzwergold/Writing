@@ -73,4 +73,4 @@ The week simply went on as it usually did: We worked and did our jobs and that w
 
 ***
 
-* Phil Howard at Castilian Communications(c) Copyright by Jack Szwergold; written on January 25, 2020. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+*Phil Howard at Castilian Communications(c) Copyright by Jack Szwergold; written on January 25, 2020. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
