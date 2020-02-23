@@ -1,4 +1,5 @@
 # Trying to Steal a Hubcap
+## About the time in 1986 when I attempted to steal a hubcap.
 
 It was the mid 1980s. Maybe 1986 or so. For argument’s sake I’ll say it was an evening during the summer of 1986 because it was the year most everyone was graduating from high school and going off to wherever.
 
