@@ -44,7 +44,15 @@ We decided to skip heading over to the Village and headed back home on the D tra
 
 ***
 
+A few weeks pass and I get a call from Danny on a Saturday afternon.
 
+“What’s up?” I ask. “Let’s do it!” he says. “Do what?” I ask. “Let’s go hang out at the Met!”
+
+I rolled my eyes, set a time and got the subway and met up with Danny at the Avenue J station.
+
+“This all seems like bullshit,” I said to which Danny replied, “Oh come on, how much money did you bring along?” he asked. I said I had about $12 or $13. “That’s all?” he said and I responded, “How many tarts are we going to eat exactly?” He nodded and we rode the subway, transferred at Atlantic Avenue and headed to the Upper East Side.
+
+We got off the train and walked over to the small bakery and each bought a tart. I remmeber mine being something like cherry and lemon.
 
 ***
 
