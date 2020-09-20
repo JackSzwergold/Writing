@@ -94,7 +94,17 @@ As we both reached the bottom of the stairs, I waved back to the guard to make s
 
 When we reached the corner, I threw my crumbled up paper back in the trash. Danny followed suit but was a bit more aggresive in his trash dunking.
 
-“You okay, Danny?” I asked 
+“You okay, Danny?” I asked him.
+
+“I’m fine,” he skulked as we walked back to the train and made the trip back home.
+
+The ride home was quiet but tense. Danny barely said a word.
+
+By the time we got to Avenue J, he stood up… I said, “Goodnight!”
+
+He grumbled a meet “Goodnight…” in response and headed out the door and down the stairs.
+
+I headed back out to Ocean Parkway. The sun was mostly set, but the sky still glowed a bit.
 
 ***
 
