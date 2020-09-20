@@ -40,6 +40,10 @@ With that we got on the subway.
 
 I just simply shrugged and say back in my seat and let that pass.
 
+We decided to skip heading over to the Village and headed back home on the D train. Danny got off at Avenue J and I stayed on to head back to Ocean Parkway.
+
+***
+
 
 
 ***
