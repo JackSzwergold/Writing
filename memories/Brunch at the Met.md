@@ -54,7 +54,47 @@ I rolled my eyes, set a time and got the subway and met up with Danny at the Ave
 
 We got off the train and walked over to the small bakery and each bought a tart. I remmeber mine being something like cherry and lemon. Whatever, Danny and I had our blessed tarts and we were headed to the steps of the Met Museum.
 
-And after a few blocks
+And after a few blocks, we finally reached our destination! The Met Museum steps itself.
+
+The sun was setting and the trees in Central Park were silhouetted as we approached. The place was either closing up or about to close up, but it meant nothing to us: We were just going to be “cool” and sit down on the steps in front of the Met Museum.
+
+So we did that.
+
+I sat down and so did Danny. And within moments we were eating those stupid tarts.
+
+“What else happens?” I asked as I took a bite and turned to Danny.
+
+“This is it!” he said.
+
+And so we sat there and before you knew it was dark enough to see stars if you faced away from the sun.
+
+As we sat and ate our expensive fruit pies, a cleaning crew came out to clean up the front of the Met… Including the stairs.
+
+“Should we leave?” I said as I crumbled up the paper bag in my hand.
+
+“No… Why?” Danny asked.
+
+“Look…” I said waving my hand towards the cleaning crew.
+
+“So what?” he said so we sat there.
+
+Then some security guard came by and told us to move.
+
+“Why?” Danny retorted.
+
+“Because they have to clean up,“ the guard said. “Come on… Move along…”
+
+Danny got a bit tense… And then got dramatic… “Well okay then!” he blurted out at the guard.
+
+Me and the guard both were taken aback a bit but I stood up — and so did Danny — and we walked away.
+
+I tried to be as cordial to the guard as possible to try to keep things calm, but Danny looked like he was about to burst out of his own skin. Which was weird because I’m usually the tense one.
+
+As we both reached the bottom of the stairs, I waved back to the guard to make sure he knew we were cool. He waved back and nodded.
+
+When we reached the corner, I threw my crumbled up paper back in the trash. Danny followed suit but was a bit more aggresive in his trash dunking.
+
+“You okay, Danny?” I asked 
 
 ***
 
