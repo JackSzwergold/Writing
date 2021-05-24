@@ -1,8 +1,5 @@
 # Brunch at the Met
-
-**Quick Notes**: Danny Alfred and I going to the Met. Involve the background of hanging out with him and watching him dissociate. End with his mom saying it’s good that I hung out with him and him joining some odd overseas religious group.
-
-***
+## About the Time Me and a High School Friend Somehow Decided That Eating Fancy Tarts on the Steps of the Met Museum Was a Thing for Two Brooklyn Kids to Do
 
 Danny was a high school friend of a friend from Midwood. He lived on East 15th Street near Avenue J. He lived in Midwood and went to Midwood High School. I lived in Brighton Beach and went to Abraham Lincoln High School. We got along because we were weirdos and had a mutual friend; a connector if you will.
 

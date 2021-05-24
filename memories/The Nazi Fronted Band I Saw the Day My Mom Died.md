@@ -15,7 +15,7 @@ I went to the payphone in the foyer of the nearby Cardinal Bar, called my family
 
 Flash forward to September 2000. I was working at that wacky weekly newspaper since 1995 and a lot of us were going to move to New York. Todd — one of the writers on staff — invited me over to check out his new 32” TV and the new PlayStation and recently released “Spider-Man” game he scored.
 
-The TV and video game was a big deal because this guy was a loser who never had a decent paying job. But now — thanks to the Onion’s 1990s rise to fame — was able to have more disposable money. So he “splurged” on a TV set and a video game. (8/13)
+The TV and video game was a big deal because this guy was a loser who never had a decent paying job. But now — thanks to the wacky weekly newspaper’s 1990s rise to fame — was able to have more disposable money. So he “splurged” on a TV set and a video game.
 
 Just as I was about to leave, one of this Todd’s pals came by: Greg P. the lead singer of the band with the Nazi SS symbol in their logo. I was introduced to Greg P. and he gave me a weak, tepid handshake and simply said, “Oh… You’re the Jew, right?”
 
