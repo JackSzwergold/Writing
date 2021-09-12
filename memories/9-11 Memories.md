@@ -14,6 +14,8 @@ Former Onion colleague calls me again and is basically rambling on about another
 
 I laid down on my sofa and watched the TV seemingly endlessly. The repeated footage of the planes crashed aired on and on on all channels. I eventually turned off the TV. And took a quick nap.
 
+***
+
 After the nap, I packed up my camera and walked down Atlantic Avenue (where I lived at the time) towards Brooklyn Heights. What struck me as odd wasn’t just a flood of people walking past me in the opposite direction. But normalcy in odd places.
 
 Like a corner store in Brooklyn Heights with people going about their business as if nothing had happened with smoke literally wafting overhead outside.
