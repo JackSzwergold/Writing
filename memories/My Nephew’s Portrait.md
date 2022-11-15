@@ -1,25 +1,29 @@
-## My Nephew’s Portrait
-### About the Time I Watched as a Relative Put a Barking Dog Inches Away from My Nephew’s Face and Everyone Just Stood Back and Laughed
+<!-----
+title: My Nephew’s Portrait
+description: About the Time I Watched as a Relative Put a Barking Dog Inches Away from My Nephew’s Face and Everyone Just Stood Back and Laughed
+date: '2018-04-01T01:10:07.985Z'
+slug: c9311df80837
+----->
 
-By Jack Szwergold
+![](img/1__6K3IZHTzjWsSKEBZ5w1FKQ.jpeg)
 
-It was an odd period in the family in the mid-1980s: My sister, her husband and children moved back to Brooklyn a few years before. They lived on Ocean Avenue near Neck Road. The apartment was decent, but one day—while walking back home from running errands—my sister saw a splatter of blood on the sidewalk near a payphone on the corner and flipped out. She desperately needed to move.
+It was an odd period in the family in the mid-1980s: My sister, her husband and children moved back to Brooklyn a few years before. They lived on Ocean Avenue near Neck Road. The apartment was decent, but one day — while walking back home from running errands — my sister saw a splatter of blood on the sidewalk near a payphone on the corner and flipped out. She desperately needed to move.
 
 So my father heard about this from her, talked to the superintendent of the building and was able to hook them up with a decent apartment in our building that was just one floor above us.
 
-Despite the close proximity, each family—for the most part—kept it’s distance… And things were seemingly decent and balanced in some ways. I was a teenager in high school then—and at least with my sister and her husband—I could go and hang out with friends in the neighborhood without the incessant meddling and interference my brother his wife was more apt to do. And my sister and her family were not completely up our collective asses all the time telling us how to live our lives… But that still didn’t mean things were all happy and fun with them… Far from it.
+Despite the close proximity, each family — for the most part — kept it’s distance… And things were seemingly decent and balanced in some ways. I was a teenager in high school then — and at least with my sister and her husband — I could go and hang out with friends in the neighborhood without the incessant meddling and interference my brother his wife was more apt to do. And my sister and her family were not completely up our collective asses all the time telling us how to live our lives… But that still didn’t mean things were all happy and fun with them… Far from it.
 
 One day I was bored and headed up to my sister’s apartment. Her husband had just come back from jogging and was shirtless and smoking a joint as he propped up my nephew on their couch for a picture he wanted to take.
 
 “Hey Jack! Check this out!” he said as he waved me into the living room.
 
-There, sitting on the edge of the couch like a lifeless doll, was my nephew. He was dressed casually—but formally in a flannel button down shirt and my sister’s husband was combing his hair while the joint dangled from lips.
+There, sitting on the edge of the couch like a lifeless doll, was my nephew. He was dressed casually — but formally in a flannel button down shirt and my sister’s husband was combing his hair while the joint dangled from lips.
 
 “He looks cool, right?” he said to me, smiling with this big shit eating grin he always had on.
 
 “I want to get a nice picture of him!” he said as he stepped back behind the 35mm camera he had on a tripod nearby.
 
-“Come on over and look!” he said to me as he waved me over to look through the view finder of the camera. Not much to say or see; it was just a well groomed–somewhat confused—kid as seen through the viewfinder of the camera.
+“Come on over and look!” he said to me as he waved me over to look through the view finder of the camera. Not much to say or see; it was just a well groomed–somewhat confused — kid as seen through the viewfinder of the camera.
 
 As I stood up I saw my niece in the corner of the hallway near her room. She was shy and kind of peeking at the action as it unfolded.
 
@@ -33,7 +37,7 @@ My sister came out of the kitchen holding a pot, smiled and asked, “What are y
 
 Her husband responded, “I’m just telling the kids about how we all wanted to be black in the 1960s!” She just laughed and looked at him with a “You’re crazy!” look and went on with what she was doing.
 
-“And you know what?” he said to his son who was all primed up for a photo—that hasn’t been taken yet—and sitting on the couch. “Guess what! I’m not your dad! Johnny is your dad!” he said referring to our building superintendent who was black. “You’re black, son!” he said dancing around the room like the idiot he was.
+“And you know what?” he said to his son who was all primed up for a photo — that hasn’t been taken yet — and sitting on the couch. “Guess what! I’m not your dad! Johnny is your dad!” he said referring to our building superintendent who was black. “You’re black, son!” he said dancing around the room like the idiot he was.
 
 I looked around and saw my sister laughing as her husband was laughing and dancing while he smoked his joint. I’m standing there stunned and confused and not knowing how to react. My niece is standing there seemingly catatonic and looking as if she is about to cry but not actually crying yet. Nobody knew what was happening.
 
@@ -57,12 +61,8 @@ Without batting an eye, instead of pulling back on the leash the guy loosened it
 
 “Don’t worry!” he said as the dog barked and lunged at his own son. “The dog won’t hurt him. Look at him,” he said referring to my nephew, “The kid’s tough!”
 
-Suddenly—in the middle of this all—the dog wavered to the side a bit and almost knocked over his 35mm camera. “Whoa! Whoa!” he said as he jumped to protect his camera. “Enough already,” he said as he prodded his brother to pull the dog away.
+Suddenly — in the middle of this all — the dog wavered to the side a bit and almost knocked over his 35mm camera. “Whoa! Whoa!” he said as he jumped to protect his camera. “Enough already,” he said as he prodded his brother to pull the dog away.
 
 With that, he adjusted the camera and tripod, put his hand on his son’s head to get him to look straight at the camera and finally took a portrait of his son. All the while the dog was still focused on my nephew and barking at him in the background.
 
 I went to leave the apartment and my sister said I was welcome to come and have dinner with them shortly when it was ready. I said, “Okay…” and walked out the door, closed the door, walked down the hallway and headed back to my parent’s apartment.
-
-***
-
-*My Nephew’s Portrait (c) Copyright by Jack Szwergold; written on March 31, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

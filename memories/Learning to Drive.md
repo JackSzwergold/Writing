@@ -1,5 +1,11 @@
-# Learning to Drive
-## About how I learned to drive in high school thanks to a sketchy gym teacher, drag racing cops and sad street walkers in Brighton Beach.
+<!-----
+title: Learning to Drive
+description: About how I learned to drive in high school thanks to a sketchy gym teacher, drag racing cops and sad street walkers in Brighton Beach.
+date: '2020-03-03T03:25:52.465Z'
+slug: baf7c93e8c5b
+----->
+
+![](img/1__HZUBStAYwmGdnur41mXBpQ.jpeg)
 
 It was 1983 and as luck would have it, I was given an opportunity to learn how to drive. Well, when I say “opportunity” I meant that one of the gym teachers I had in high school let us all know he was offering driving classes to us for a nominal fee.
 
@@ -15,13 +21,9 @@ After class I walked up front and asked about the details. The deal was for a fe
 
 I walked out of the classroom and read the sheet as I headed outside and back home.
 
-***
-
 All I could think of on the way home was how to talk to my dad about this. He didn’t own a car and I had no idea how he’d react to me wanting to learn how to drive… Which in and of itself meant that I wanted to own a car.
 
 Truth be told, I didn’t have any I’d if I even wanted a car. All I knew that if you are an American teenager, you needed to learn how to drive or else.
-
-***
 
 “Why do you want to learn how to drive?” my dad asked as he looked over the driver’s ed info sheet.
 
@@ -31,11 +33,9 @@ Truth be told, I didn’t have any I’d if I even wanted a car. All I knew that
 
 “I’ll get a job,” I responded.
 
-And this went back and forth for a bit until my dad agreed to pay the $115 for the driving classes.￼ I filled out the form, he made out a check and then gave it to me.
+And this went back and forth for a bit until my dad agreed to pay the $115 for the driving classes. I filled out the form, he made out a check and then gave it to me.
 
 Next time I was in school, I gave Mr. Hearty the filled out form and check and before you knew it I was on my way to learning how to drive.
-
-***
 
 The road to learning how to drive was to head out to some weirdo shack/storefront near John Dewey H.S. in Gravesend. While Dewey was a great school the part of Brooklyn it was in was somewhat of a dump. It was right under the elevated subway and next to it were a bunch of construction companies and related lots filled with trucks, supplies and junk. In between that stuff was a weird narrow path divided by a wire fence with razor wire on top. Walk down that path and at the end of the path was a nameless building and in there is where the driving classes happened.
 
@@ -43,9 +43,7 @@ Nobody really questioned why these driver’s ed classes were being held in a sk
 
 After a few classes spent in front of a dingy blackboard with Mr. Hearty showing us the ins and outs of driving via chalk and lectures, we moved into the world of driving for real.
 
-***
-
-The routine was he’d pick us all up in the evening after school in his customized Toyota van — the very 1980s TownAce or LiteAce model — and then take us somewhere relatively quiet to practice driving and such. When I say the van was customized I don’t mean to say it had some kind of carpet covered lounge in the back of some airbrushed eagles and sunset on the side of the van. Not at all. The big customization this van had was it had a passenger side break that allowed Mr. Hearty to slam on the breaks if anyone behind the wheel did something risky, dangerous or just plain crazy.
+The routine was he’d pick us all up in the evening after school in his customized Toyota van — the very 1980s TownAce or LiteAce model — and then take us somewhere relatively quiet to practice driving and such. When I say the van was customized I don’t mean to say it had some kind of carpet covered lounge in the back of some airbrushed eagles and sunset on the side of the van. Not at all. The big customization this van had was it had a passenger side break that allowed Mr. Hearty to slam on the breaks if anyone behind the wheel did something risky, dangerous or just plain crazy.
 
 The first place we went to practice driving skills was Manhattan Beach; also known as the suburbs of Brighton Beach.
 
@@ -63,13 +61,11 @@ There was this one guy I remember who was very greasy, pimply, wore glasses and 
 
 One day it was my turn and I did it all like a pro without much effort. Good enough that Mr. Hearty said, “Okay, let’s head over to Oriental Boulevard.” which was a cool thing for him to say.
 
-***
-
-Oriental Boulevard was the main strip in Manhattan Beach. While not as filled with traffic as Brighton Beach was, it was still closer to real driving the side streets we practiced on. I was damned proud to drive that Toyota van down to Oriental a Boulevard and do things like change lanes, drive behind — and in front — or buses and such.
+Oriental Boulevard was the main strip in Manhattan Beach. While not as filled with traffic as Brighton Beach was, it was still closer to real driving the side streets we practiced on. I was damned proud to drive that Toyota van down to Oriental a Boulevard and do things like change lanes, drive behind — and in front — or buses and such.
 
 It was fun until a police car zoomed up right behind me, flashed its lights a few times and waved at us to pull over. What the heck? There is no way I did anything wrong or anything, but I pulled over and waited for whatever to happen.
 
-A cop got out of the car, crouched down and ran over to the driver’s side window. I rolled it down and he basically said, “Can you just stay here for a while?” I turned to Mr. Hearty, he nodded in agreement and — when the cop ran back to his car — he told me to roll up the window and explained what was happening.
+A cop got out of the car, crouched down and ran over to the driver’s side window. I rolled it down and he basically said, “Can you just stay here for a while?” I turned to Mr. Hearty, he nodded in agreement and — when the cop ran back to his car — he told me to roll up the window and explained what was happening.
 
 “We didn’t do anything,” he said in a hushed tone and explained, “Pretty sure they’re going after drag racers and they want to hide behind us.”
 
@@ -89,15 +85,13 @@ The drive featured a lot of starts and stops and the occasional aggressive honki
 
 I got out, Mr. Hearty and the other student driver wished me goodnight and I headed home.
 
-***
-
 The next few weeks of driver’s lessons were pretty much the same as what we had already done; practice makes perfect and we were all getting to be better drivers! Except for that twitchy spaz guy. He really stunk.
 
 But one of the last lessons we learned was how to parallel park near Sea Breeze Park (aka: Asher Levy Park).
 
 The park was right near Ocean Parkway so it was close to me and the high school which gave us more time to practice parallel parking. Not a lot of traffic nearby, but lots of parked cars from the nearby tenement buildings. Not enough to mean there were no parking spaces, but there were just enough parking spaces that allowed us to hop from one space to another during our lessons.
 
-But the thing about Sea Breeze Park back in the 1980s is it — like most NYC public parks back in the 1980s — it was pretty sketchy after dark you just never wanted to walk near through it when it got dark. Yet despite its reputation, that’s where us high school students would end up learning how to perfect our parallel parking techniques.
+But the thing about Sea Breeze Park back in the 1980s is it — like most NYC public parks back in the 1980s — it was pretty sketchy after dark you just never wanted to walk near through it when it got dark. Yet despite its reputation, that’s where us high school students would end up learning how to perfect our parallel parking techniques.
 
 “Okay, pull up behind that one,” Mr. Hearty said to me as I made a left on Seabreeze Avenue and slowly drove the van next to the park. As I drive I noticed some women walking near the park but I paid them no mind.
 
@@ -125,8 +119,6 @@ The Russian hookers stood back a bit to watch what we were doing all the while; 
 
 This went on for a little bit until we had all taken turns parking in various spaces near Sea Breeze Park and headed back home.
 
-***
-
 Weeks would pass and the classes would end. Everyone got their driver’s license and life seemed to go on as it should.
 
 Mr. Hearty would still go on doing those driver’s lessons and even told our gym class he would cut the end of the day gym class so he could go to teach the class.
@@ -145,12 +137,8 @@ A few days later I found out Mr. Hearty got in trouble for those driving lessons
 
 One day while I was walking down the hallway, he saw me, stopped me and said, “So you told them about the driving lessons?”
 
-I paused silently as he glowered at me and walked away. A few other gym teachers down the hall saw that interaction and they all glowered at me as Mr. Hearty approached them and talked to them — presumably — about me.
+I paused silently as he glowered at me and walked away. A few other gym teachers down the hall saw that interaction and they all glowered at me as Mr. Hearty approached them and talked to them — presumably — about me.
 
 Word got out among some of the students, but nobody really cared. The gym teachers at the school were kind garbage people so it was like a collective whatever.
 
 But it still made gym class harder. And if Mr. Hearty ended up being my gym teacher on some days, I would just show up for the attendance count, head back to the locker room and head out the back door, run down to Ocean Parkway and head back home.
-
-***
-
-*Learning to Drive (c) Copyright by Jack Szwergold; written on August 31, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

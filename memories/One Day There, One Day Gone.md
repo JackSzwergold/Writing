@@ -1,9 +1,11 @@
-## One Day There, One Day Gone
-### The Time My Sister Threw Out a Cat
+<!-----
+title: 'One Day There, One Day Gone'
+description: The Time My Sister Threw Out a Cat
+date: '2016-10-15T05:01:53.513Z'
+slug: 42ae29aab74c
+----->
 
-By Jack Szwergold
-
-My sister was divorced, had two kids and had a cat named Amanda. Amanda was a fairly feral tabby; always thin, wiry, prickly to deal with and never liked to sit in anyones lap. She had another cat named Bonnie who was more domesticated, friendly and better housebroken. But Amanda peed on everything and scratched everything since being a kitten and she was 5-6 years old by this point.
+My sister was divorced, had two kids and had a cat named Amanda. Amanda was a fairly feral tabby; always thin, wiry, prickly to deal with and never liked to sit in anyones lap. She had another cat named Bonnie who was more domesticated, friendly and better housebroken. But Amanda peed on everything and scratched everything since being a kitten and she was 5–6 years old by this point.
 
 One day my sister called me out of the blue and asked if I come come over. So I took the train out from my place in Park Slope to her place in Bensonhurst to see what was up.
 
@@ -19,10 +21,6 @@ My sister got back into the car and drove back to her place. She rambled about h
 
 That’s what she needed me for. She was too cowardly to do something like abandon a family pet by herself so she needed someone like me to be there to validate her actions.
 
-After getting back to her place and I don’t know what happened next. I don’t even recall if her kids were home or even what she told them about where their family cat went. All I do know is after that day nobody—not even the kids—ever talked about Amanda again which disturbed me more than the act of abandonment.
+After getting back to her place and I don’t know what happened next. I don’t even recall if her kids were home or even what she told them about where their family cat went. All I do know is after that day nobody — not even the kids — ever talked about Amanda again which disturbed me more than the act of abandonment.
 
 Pictures still existed. But the specifics of what happened to Amanda were never discussed and questions were never asked. One day Amanda was there and one day the she was gone. And everyone pretended that was normal.
-
-***
-
-*One Day There, One Day Gone: My Sister Threw Out a Cat (c) Copyright by Jack Szwergold; written on May 21, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

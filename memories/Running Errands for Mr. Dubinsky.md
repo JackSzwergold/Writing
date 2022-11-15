@@ -1,13 +1,17 @@
-## Running Errands for Mr. Dubinsky
-### About the Times I Ran Some Errands for a Friend of My Dad
+<!-----
+title: Running Errands for Mr. Dubinsky
+description: About the Times I Ran Some Errands for a Friend of My Dad
+date: '2018-12-22T15:38:49.270Z'
+slug: 7dd6aa6eb88f
+----->
 
-By Jack Szwergold
+![](img/1__ryUKSqmlevdftd0spiaaZg.jpeg)
 
-It was the 1970s and I was maybe 8 or 9 years old at the time. I didn’t necessarily want or need a job—my $2 a week allowance worked well for my humble needs at the time—but my dad would get me to run errands every now and then and let me keep some of the left-over change from the transaction.
+It was the 1970s and I was maybe 8 or 9 years old at the time. I didn’t necessarily want or need a job — my $2 a week allowance worked well for my humble needs at the time — but my dad would get me to run errands every now and then and let me keep some of the left-over change from the transaction.
 
 The errands consisted of of the most basic and predictable stuff a kid would be asked to do: Go out and buy loaf of bread here, or buy a container of milk there… Maybe go out and score a newspaper? The errands were unpredictable but manageable for a kid to handled. They were arbitrary, sporadic and mainly consisted of me running outside to get odds and ends when my parents were too tired or lazy to get them themselves.
 
-Occasionally, though my dad would get me to run errands for another old man in the building named Mr. Dubinsky. He kinda looked like my dad, but was clearly older than him. My dad—who had me when he was in his late 40s—was in his 50s when I was a kid in the 1970s and I am pretty sure Mr. Dubinsky was in his late 60s around that time.
+Occasionally, though my dad would get me to run errands for another old man in the building named Mr. Dubinsky. He kinda looked like my dad, but was clearly older than him. My dad — who had me when he was in his late 40s — was in his 50s when I was a kid in the 1970s and I am pretty sure Mr. Dubinsky was in his late 60s around that time.
 
 As a kid, I didn’t know much about Mr. Dubinsky other than I always saw him hanging out in front of our building wearing a darkish raincoat or overcoat or something like that. Gossiping, hanging out and watching the days pass with the other old yentas and their folding chairs in front of the building. He seemed like a decent guy from all I could tell and I can’t say much past that.
 
@@ -19,11 +23,11 @@ Anyway, one day I was playing around in my room when my dad came in from outside
 
 “Okay,” I said as I put on my jacket, took the money and headed outside.
 
-I walked over to Speedway Drugs—which was right next to our building on the corner—meander around the vending machines, then check out the toy and candy section and eventually find where those small brown bottles of hydrogen peroxide were, bring it up to the counter, pay for it and take the change and then head back to our building.
+I walked over to Speedway Drugs — which was right next to our building on the corner — meander around the vending machines, then check out the toy and candy section and eventually find where those small brown bottles of hydrogen peroxide were, bring it up to the counter, pay for it and take the change and then head back to our building.
 
-I’d buzz Mr. Dubinsky’s buzzer and he would shout “Who is it!” and I’d say “It’s Jack. I have your stuff.” Sometimes I would have to say—and even shout—that a few times so he could hear me. But eventually he would buzz me into and I would head upstairs to his apartment.
+I’d buzz Mr. Dubinsky’s buzzer and he would shout “Who is it!” and I’d say “It’s Jack. I have your stuff.” Sometimes I would have to say — and even shout — that a few times so he could hear me. But eventually he would buzz me into and I would head upstairs to his apartment.
 
-He lived on the third floor on our side of the building—one flight up from my family’s place—in an apartment that looked out of the front of the building faced Ocean Parkway. Once I got to his hallway you could sometimes see the light from the peephole flicker a bit as he opened it up to look down to the hallway and see who was coming.
+He lived on the third floor on our side of the building — one flight up from my family’s place — in an apartment that looked out of the front of the building faced Ocean Parkway. Once I got to his hallway you could sometimes see the light from the peephole flicker a bit as he opened it up to look down to the hallway and see who was coming.
 
 Then when I got to the door, he’d open it up and let me into his apartment.
 
@@ -33,14 +37,10 @@ I’d give him the small paper shopping bag that had the hydrogen peroxide bottl
 
 “Thank you,” he would say with a thick European accent has he handed me a small pile of coins as we both walked back to the front door.
 
-While Mr. Dubinsky didn’t have much in terms of objects or possessions in his apartment, I was blown away by the apartment’s westward view. Since the apartment was facing Ocean Parkway—and there were no other buildings or objects in the way—the place was always sun drenched and the view was mostly sky and tree tops.
+While Mr. Dubinsky didn’t have much in terms of objects or possessions in his apartment, I was blown away by the apartment’s westward view. Since the apartment was facing Ocean Parkway — and there were no other buildings or objects in the way — the place was always sun drenched and the view was mostly sky and tree tops.
 
 I’d run back down to my family’s apartment, put the change in my little toy safe on my desk and then go back to doing whatever kid stuff I did.
 
 Over the next few months I’d run a few errands every now and then for Mr. Dubinsky, but eventually they just kind of stopped without any explanation. I didn’t know what happened, but months later my dad mentioned in passing that Mr. Dubinsky had died and that was that.
 
-There wasn’t any great fanfare or sadness about that. One day Mr. Dubinsky was alive and then the next he was just dead and—eventually—his apartment was rented out to someone else whose name I never knew.
-
-***
-
-*Running Errands for Mr. Dubinsky (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+There wasn’t any great fanfare or sadness about that. One day Mr. Dubinsky was alive and then the next he was just dead and — eventually — his apartment was rented out to someone else whose name I never knew.
