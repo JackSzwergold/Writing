@@ -5,7 +5,7 @@ date: '2020-02-02T04:19:04.805Z'
 slug: 11d1b6cf39c8
 ----->
 
-![](img/1__jprkp__koGGIJbJODHkJGkg.jpeg)
+![](../img/1__jprkp__koGGIJbJODHkJGkg.jpeg)
 
 It was a family visit on a spring or summer day in the late 1970s or early 1980s. Maybe it was a birthday or something like that. All I know is my brother and sister — and their mutual families — had invaded our Brighton Beach home.
 

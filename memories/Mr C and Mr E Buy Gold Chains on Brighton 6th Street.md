@@ -1,5 +1,9 @@
-# Mr. C and Mr. E Buy Gold Chains on 6th Street
-## About the Time Me and a Friend Spotted Our Shitty Junior High School Gym Teachers Buying Gold Chains From a Neighborhood Dirtbag
+<!-----
+title: Mr. C and Mr. E Buy Gold Chains on 6th Street
+description: About the Time Me and a Friend Spotted Our Shitty Junior High School Gym Teachers Buying Gold Chains From a Neighborhood Dirtbag
+date: '2021-07-25T01:38:51.847Z'
+slug: 8b71cd294def
+----->
 
 While I liked junior high school, I wasn’t so hot on gym class. Not because of any nerd versus jock bullshit, but because our gym teachers were uninspiring crap. Namely two gym teachers we all referred to as Mr. C and Mr. E.
 
@@ -17,15 +21,11 @@ We walked over to the window, stuck our heads out and looked. The whiny little p
 
 “What the heck are they doing?” I said. I mean spotting a teacher outside of school was always weird, but to see them casually talking to the fat bookie down the block? That was really next level.
 
-***
-
 And let me take a small detour to describe exactly what the fat bookie looked like. First he was fat. Like perfectly round like Fat Albert but he was a white guy. He was greasy faced, had stringy facial hair, stubby fingers and was pale in that greaseball “I stay indoors all the time…” way. He always wore some kind of discount store bucket cap with the rim pulled down and had cheap aviator sunglasses on him at all times.
 
 The storefront he worked out of was once a small side street candy store or newsstand. The place was no bigger than a small studio apartment and, while there were still remnants of retail fixtures and a counter in place, it was even clear from a distance that the place had not been used as a legit place of business in years.
 
 It was dark, dank and small and the main fixtures in the place were simply the fat bookie and the small crew of lackeys that hung out there seemingly all the time.
-
-***
 
 So anyway, back to Mr. C and Mr. E being spotted with the fat bookie.
 
@@ -35,12 +35,6 @@ They both started to look at the chains, and were talking to the fat bookie as w
 
 “Wow!” I said, “They just bought those gold chains from the fat bookie.” We all looked at each other in silence, pulled away from the window and closed it.
 
-***
-
 The next day in homeroom me and my friend talked about Mr. C and Mr. E and the gold chains. “Should we mention we saw the in gym class?” my friend asked to which I simply responded “No.”
 
 Then when gym class came around, we just sat down on the gym floor and looked at Mr. C and Mr. E as they did their pre-class talk. They were still jerks in our eyes, but after seeing him buy those gold chains from the fat bookie somehow made them even less than the jerks we knew them to be.
-
-***
-
-*Mr. C and Mr. E Buy Gold Chains on 6th Street (c) Copyright by Jack Szwergold; written on August 31, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

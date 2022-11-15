@@ -5,7 +5,7 @@ date: '2019-04-03T00:39:44.328Z'
 slug: 9a41f78ee666
 ----->
 
-![](img/1__3IRNFKqzg52sykNvEi1RGQ.jpeg)
+![](../img/1__3IRNFKqzg52sykNvEi1RGQ.jpeg)
 
 His name was Kevin. God was that guy a dick, a tool, an asshole and all of the above and then some. But most of all we at the wacky weekly newspaper knew him as our lawyer.
 

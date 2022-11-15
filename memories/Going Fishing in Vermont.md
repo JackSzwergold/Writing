@@ -5,7 +5,7 @@ date: '2019-07-28T23:19:25.662Z'
 slug: e496f6f19884
 ----->
 
-![](img/1__iiLUhhEPddaeKtttKynnbw.jpeg)
+![](../img/1__iiLUhhEPddaeKtttKynnbw.jpeg)
 
 Some friends of mine from P.S. 253 had a vacation home in Vermont. This was weird and kinda entitled in the 1970s since most — if not all — of the people who lived in Brighton Beach were poor, working class and were lucky enough to live a few blocks away from the beach let alone own a second vacation home out of state.
 

@@ -5,7 +5,7 @@ date: '2018-01-15T19:42:54.739Z'
 slug: bd675ecaf17f
 ----->
 
-![](img/1__oVxJOIMYKIv3raxKr8PPsA.jpeg)
+![](../img/1__oVxJOIMYKIv3raxKr8PPsA.jpeg)
 
 I don’t know how old I was exactly — maybe 6 or 7 — but I knew I was a just a small kid and it was kinda cold outside. Everyone was dressed up in winterish clothes but it definitely wasn’t winter since there was no snow on the ground. All I knew was I was being taken outside to learn how to ride a bike. And it would have been pretty cruel to subject a kid of any age to do something like that if it was actually cold outside.
 

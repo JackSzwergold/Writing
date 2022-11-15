@@ -5,7 +5,7 @@ date: '2019-06-17T02:52:44.303Z'
 slug: 527739b215e9
 ----->
 
-![](img/1__7EibvHrCj7uyP0UMLrYn4Q.jpeg)
+![](../img/1__7EibvHrCj7uyP0UMLrYn4Q.jpeg)
 
 PerIt was sometime in the 1980s. I want to say 1984 or 1985 since I was in high school and I heard about this party from neighborhood friends of mine who were going to Midwood High School. Midwood was kinda the yuppie “magnet” high school in Brooklyn. I went to Abraham Lincoln High School where all the non-special, non-magnetized students went to.
 

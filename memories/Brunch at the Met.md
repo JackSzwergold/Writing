@@ -5,7 +5,7 @@ date: '2021-05-24T01:43:48.038Z'
 slug: 8ee33d95db1e
 ----->
 
-![](img/1__I3cweLT61uf70udR6yMFJA.jpeg)
+![](../img/1__I3cweLT61uf70udR6yMFJA.jpeg)
 
 Danny was a high school friend of a friend from Midwood. He lived on East 15th Street near Avenue J. He lived in Midwood and went to Midwood High School. I lived in Brighton Beach and went to Abraham Lincoln High School. We got along because we were weirdos and had a mutual friend; a connector if you will.
 

@@ -5,7 +5,7 @@ date: '2019-01-01T01:12:07.030Z'
 slug: 57db73182618
 ----->
 
-![](img/1__TEbsbed5PeoEZ5sckO__sMw.jpeg)
+![](../img/1__TEbsbed5PeoEZ5sckO__sMw.jpeg)
 
 My parents both worked factory jobs at different times of their lives in the family and never really talked much about it. Kinda typical for any working class family I guess; forget the past and keep on moving forward to some kind of better future.
 

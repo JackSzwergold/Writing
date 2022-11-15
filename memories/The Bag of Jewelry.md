@@ -5,7 +5,7 @@ date: '2019-08-24T20:58:39.599Z'
 slug:2dee5c4e34aa
 ----->
 
-![](img/1__AfBaNp9MEMuLsKPdTZ1aIw.jpeg)
+![](../img/1__AfBaNp9MEMuLsKPdTZ1aIw.jpeg)
 
 It was sometime in the 1980s in Brighton Beach, and my mom wanted to go out to get something from the supermarket across the avenue. It was either called Met Foods or Speedway; don’t remember when the name switch happened but it was still the same supermarket even with branding changes. Larger than a corner store and smaller than a “good” supermarket like Waldbaum’s or Pathmark. Whatever the size it was my family’s supermarket.
 

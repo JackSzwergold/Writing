@@ -5,7 +5,7 @@ date: '2019-07-01T02:52:00.233Z'
 slug: 4da44bb4b6c2
 ----->
 
-![](img/1__qftKZcrZFoHizj9P6r64jw.jpeg)
+![](../img/1__qftKZcrZFoHizj9P6r64jw.jpeg)
 
 It was the summer. Not too sure what day it was or what time of the summer it was, but my brother was around and wanted to take me out to have some “fun.” This kind of stuff was tedious and a bit pandering but it was undoubtedly predictable. The summer was around and my brother was making one of his, “Check in With the Family” visits and — invariably — I would somehow be dragged into one of his hare-brained schemes to have “fun” with me.
 

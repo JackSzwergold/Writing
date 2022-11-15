@@ -1,9 +1,13 @@
-# Playing Donkey Kong
-## A brief memory of an arcade game from 1981
+<!-----
+title: Playing Donkey Kong
+description: A brief memory of an arcade game from 1981
+date: '2016-10-22T17:31:50.103Z'
+slug: a081f2feb887
+----->
 
-By Jack Szwergold
+![](../img/1__v8WIPqsGDMP3MtaC07mNlQ.jpeg)
 
-The first time I ever played *Donkey Kong* was at Met Food in 1981/82; it was supermarket across the street from my home on Brighton Beach Avenue and Ocean Parkway in Brooklyn.
+The first time I ever played _Donkey Kong_ was at Met Food in 1981/82; it was supermarket across the street from my home on Brighton Beach Avenue and Ocean Parkway in Brooklyn.
 
 I was walking down the block to head to either the library, toy store or bookstore and noticed the game cabinet near the main entrance. That supermarket never had video games before, but they were all the rage in the early 1980s so it was not surprising to find arcade games pop up in odd places.
 
@@ -11,8 +15,4 @@ I walked into the store and saw one a kid I knew in school, Aaron, playing the g
 
 After he was done, he pulled out some weird, pre-printed pad he had in is pocket; it looked like a guest check pad a waiter would use in a diner but it had all kinds of sports clipart on it. “Do you like football, Jack?” I turned to him and said “No…” and he persisted with trying to get me to bet on something. I said, “No…” again with that he put the pad back in his pocket, said goodbye to me and headed outside.
 
-After he left, I took a quarter out of my pocket and tossed it in the machine to play *Donkey Kong* myself. The game was fun and cute, but it seemed repetitive so I never got that into it. But it was a fun game to play while other people were watching since—like I said before—the graphics were cool and cute.
-
-***
-
-*Playing Donkey Kong: A brief memory of an arcade game from 1981 (c) Copyright by Jack Szwergold; written on August 22, 2016. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+After he left, I took a quarter out of my pocket and tossed it in the machine to play _Donkey Kong_ myself. The game was fun and cute, but it seemed repetitive so I never got that into it. But it was a fun game to play while other people were watching since — like I said before — the graphics were cool and cute.

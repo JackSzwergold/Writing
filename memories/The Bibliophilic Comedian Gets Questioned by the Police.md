@@ -5,7 +5,7 @@ date: '2018-07-23T03:29:33.052Z'
 slug: 934e5f58c0b0
 ----->
 
-![](img/1__6BF5L__JhC3SVrm0ikFZmPg.jpeg)
+![](../img/1__6BF5L__JhC3SVrm0ikFZmPg.jpeg)
 
 The first time I met John people told me how he had previously headed to New York City to make it big at MTV or Comedy Central. He’s one of the few people from that newspaper who decided it was time for him to take the show on the road and “make it” (whatever that means) in New York City by moving his whole life out there based on some spec freelance work and not much else.
 

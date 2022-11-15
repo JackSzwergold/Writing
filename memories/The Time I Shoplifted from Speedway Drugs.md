@@ -5,7 +5,7 @@ date: '2018-11-25T01:06:37.037Z'
 slug: 17157c601f4e
 ----->
 
-![](img/1__I76iWDmX8Nrd__MpZWbgH3g.jpeg)
+![](../img/1__I76iWDmX8Nrd__MpZWbgH3g.jpeg)
 
 It was another boring day in 1975 or 1976 and I — as a kid — was doing what I normally did on such a day: Play around with neighborhood kids on our block with occasional breaks to do something else.
 

@@ -5,7 +5,7 @@ date: '2018-10-06T03:07:06.253Z'
 slug: 22d6cec40dc0
 ----->
 
-![](img/1__7hVW3chVlfqGcZldtI2w7A.jpeg)
+![](../img/1__7hVW3chVlfqGcZldtI2w7A.jpeg)
 
 It was the 1970s, I was in elementary school, had a meager $2 a week allowance and liked to buy comics. I wasn’t some hardcore collector of any kind but I just liked to buy comics that caught my eye at the time.
 

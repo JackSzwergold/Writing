@@ -5,7 +5,7 @@ date: '2020-01-08T03:47:22.138Z'
 slug: daa45cf726ac
 ----->
 
-![](img/1__I7SGrd0JH__jVAH4hmu5ngQ.jpeg)
+![](../img/1__I7SGrd0JH__jVAH4hmu5ngQ.jpeg)
 
 It was sometime in the mid 1970s and one of my favorite childhood pastimes was getting out of the apartment and running around outside. Literally just that: Getting out of the apartment, emerging into the outside world of Ocean Parkway and running around; playing with other kids and all that.
 

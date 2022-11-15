@@ -5,7 +5,7 @@ date: '2020-01-02T02:59:36.093Z'
 slug: e8d158d4428c
 ----->
 
-![](img/1__UxGPtYlB____rBkkTSP49TVw.jpeg)
+![](../img/1__UxGPtYlB____rBkkTSP49TVw.jpeg)
 
 It was a Saturday in the early 1980s; maybe 1981 or 1982. The day was nice and non-eventful and I was putzing around in my room doing not much of anything when I heard something which was not much at all: It was an odd hush around the apartment.
 

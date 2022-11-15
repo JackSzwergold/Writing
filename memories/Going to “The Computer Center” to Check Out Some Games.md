@@ -5,7 +5,7 @@ date: '2018-05-13T18:47:58.979Z'
 slug: ef293502383
 ----->
 
-![](img/1__SBuqU3yNiOtjdk9IjGXl4g.png)
+![](../img/1__SBuqU3yNiOtjdk9IjGXl4g.png)
 
 Weeks would pass and slowly some of my friends would end up getting computers as well. It seemed weirdly coincidental at the time but, in retrospect, Atari was making a big “educational” push in the burgeoning personal computer market so these so-called “computers” were being marketed as a smarter/more thoughtful alternative to video games to the “educated” parent. And some of those people were friends of mine.
 
