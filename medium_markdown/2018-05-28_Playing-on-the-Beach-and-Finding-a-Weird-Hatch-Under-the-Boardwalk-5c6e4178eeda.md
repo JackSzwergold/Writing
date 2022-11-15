@@ -5,7 +5,7 @@ date: '2018-05-28T17:28:31.118Z'
 slug: 5c6e4178eeda
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__ZhrCgVeKPcMqAo1VIUOvuQ.jpeg)
+![](img/1__ZhrCgVeKPcMqAo1VIUOvuQ.jpeg)
 
 I don’t know if it was a dreary spring day or a dreary fall day, but I do know the day was dreary in some way. It was a “blah” day but not a completely miserable day. Or perhaps it was “overcast” as they say in polite circles? But whatever adjective you would want to use to describe it, the day was neither cold enough to make you want to stay indoors or warm enough to make you avoid wearing some jacket of some kind. And I am positive I was wearing some kind of fall or winter jacket rather than a windbreaker or anything as lightweight as that when I went outside.
 

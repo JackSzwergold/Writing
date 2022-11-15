@@ -5,7 +5,7 @@ date: '2018-06-09T02:03:43.720Z'
 slug: a94d17716730
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__ZD4oGbbtsgfjGMWfXmVyDQ.jpeg)
+![](img/1__ZD4oGbbtsgfjGMWfXmVyDQ.jpeg)
 
 The Brighton Jubilee was a street fair started by a local Brighton Beach neighborhood association back in the mid-1970s to help promote the neighborhood. And the neighborhood needed a good promotional effort — if not a friendly slap on the back and some basic reassurance — at the time since as much as I loved it, it was indeed a depressing craphole in many ways.
 

@@ -5,7 +5,7 @@ date: '2020-02-24T00:58:49.496Z'
 slug: aa2ff2536971
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__NtgtfyMs2gbM88cQMIUf9g.jpeg)
+![](img/1__NtgtfyMs2gbM88cQMIUf9g.jpeg)
 
 It was the mid 1980s. Maybe 1986 or so. For argument’s sake I’ll say it was an evening during the summer of 1986 because it was the year most everyone was graduating from high school and going off to wherever.
 

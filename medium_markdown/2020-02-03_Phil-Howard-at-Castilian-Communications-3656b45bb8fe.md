@@ -5,7 +5,7 @@ date: '2020-02-03T02:36:39.574Z'
 slug: 3656b45bb8fe
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__or1wcbxxRwJhaM__TF9s6Fg.jpeg)
+![](img/1__or1wcbxxRwJhaM__TF9s6Fg.jpeg)
 
 Phil was a co-worker or mine at Castilian Communications. I worked there in the late 1980s and early 1990s. They were a publisher of European graphic novels and such that they translated into English. It was a small scale operation that operated out of the owner’s loft on East 19th Street near Park Avenue South in Gramercy. The pay was decent and it was better than working at a fast food joint or some other menial job.
 

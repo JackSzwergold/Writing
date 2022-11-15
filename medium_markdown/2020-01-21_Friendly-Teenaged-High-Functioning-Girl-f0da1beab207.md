@@ -5,7 +5,7 @@ date: '2020-01-21T01:59:24.438Z'
 slug: f0da1beab207
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__XDpwESRV__VUKWR4SP__Ho4g.jpeg)
+![](img/1__XDpwESRV__VUKWR4SP__Ho4g.jpeg)
 
 She ran across the street to the bus stop to meet someone at the bus stop. That person looked like an older version than her.
 

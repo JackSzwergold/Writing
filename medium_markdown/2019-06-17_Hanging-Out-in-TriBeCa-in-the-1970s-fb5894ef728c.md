@@ -5,7 +5,7 @@ date: '2019-06-17T03:02:34.604Z'
 slug: fb5894ef728c
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__ZLpjnX7xWSKztNmoG2dWKA.jpeg)
+![](img/1__ZLpjnX7xWSKztNmoG2dWKA.jpeg)
 
 If you want to call me a cool kid, please do. You see, back in 1975 or 1976 — when I was 7 or 8 years old — I visited TriBeCa for the first time… With my mom and dad.
 

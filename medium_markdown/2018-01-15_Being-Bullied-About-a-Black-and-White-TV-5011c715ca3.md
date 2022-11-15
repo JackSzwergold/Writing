@@ -5,7 +5,7 @@ date: '2018-01-15T19:50:38.261Z'
 slug: 5011c715ca3
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__ni9O4jFsgUngOJvC45w__aA.jpeg)
+![](img/1__ni9O4jFsgUngOJvC45w__aA.jpeg)
 
 I was a new kid at P.S. 253 and people didn’t know what to make of me. Teachers, students… I was always treated as a little bit odd when I showed up.
 

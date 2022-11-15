@@ -5,7 +5,7 @@ date: '2018-11-25T00:59:44.425Z'
 slug: 424633a8676e
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__BV4bkRcZOIydT8XDB20nDw.jpeg)
+![](img/1__BV4bkRcZOIydT8XDB20nDw.jpeg)
 
 I was 1978 or 1978 and I was 10 or 11 years old. A little bit vague on the exact year and age, but whatever the year was or my age was, I was definitely aware of the fact I was too old to ride my Big Wheel around the block. But I still did because I liked to do it.
 

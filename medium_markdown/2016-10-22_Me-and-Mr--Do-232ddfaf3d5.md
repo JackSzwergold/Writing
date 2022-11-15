@@ -5,7 +5,7 @@ date: '2016-10-22T02:59:07.815Z'
 slug: 232ddfaf3d5
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__83h46grWFGpAO85nFVOTBA.jpeg)
+![](img/1__83h46grWFGpAO85nFVOTBA.jpeg)
 
 Of all of the video games I ever played as a kid, _Mr. Do_ was the one I was truly most obsessed with.
 

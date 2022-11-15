@@ -5,7 +5,7 @@ date: '2018-02-19T00:02:43.454Z'
 slug: 5f4e249ce619
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__lABnpdvJfgFKFXSBx9L2UA.jpeg)
+![](img/1__lABnpdvJfgFKFXSBx9L2UA.jpeg)
 
 Beven was a new kid in Junior High School. I didn’t really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky. Like the basic way he carried and composed himself, stains on his clothes and — most notably — the odd, beat up briefcase he carried around with him at all times.
 

@@ -5,7 +5,7 @@ date: '2021-02-01T06:37:55.317Z'
 slug: 89f44b83c758
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__3____STHkf2zU5Ls__r1u9ZdQ.jpeg)
+![](img/1__3____STHkf2zU5Ls__r1u9ZdQ.jpeg)
 
 On the night of May 29, 1993 my mom — a Holocaust survivor — died. Earlier that day I flew out to Madison, Wisconsin to visit friends and to take a break from weeks of going to Coney Island Hospital — pretty much daily — to visit and care for her.
 
@@ -33,4 +33,4 @@ The band logo was one thing… But when Greg P. in Buttress referred to me as �
 
 Oh, and here’s another flyer I found for reference; they sure as hell loved fascist imagery!
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__1dHJ18fqpHLTyYn9vFnrHw.jpeg)
+![](img/1__1dHJ18fqpHLTyYn9vFnrHw.jpeg)

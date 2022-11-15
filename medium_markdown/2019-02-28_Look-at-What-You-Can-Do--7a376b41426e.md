@@ -5,7 +5,7 @@ date: '2019-02-28T02:25:10.556Z'
 slug: 7a376b41426e
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__dxzihS8__FVXpbNrCgfwY6w.jpeg)
+![](img/1__dxzihS8__FVXpbNrCgfwY6w.jpeg)
 
 It was sometime in the late 1990s. Maybe 1997 or 1998. I was still living in the midwest and still working for the wacky weekly local newspaper; which was a thing back in the late 1990s.
 

@@ -5,7 +5,7 @@ date: '2018-10-08T00:20:24.697Z'
 slug: fc6ae8ca9ccf
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__TFFYU2AJmKwfOExyXgpIGg.jpeg)
+![](img/1__TFFYU2AJmKwfOExyXgpIGg.jpeg)
 
 While our family didn’t formally eat meals like a family, eating food and making food was a constant thing around the home.
 

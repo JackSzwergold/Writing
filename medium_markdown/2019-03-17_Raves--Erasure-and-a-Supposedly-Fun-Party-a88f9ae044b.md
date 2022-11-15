@@ -5,7 +5,7 @@ date: '2019-03-17T01:43:00.860Z'
 slug: a88f9ae044b
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__6l____5Vu1Rv0vNTUuduBg2w.jpeg)
+![](img/1__6l____5Vu1Rv0vNTUuduBg2w.jpeg)
 
 Pete was an asshole. I knew he was an asshole before I even knew who he was or even heard of him. Friends of mine who knew him simply referred to him as, “That asshole.” And he was a friend of Todd the asshole who was also known as an asshole to all who knew him.
 

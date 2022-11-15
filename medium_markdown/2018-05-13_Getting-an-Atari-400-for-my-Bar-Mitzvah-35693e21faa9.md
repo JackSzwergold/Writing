@@ -5,7 +5,7 @@ date: '2018-05-13T18:42:15.928Z'
 slug: 35693e21faa9
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__EGhHP__FIiB__7u__9vPrcfew.png)
+![](img/1__EGhHP__FIiB__7u__9vPrcfew.png)
 
 It was 1980, I was 12 years old going on 13, and old enough to head off into Junior High School and boy oh boy, was I obsessed with video games. _Space Invaders_, _GORF_ and _Bite Monster_ were my favorites because they were the only video games I had access to in the scratch and dent storefronts in Brighton Beach.
 

@@ -5,7 +5,7 @@ date: '2018-08-06T00:39:55.808Z'
 slug: 3a6fcc9ad88c
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__eIfHAn5rnjLXw6BY__jfvZg.jpeg)
+![](img/1__eIfHAn5rnjLXw6BY__jfvZg.jpeg)
 
 We all called the store “the Te-Amo” but it was basically a junky — but beloved — neighborhood newsstand and candy store.
 

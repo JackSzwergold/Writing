@@ -5,7 +5,7 @@ date: '2019-01-27T19:03:39.622Z'
 slug: 70076f6b8dba
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__OyBMTlUU2XkrwWtFmRS3yg.jpeg)
+![](img/1__OyBMTlUU2XkrwWtFmRS3yg.jpeg)
 
 It was the fall of 1977 and every kid in the neighborhood either had seen _Star Wars_ already or knew what _Star Wars_ was in some way.
 

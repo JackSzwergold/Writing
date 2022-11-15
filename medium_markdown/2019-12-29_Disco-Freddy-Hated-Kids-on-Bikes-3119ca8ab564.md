@@ -5,7 +5,7 @@ date: '2019-12-29T06:09:53.036Z'
 slug: 3119ca8ab564
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__gXAql8UBlgtmRGTXgtQW__Q.jpeg)
+![](img/1__gXAql8UBlgtmRGTXgtQW__Q.jpeg)
 
 Everyone knows New York City was a dump in the 1970s and 1980s. But there were a few pluses — mixed in with all the minuses — to living in some neighborhoods at that time.
 

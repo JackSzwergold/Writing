@@ -5,7 +5,7 @@ date: '2018-04-01T01:20:05.799Z'
 slug: 975f599bfc4a
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__gtQ42ytdImXvV1KR2N1KgA.jpeg)
+![](img/1__gtQ42ytdImXvV1KR2N1KgA.jpeg)
 
 I was about 14 years old and wanted a summer job. Every other friend of mine had a summer job doing something somewhere, and I wanted one too. I wanted the independence, the freedom but — most of all — I wanted the money a job would give me.
 

@@ -5,7 +5,7 @@ date: '2019-01-01T04:06:03.979Z'
 slug: 5c491cc56572
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__0hDwA4PQdNgiIJnKqVi0dg.jpeg)
+![](img/1__0hDwA4PQdNgiIJnKqVi0dg.jpeg)
 
 In the 1970s, Howie was a good neighborhood friend. I didn’t go to school with him — like most of the other kids I knew at the time — but we saw each other pretty much every day during that small slide of outdoor “play in the streets” time that existed between 3:00pm-ish and 6:00pm-ish each day.
 

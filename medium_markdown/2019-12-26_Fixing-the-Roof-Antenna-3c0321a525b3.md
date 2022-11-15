@@ -7,7 +7,7 @@ date: '2019-12-26T05:04:12.467Z'
 slug: 3c0321a525b3
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__nbRcv4vAI6V8IPNLm8PRNw.jpeg)
+![](img/1__nbRcv4vAI6V8IPNLm8PRNw.jpeg)
 
 It was the late 1970s or early 1980s. Honestly, it doesn’t mater much what period in time it was. All you need to know is that it was Brooklyn in the 1970s and nobody who was poor had cable. Heck, if you were poor and in the ass end of a Brooklyn there was no cable to be gotten if you wanted it. All TV was received by crappy antennas; either glorified wire hangars hanging off the back of your TV or — if you had roof access — a roof antenna of some kind. And in my family’s case it was received by a roof antenna.
 

@@ -7,7 +7,7 @@ date: '2019-08-05T00:16:10.502Z'
 slug: a99fd04892e8
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__EnK2KkVBugahXYmH0ve5TQ.jpeg)
+![](img/1__EnK2KkVBugahXYmH0ve5TQ.jpeg)
 
 One of the first jobs I had in late 1980s working for a comic book company called Castilian Communications. I was still in college — and wasn’t an artist or anything — but I was basically a “worker” working in the shipping department, taking orders, doing data entry, and all that. General small company office bullshit.
 

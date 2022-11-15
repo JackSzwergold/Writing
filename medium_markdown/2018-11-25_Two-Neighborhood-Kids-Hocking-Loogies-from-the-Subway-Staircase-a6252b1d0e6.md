@@ -5,7 +5,7 @@ date: '2018-11-25T01:17:23.240Z'
 slug: a6252b1d0e6
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__e1UJ__bUYThNqtD82bbil3Q.jpeg)
+![](img/1__e1UJ__bUYThNqtD82bbil3Q.jpeg)
 
 I don’t know if it was a Saturday, a Sunday or a holiday, but I remember it being Fall-ish kind of afternoon — but it could have still been Spring for all I remember — and I was sitting at my desk in my room not doing anything much but playing around with stuff and occasionally looking out the window.
 
@@ -45,7 +45,7 @@ As we stood near Beach Walk, Marc poked Andrew in the arm, and motioned towards 
 
 With that settled we all walked down that alley and up that fire escape staircase up one flight. The building and that staircase was weird as if it were built as a tiered wedding cake with one huge layer of a parking lot on the ground floor and two towers jutting out above it.
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__XLpGAmSjRUQMBZDUYBu____A.jpeg)
+![](img/1__XLpGAmSjRUQMBZDUYBu____A.jpeg)
 
 So we climbed up those stairs and soon enough were wandering on a weird kind of lower-level roof with terraces jutting out around each of the towers. Accessing the lower level windows and terraces was ridiculously easy.
 

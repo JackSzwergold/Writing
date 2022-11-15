@@ -5,7 +5,7 @@ date: '2018-12-28T22:30:25.756Z'
 slug: 1ffb5f526d13
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__q3AZ36XBhuazyKZCAGZDZw.jpeg)
+![](img/1__q3AZ36XBhuazyKZCAGZDZw.jpeg)
 
 It was the fall of 1981 and I was flipping through the _Daily News_ one Sunday when I saw it: An ad for some kinda of “CityKids” Atari-related contest happening at the main Macy’s flagship location at 34th Street in Manhattan. And according to the ad, there were prizes to be won! The first prize was an Atari 400 and the second prize was the new Atari _Centipede_ game for the Atari home computers.
 

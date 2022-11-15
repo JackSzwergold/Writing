@@ -5,7 +5,7 @@ date: '2020-03-03T03:25:52.465Z'
 slug: baf7c93e8c5b
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__HZUBStAYwmGdnur41mXBpQ.jpeg)
+![](img/1__HZUBStAYwmGdnur41mXBpQ.jpeg)
 
 It was 1983 and as luck would have it, I was given an opportunity to learn how to drive. Well, when I say “opportunity” I meant that one of the gym teachers I had in high school let us all know he was offering driving classes to us for a nominal fee.
 

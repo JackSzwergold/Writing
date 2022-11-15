@@ -5,7 +5,7 @@ date: '2016-10-22T15:47:33.469Z'
 slug: missile-command-943fe5c73975
 ---
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__DLWPOGhMq2Q4ChIYphH5wA.jpeg)
+![](img/1__DLWPOGhMq2Q4ChIYphH5wA.jpeg)
 
 The first time I played _Missile Command_ was at this arcade called _Captain’s Quarters_ that opened up on Brighton Beach Avenue near Coney Island Avenue in Brooklyn; just down the block from _Forty Thieves_. In fact it might have been the first game I ever played at _Captain’s Quarters_.
 
@@ -13,4 +13,4 @@ The great appeal of the game was using the huge trackball to move your target ac
 
 Not a “feel good” for a kid growing up in the middle of the Cold War in the 1970s/1980s, but still a fun game.
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__ktGfR1zKno1gtKkxyuGbTQ.jpeg)
+![](img/1__ktGfR1zKno1gtKkxyuGbTQ.jpeg)

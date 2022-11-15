@@ -5,7 +5,7 @@ date: '2019-07-07T00:26:58.153Z'
 slug: 5f7cb69edcd3
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__tt8Fsq__AV7__jJ94rRp38NA.jpeg)
+![](img/1__tt8Fsq__AV7__jJ94rRp38NA.jpeg)
 
 One of the problems with being the child of old parents was nothing my parents did or liked was hip or cool.
 
@@ -37,7 +37,7 @@ Soon it was time to go, and before we left their son decided to give me a little
 
 We left and headed back home and I proudly held onto that inflatable Ringo Starr toy as if it was a gold medal or something.
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__LBdvuezQVdARe1mWd77iGw.jpeg)
+![](img/1__LBdvuezQVdARe1mWd77iGw.jpeg)
 
 A few weeks passed and I inherited my sister’s copy of _Sgt. Pepper’s Lonely Hearts Club Band_ when she left to get married and move to Indiana. I was so excited about getting that album I wanted to share it with that guy who gave me that Ringo Starr blow up; I mean I needed to share this cool score with the only other person I knew who would actually care about the Beatles, right?
 

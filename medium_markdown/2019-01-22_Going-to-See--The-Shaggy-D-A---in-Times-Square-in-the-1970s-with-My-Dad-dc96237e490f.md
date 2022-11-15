@@ -5,7 +5,7 @@ date: '2019-01-22T03:31:29.347Z'
 slug: dc96237e490f
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__pHfxR3gSYAi6oXTDPcg4Vg.jpeg)
+![](img/1__pHfxR3gSYAi6oXTDPcg4Vg.jpeg)
 
 I really liked reading the Sunday newspaper in the 1970s. And by “reading” I mean “flipping through.” And by “Sunday newspaper” I mean _The New York Daily News_. _The Daily News_ was the only newspaper in our home back in the 1970s.
 

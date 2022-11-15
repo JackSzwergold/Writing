@@ -5,7 +5,7 @@ date: '2018-02-28T12:23:03.158Z'
 slug: 99a4574618b0
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__yUkPoHkPdcJ5zli7eoAVDA.jpeg)
+![](img/1__yUkPoHkPdcJ5zli7eoAVDA.jpeg)
 
 I was hanging out at a neighborhood friend’s house in the early 1980s. We both had Atari computers — I had an Atari 400 and he had an Atari 800 — and we spent time copying games and trying to figure out how to play games we copied.
 

@@ -5,7 +5,7 @@ date: '2016-10-22T14:45:21.231Z'
 slug: df5498f0b5d5
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__7pdihe0XbRfo60gVQQxB4g.jpeg)
+![](img/1__7pdihe0XbRfo60gVQQxB4g.jpeg)
 
 The first time I played _Vanguard_ was in 1981/82 at some corner grocery store on Neptune Avenue near Brighton 2nd Street.
 

@@ -6,7 +6,7 @@ date: '2018-11-19T04:27:28.452Z'
 slug: bd26f567ac61
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__5OQGK96R1SCkgM8uBi0KUA.jpeg)
+![](img/1__5OQGK96R1SCkgM8uBi0KUA.jpeg)
 
 Honestly not too sure when exactly it happened. Pretty sure I was 10 or 11 years old at the time which would have placed this all happening during the holiday season of of 1978 or 1979. Regardless, it happened during Hanukkah with the extended family in Eastchester.
 

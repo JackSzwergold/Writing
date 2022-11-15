@@ -5,7 +5,7 @@ date: '2019-03-03T02:15:19.994Z'
 slug: a06bb0d007d6
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__cbBEBCIqxruwlCpK2__5Rng.jpeg)
+![](img/1__cbBEBCIqxruwlCpK2__5Rng.jpeg)
 
 It was a spring or summerish day in the late 1990s. I would guess it was 1999 or so. And for the record, all of this happened over the span of 15 to 20 minutes or so; so hey.
 

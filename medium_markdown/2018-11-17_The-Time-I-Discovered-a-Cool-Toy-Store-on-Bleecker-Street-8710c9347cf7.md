@@ -5,7 +5,7 @@ date: '2018-11-17T00:49:57.458Z'
 slug: 8710c9347cf7
 ----->
 
-![](/Users/jack/Downloads/medium-export-c5e2d7bfba58be09848301f216239b1a2b92c723a5147c30ac4f31d8e9470b9a/posts/md_1668465868371/img/1__TjK7SS0dF7e4pvU5A__6YNw.jpeg)
+![](img/1__TjK7SS0dF7e4pvU5A__6YNw.jpeg)
 
 I don’t remember the exact year this all happened, but I do know it was 1978 or 1979 and I was in Greenwich Village with my sister, her husband and her husband’s brother on another one of their horse-shit adventures.
 
