@@ -1,11 +1,13 @@
-## Smiling, Laughing, Screaming and Crying
-### About an Abusive Second Grade Teacher
-
-By Jack Szwergold
+<!-----
+title: 'Smiling, Laughing, Screaming and Crying'
+description: About an Abusive Second Grade Teacher
+date: '2016-10-13T02:19:49.355Z'
+slug: a8dbe69276a9
+----->
 
 She was my second grade teacher at P.S. 100 and she was abusive.
 
-One day when I was playing with one of the other oddball kids in the class—who happened to be a black kid—she freaked out.
+One day when I was playing with one of the other oddball kids in the class — who happened to be a black kid — she freaked out.
 
 When I say “oddball,” I mean the school was predominantly filled with white, middle-class, secular Jewish kids from Trump Village and not “freaks” like me: A white, secular Jewish kid who came from a poor immigrant family living in a tenement in Brighton Beach. Or a black kid who was poor and lived in Coney Island like the kid I was playing with. Heck, I don’t even know if she was freaking out because I was a white kid playing with a black kid or because we wouldn’t just sit down and be quiet, but she freaked out.
 
@@ -20,7 +22,3 @@ We both started screaming and crying as she quickly slid the door closed. It was
 I told my parents about what happened when I got home and they complained to the school. And the “reward” for complaining was not having the teacher reprimanded or fired but was the administration of the school saying I was mis-zoned for P.S. 100. Meaning they were kicking me out. I was officially sent to P.S. 253 for 3rd grade.
 
 P.S. 253 was supposedly the “bad” school where all the non-Trump Village kids went. But at least it was in my immediate, immigrant-filled, mixed, working-class, tenement-filled neighborhood. And everyone there was an “oddball” in some way so at least I had a better chance of fitting in.
-
-***
-
-*Smiling, Laughing, Screaming and Crying: About an Abusive Second Grade Teacher (c) Copyright by Jack Szwergold; written on May 20, 2015. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

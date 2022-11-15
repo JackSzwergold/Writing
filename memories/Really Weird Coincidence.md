@@ -1,6 +1,9 @@
-# Really Weird Coincidence
-
-## About How I Overheard a Casual Conversation that Connected to Me Spotting Someone I Tangentially Know.
+---
+title: Really Weird Coincidence
+description: About How I Overheard a Casual Conversation that Connected to Me Spotting Someone I Tangentially Know.
+date: '2021-11-29T02:48:15.149Z'
+slug: a22867592031
+---
 
 Really weird coincidences today, October 9, 2021.
 
@@ -18,8 +21,6 @@ And if the rapist was rich: “Pretty sure he is.”
 
 Then they left.
 
-***
-
 The exchange reminded me about the first “real” college party I went to in Princeton. Friend of a friend of Slopie rich kid.
 
 Party sucked.
@@ -36,11 +37,9 @@ He was leaning on the rails and smoking.
 
 The guy nodded to us and we nodded back.
 
-***
-
 Flashback to today: Before that mother and son chatted, I saw some guy I tangentially know of walking down the street with his son.
 
-He’s a complete Slopie rich-kid a-hole. 
+He’s a complete Slopie rich-kid a-hole.
 
 He’s well connected with a lawyer dad. Knew friends who knew him as a bully at Columbia University.
 
@@ -51,7 +50,3 @@ Apparently his dad negotiated as settlement with the victim and got any mention 
 The dude is now very successful in the New York City media world. Will probably inherit his family’s Brownstone in prime Park Slope. Born on third base; thinks he hit a triple.
 
 No deep thought past all of these thoughts: Repercussions mean little when wealth and entitlement can let a-holes gaslight reality.
-
-***
-
-*Really Weird Coincidence (c) Copyright by Jack Szwergold; written on October 9, 2021. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

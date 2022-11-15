@@ -1,11 +1,15 @@
-## The Time I Discovered a Cool Toy Store on Bleecker Street
-### About the Time I was Dragged to Greenwich Village by My Sister and Her Husband on Some Sandal Buying Trip and Discovered a Cool Old Toy Store
+<!-----
+title: The Time I Discovered a Cool Toy Store on Bleecker Street
+description: About the Time I was Dragged to Greenwich Village by My Sister and Her Husband on Some Sandal Buying Trip and Discovered a Cool Old Toy…
+date: '2018-11-17T00:49:57.458Z'
+slug: 8710c9347cf7
+----->
 
-By Jack Szwergold
+![](img/1__TjK7SS0dF7e4pvU5A__6YNw.jpeg)
 
 I don’t remember the exact year this all happened, but I do know it was 1978 or 1979 and I was in Greenwich Village with my sister, her husband and her husband’s brother on another one of their horse-shit adventures.
 
-I often got dragged around on these horse-shit trips like this because my parents were old, and my siblings were younger and thought I—based purely on age difference—would like being dragged along on these afternoon dates. Never mind the fact that I liked playing out on the street in front of my building instead of hanging around with people in their 30s, they always seemed to figure out a way to drag me along. As if dragging me out of the home and neighborhood I loved was a “good deed” or some self-congratulatory shit like that.
+I often got dragged around on these horse-shit trips like this because my parents were old, and my siblings were younger and thought I — based purely on age difference — would like being dragged along on these afternoon dates. Never mind the fact that I liked playing out on the street in front of my building instead of hanging around with people in their 30s, they always seemed to figure out a way to drag me along. As if dragging me out of the home and neighborhood I loved was a “good deed” or some self-congratulatory shit like that.
 
 Anyway, my first memory of the trip was going to some custom sandal shop on West 4th Street near Jones Street. Pretty sure it was Allan Block’s famous sandal shop, on West 4th but don’t quote me on that. Apparently my sister’s husband wanted to get some leather sandals and my presence sitting around and doing nothing was required for some reason.
 
@@ -13,7 +17,7 @@ I remember him and his brother were (presumably) high on marijuana or a beer or 
 
 At some point I stood up and literally said I was bored because what was “fun” about just sitting outside of a sandal shop while stoned family members shopped for sandals inside. So after some protests and negotiation on my part, my sister agreed to walk me around the block to alleviate my boredom.
 
-All my complains aside, this was definitely the first time I was ever in Greenwich Village, and the place seemed interesting. The streets were tree-lined and nice. I didn’t see the typical signs of the poor working class life I knew in Brooklyn on the streets of Greenwich Village—like garbage, stray cats, drunks and random piles of dog shit—but things in the neighborhood seemed nice and friendly as far as I could tell.
+All my complains aside, this was definitely the first time I was ever in Greenwich Village, and the place seemed interesting. The streets were tree-lined and nice. I didn’t see the typical signs of the poor working class life I knew in Brooklyn on the streets of Greenwich Village — like garbage, stray cats, drunks and random piles of dog shit — but things in the neighborhood seemed nice and friendly as far as I could tell.
 
 As we walked around, at some point we hit Bleecker Street. I remember it being sun drenched and pleasant and more of a shopping strip than the side street we were just on. Just as we were about to turn down to head back to the sandal shop, I spotted what looked like a brightly painted carousel horse in a nearby shop window.
 
@@ -21,7 +25,7 @@ As we walked around, at some point we hit Bleecker Street. I remember it being s
 
 So I walked over to the shop and took a look in the window. It was definitely a toy store, but not like any toy store I knew of. For one, the window not only had a carousel horse in it, but there were also all kinds of old toys nicely displayed in the window as if they were museum pieces.
 
-That was cute, but of no interest to my 1970s street kid sensibilities. Then I saw something in the window that grabbed my attention: A huge bowl filled with what looked like wind-up R2-D2 toys! What the eff was that? I already had a small collection of Kenner *Star Wars* figures, but never saw a wind-up R2-D2 before. They looked similar to the Kenner version of the R2-D2 figure but each had a small tag with some Japanese text on it.
+That was cute, but of no interest to my 1970s street kid sensibilities. Then I saw something in the window that grabbed my attention: A huge bowl filled with what looked like wind-up R2-D2 toys! What the eff was that? I already had a small collection of Kenner _Star Wars_figures, but never saw a wind-up R2-D2 before. They looked similar to the Kenner version of the R2-D2 figure but each had a small tag with some Japanese text on it.
 
 I gasped and immediately checked my pockets for money. I had some quarters and other miscellaneous loose change on me; maybe I could score a wind-up R2-D2 from this shop on this horse-shit “family” trip? So I went over to my sister and asked her if we could go into the store so I could buy a wind up R2-D2.
 
@@ -43,14 +47,10 @@ After a while, my sister, her husband and his brother sat down near the coffee t
 
 At some point in the middle of my boredom I spotted something to play with: A Play-Doh barbershop set! Cool! It was still in it’s box, so I walked over grabbed it and started to open the box when my sister’s husband’s brother stood up, grabbed it out of my hand and said, “No… That’s not for you.” And put it up on a table.
 
-By then, the literal joint was lit and my sister’s husband took a puff and then passed it onto his brother. My sister sat still and didn’t participate and wasn’t even offered the joint. This went on for a while with the two guys smoking and joking and me—being a kid—feeling trapped in the middle of this and my sister sitting there and doing nothing like some kind of robot that had just shut down.
+By then, the literal joint was lit and my sister’s husband took a puff and then passed it onto his brother. My sister sat still and didn’t participate and wasn’t even offered the joint. This went on for a while with the two guys smoking and joking and me — being a kid — feeling trapped in the middle of this and my sister sitting there and doing nothing like some kind of robot that had just shut down.
 
 At some point, my sister seemed to “snap out of it” stand up and said something. I don’t really remember what she said, but I do know that her husband instantly stood up, walked over to her and forcefully shoved her back onto the couch and just started yelling at her. With her ass back on the couch she just shut down again and sat their like a sack of potatoes and just took the abuse; head down, pigeon toed and silent.
 
 I had no idea what to do, but I looked at the my sister’s husband and his brother and half expected them to start yelling at me. But luckily other than a brief glower or two from them I was spared from their arbitrary violent outbursts.
 
 I turned and looked out the window and found some comfort in the sun and shadows cast by the plants in the window. And I also made sure to keep a mental note of the cross street near that cool toy store; this trip to “the city” stunk, but at least if I remembered where that toy store was I could get something good out of all of this domestic bullshit.
-
-***
-
-*The Time I Discovered a Cool Toy Store on Bleecker Street (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
