@@ -1,21 +1,25 @@
-## Scoring an Atari 810 Disk Drive from Surplus City
-### About the Time I Scored a Pretty Expensive Piece of Computer Equipment from a Neighborhood Junk Store
+<!-----
+title: Scoring an Atari 810 Disk Drive from Surplus City
+description: About the Time I Scored a Pretty Expensive Piece of Computer Equipment from a Neighborhood Junk Store
+date: '2018-12-22T15:40:12.346Z'
+slug: d2f98a9a597b
+----->
 
-By Jack Szwergold
+![](img/1__AT1brUmm__5____THe4grNhKQ.jpeg)
 
-I was 13 or 14 and had an Atari 400 home computer I got for my Bar Mitzvah. That computer was a mixed bag of a gift if I there ever was one. While I liked the fact that I could play video games on it, the gift—which was ostensibly from the “whole family” but in reality from my brother and his overbearing wife at time—was loaded with expectations of use that I could not fulfill. Instead of playing games all day, my brother and his wife expected me to be an instantaneous programming genius who wrote video games instead of mindlessly playing them.
+I was 13 or 14 and had an Atari 400 home computer I got for my Bar Mitzvah. That computer was a mixed bag of a gift if I there ever was one. While I liked the fact that I could play video games on it, the gift — which was ostensibly from the “whole family” but in reality from my brother and his overbearing wife at time — was loaded with expectations of use that I could not fulfill. Instead of playing games all day, my brother and his wife expected me to be an instantaneous programming genius who wrote video games instead of mindlessly playing them.
 
-While I became a programmer as an adult, at the time I was just 13 or 14 years old and all I wanted to do was play video games, not make them. But software—especially video games—cost too much back then. And besides that, owning a computer like an Atari 400 in the early 1980s was a “rich kid” thing; and my family was far from rich. So I made due with the small handful of games I got as part of the Bar Mitzvah gift package to entertain myself.
+While I became a programmer as an adult, at the time I was just 13 or 14 years old and all I wanted to do was play video games, not make them. But software — especially video games — cost too much back then. And besides that, owning a computer like an Atari 400 in the early 1980s was a “rich kid” thing; and my family was far from rich. So I made due with the small handful of games I got as part of the Bar Mitzvah gift package to entertain myself.
 
 That is until I learned how to pirate software.
 
 I might have only had a measly Atari 410 cassette tape drive at the time, but pirating was a fairly easy skill to pick up. All one had to do was figure out how to make an exact copy of a cassette tape and you were good to go! In my case I figured out how to connect two portable radios with cassette decks via an improvised dubbing cable made from the salvaged cables of two busted 3.5mm stereo headphones.
 
-While from a quality standpoint the cable was crap—and literally held together with cheap Scotch tape and not much else—it did the job. If someone I knew had a cool game on a cassette tape, all I needed to do to get a copy of that that game was to get a blank cassette tape, borrow a friend’s cassette deck to hook up to mine with that cable, hit play on one deck, record on the other and some time later I would have my own copy of that game.
+While from a quality standpoint the cable was crap — and literally held together with cheap Scotch tape and not much else — it did the job. If someone I knew had a cool game on a cassette tape, all I needed to do to get a copy of that that game was to get a blank cassette tape, borrow a friend’s cassette deck to hook up to mine with that cable, hit play on one deck, record on the other and some time later I would have my own copy of that game.
 
-And that description makes the dubbing process sound simple. And to be completely honest dubbing tapes of any kind—audio or data—is, indeed, a simple process. But dubbing tapes in real-time is also a very tedious—and time consuming—process.
+And that description makes the dubbing process sound simple. And to be completely honest dubbing tapes of any kind — audio or data — is, indeed, a simple process. But dubbing tapes in real-time is also a very tedious — and time consuming — process.
 
-Depending on how large—from a raw data standpoint—the game was, dubbing cassette tapes could take a lot of time to do. And borrowing a friend’s cassette recorder was often a small political battle in and of itself since they would often want a copy of the game as well, thus doubling the amount of time I would have to spend making a copy of a game.
+Depending on how large — from a raw data standpoint — the game was, dubbing cassette tapes could take a lot of time to do. And borrowing a friend’s cassette recorder was often a small political battle in and of itself since they would often want a copy of the game as well, thus doubling the amount of time I would have to spend making a copy of a game.
 
 At the end of the day, dubbing cassette tapes to get a copy of a game sucked and my dream as a kid was getting a real disk drive. They were faster, could store more data than a cassette tape and copying them was relatively easier than copying cassettes since disk drives didn’t require that data be copied in real time.
 
@@ -26,8 +30,6 @@ The base model Atari 810 disk drive retailed for around $299 back in the early 1
 My $2 a week allowance was good for saving up for small kid things like toys, comics and books. But even if I stopped buying stuff and diligently saved up my weekly allowance it would take me nearly 3 years to save up $299 on my own.
 
 So I was resigned to my life of being stuck with dealing with data cassettes for the glorified video game system my Atari 400 became.
-
-***
 
 One day I was playing around Brighton Beach Avenue with some friends and ran past the window of of a neighborhood shop called, “Surplus City.” As the name implied, the place was a classic, old school, NYC mom and pop junk shop located around tons of other mom and pop junk shops in the junky neighborhood I lived in. That said, I had nothing against junk shops: My mom liked the place and I genuinely enjoyed rummaging through the piles of junk in that place with my mom when she dragged me along on one of her neighborhood bargain hunting trips.
 
@@ -45,8 +47,6 @@ And when she pulled it out, I was stunned: It was an Atari 810 disk drive!
 
 I walked out of the store and told my friends they wanted $25 for it. One responded, “That’s cheap! You should get it.” But someone else pointed out that it didn’t come with any cables and you can’t tell if it works. And they were right. But my thoughts were for $25 it was worth the gamble. And besides, my brother was an electrical engineer so he could help me fix it if need be, right?
 
-***
-
 I headed back home and told my dad about the disk drive. His response was “Twenty five dollars? Are you sure this is a good thing?”
 
 “Yes!” I said. Also, when he started talking to my mom about it I realized she basically knew the people who owned the store so if the thing was dead and my brother couldn’t fix it, we could haggle them to accept a return.
@@ -61,21 +61,17 @@ When we got home, my dad handed me the bag and I took the disk drive out. Yup! I
 
 “Maybe you should talk to Ben about this?” my dad asked. And with that I went over to the phone and dialed up my brother in his place in Washington Heights.
 
-***
-
 I generally never called my brother directly and only really talked to him on the phone if he called up and asked for me or my dad called him up and he asked for me. So this was technically the first time I called him as an independent person asking him for help.
 
 “Why did you buy this?!?” he immediately shouted over the phone when I told him about the disk drive. “It was cheap and I am sure it works!” I said, to which he responded “I don’t know. I don’t have time for this.” There was a pregnant pause and I simply said, “I’ll let you talk to dad.” And with that I passed the phone over to my father.
 
 When my dad grabbed the handset I looked for a copy of the yellow pages and brought it to my room.
 
-I flipped through to the electronics section, then the computer section and started to look through the listings. I was looking for some kind of official Atari repair place and soon I found one: They were located on the Upper West Side—which was another planet compared to the ass end of Brooklyn I lived in—but they seemed legit; their ad had lots of logos and they were proud to be in business for a seemingly decent amount of time.
+I flipped through to the electronics section, then the computer section and started to look through the listings. I was looking for some kind of official Atari repair place and soon I found one: They were located on the Upper West Side — which was another planet compared to the ass end of Brooklyn I lived in — but they seemed legit; their ad had lots of logos and they were proud to be in business for a seemingly decent amount of time.
 
 I wrote down the phone number and address of the place and showed it to my dad after he got off the phone with my brother.
 
 “I think they have the parts we need,” I explained. And my dad nodded and said it was too late to call them up so I should call them the next day.
-
-***
 
 The next day I called them up. The guy on the phone seemed to think it was a joke or something that some young kid was calling him up asking about an Atari 810 disk drive cable.
 
@@ -89,9 +85,7 @@ So we headed out there, got off the train and headed to some tree-lined block fi
 
 I went downstairs with my dad and headed to the counter. Seemed like the place was a purely service and repair shop so it made sense they were in this basement space. The guy behind the counter was a bit stunned when he realized I was the kid that called up a week earlier, but was happy to oblige.
 
-The guy pulled out what looked to be a clean and solid homemade Atari disk drive cable—official cables were all black while this one was bluish grey—and an official Atari disk drive AC adapter, wrote out a receipt, my dad paid for it and we headed outside and back to the subway to head back home.
-
-***
+The guy pulled out what looked to be a clean and solid homemade Atari disk drive cable — official cables were all black while this one was bluish grey — and an official Atari disk drive AC adapter, wrote out a receipt, my dad paid for it and we headed outside and back to the subway to head back home.
 
 When we got back home, I carefully connected the Atari 810 disk drive to my Atari 400 with that new data cable and inserted a bootable diskette into the drive that a friend let me borrow. The disk had Atari DOS on it, so all I had to do was power up the Atari 400 and let it boot. And if it booted, it worked? And lo and behold within seconds of turning the machine on, it booted from the diskette! It worked! I was so excited and happy!
 
@@ -105,7 +99,7 @@ Things were happy until the phone rang. It was my brother doing his weekly check
 
 My dad briefly mentioned that the Atari 810 disk drive worked and then passed the phone onto me.
 
-“So it works?” my brother asked and I replied, “Yes! It works!” 
+“So it works?” my brother asked and I replied, “Yes! It works!”
 
 He then grilled me on how I got a cable and power supply and I explained how I found a store. There was no joy in his voice; just seething anger at the mere idea his younger brother was able to solve a problem independently without him.
 
@@ -113,12 +107,8 @@ His voice became noticeably angrier when I mentioned the power supply and he sai
 
 As he shouted at me over the phone I was at a loss. He’s 20 years older than me, a graduate of Columbia University and was the same person who refused to help me when I initially asked him to help me and now he’s yelling at me because I bought an official Atari part on my own? If he believed a non-Atari power supply would have worked, then why didn’t he offer to help me find one to begin with?
 
-“It works,” is all I said as a reply. Then there was a pregnant pause, a bit of angry breathing and then—seemingly at a loss for words—he asked me to pass the phone back to my dad and I did.
+“It works,” is all I said as a reply. Then there was a pregnant pause, a bit of angry breathing and then — seemingly at a loss for words — he asked me to pass the phone back to my dad and I did.
 
 While my dad talked to my brother on the phone, I went back to my room and played around with Atari DOS. Sure it was a boring system utility and not much else, but I needed to learn how to use it if I was going to use that disk drive to load and copy games.
 
-My family might have been poor, but at least we were resourceful and knew how to best use what little we had—and whatever we scavenged from whatever junk store or pile of garbage we gleaned stuff from—to make our life a bit better in our own way.
-
-***
-
-*Scoring an Atari 810 Disk Drive from Surplus City (c) Copyright by Jack Szwergold; written on August 12, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+My family might have been poor, but at least we were resourceful and knew how to best use what little we had — and whatever we scavenged from whatever junk store or pile of garbage we gleaned stuff from — to make our life a bit better in our own way.

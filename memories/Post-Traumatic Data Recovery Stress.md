@@ -1,7 +1,11 @@
-## Post-Traumatic Data Recovery Stress
-### About a Co-worker Who Abused Me After I Helped Him Out
+<!-----
+title: Post-Traumatic Data Recovery Stress
+description: About a Co-worker Who Abused Me After I Helped Him Out
+date: '2019-03-03T02:15:19.994Z'
+slug: a06bb0d007d6
+----->
 
-By Jack Szwergold
+![](img/1__cbBEBCIqxruwlCpK2__5Rng.jpeg)
 
 It was a spring or summerish day in the late 1990s. I would guess it was 1999 or so. And for the record, all of this happened over the span of 15 to 20 minutes or so; so hey.
 
@@ -21,19 +25,15 @@ He walked passed me, down the office’s small hallway and headed into the write
 
 I went back to work doing whatever I was doing. And at the time I was either putting together pizza and beer ads or working on something on the publication’s website.
 
-It was a bright and sunny afternoon and—as dumpy as the office I was in was like—there was at least a nice view down Main Street of the sunset over the town.
-
-***
+It was a bright and sunny afternoon and — as dumpy as the office I was in was like — there was at least a nice view down Main Street of the sunset over the town.
 
 A few hours later I was winding down and ready to go home. I was bullshitting with some co-workers in the design department when suddenly Todd ran into the office.
 
 “Jack! You have to help!” I looked at him, looked at my co-workers, they turned around and got back to getting ready to go home and I stood up and followed Todd back to his desk.
 
-By this time in the history of the publication, the egos were getting quite ripe. Newfound fame—thanks to their raised Internet presence—had made big fish in a small pond even bigger fish in the same small pond. Which made things awkward at times.
+By this time in the history of the publication, the egos were getting quite ripe. Newfound fame — thanks to their raised Internet presence — had made big fish in a small pond even bigger fish in the same small pond. Which made things awkward at times.
 
 I still wrote now and then, but stopped writing regularly for them when the ego stew started to boil over. In fact Todd and I had many idiotic passive aggressive conflicts based on not much more than petit issues such as him being a delusional mental case and asshole and also me continually refusing his utterly unwanted sexual advances. Should I also mention he was homophobic and would routinely harass people by shouting, “He’s gay!” And bullshit like that? Well I just did so there!
-
-***
 
 Anyway, Todd dragged me back to his office and started rambling incoherently about losing a Word document on his hard drive and how he spent days writing and was one deadline and now he had nothing and maybe it was a sudden Word crash or something else and could I help him and he knew that if a file was deleted the data might still be on the hard disk and blah, blah, blah, blah, blah, blah, blah…
 
@@ -54,8 +54,6 @@ I dead-stared at him, looked at the computer and unplugged it.
 “Let me do this Todd,” I said as I walked past him, past Danny and back to the pile of software in the production office, found a data recovery CD-Rom and headed back into the writer’s office.
 
 As I sat down, Danny and Todd were glowering at me as if I wasn’t working fast enough. Neither one even saying one positive thing about these efforts or showing enough basic humility to walk away. But at least they were quiet and not getting in the way of things.
-
-***
 
 After a few minutes of scanning the disk a few files popped up. One of them was the trashed file. It was not fully recoverable, but since it was a text file something of some sort could be pulled off the disk.
 
@@ -78,8 +76,6 @@ All I really had to do was open it up in a text editor save it in a text file an
 I mean, at least this damaged Word file was basically just a pile of text so it was easy enough to separate 70% of the text that was readable from the damaged data crazy character crap.
 
 With that recovered data on a floppy disk I walked outside into the hallway, smiled and waved the floppy disk at Todd and said, “Not 100% but it’s something!”
-
-***
 
 I walked past him, straight into the writer’s office, popped the floppy into disk into the Todd’s computer, copied the file to his desktop, opened it up in Word and called him over.
 
@@ -104,7 +100,3 @@ After a beat or two, everyone went back to where their offices or headed out to 
 I headed back to the my office, stood silently looking at the orange glow of the sunset for a few seconds, then grabbed my stuff, headed out of the office and waited for the elevator. After a while I decided it was better to head to one of the rear stairwells that let out to a side-street near the back of the building and didn’t let out into the main lobby where I might run into Todd.
 
 I ran down those stairs, headed out into the street and headed back home. All I remember of the walk back home was me leaving the building and then suddenly me being back in my apartment… Laying down and staring at the ceiling.
-
-***
-
-*Post-Traumatic Data Recovery Stress (c) Copyright by Jack Szwergold; written on March 2, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
