@@ -1,5 +1,11 @@
-# Brunch at the Met
-## About the Time Me and a High School Friend Somehow Decided That Eating Fancy Tarts on the Steps of the Met Museum Was a Thing for Two Brooklyn Kids to Do
+<!-----
+title: Brunch at the Met
+description: About the Time Me and a High School Friend Somehow Decided That Eating Fancy Tarts on the Steps of the Met Museum Was a Thing for Two…
+date: '2021-05-24T01:43:48.038Z'
+slug: 8ee33d95db1e
+----->
+
+![](img/1__I3cweLT61uf70udR6yMFJA.jpeg)
 
 Danny was a high school friend of a friend from Midwood. He lived on East 15th Street near Avenue J. He lived in Midwood and went to Midwood High School. I lived in Brighton Beach and went to Abraham Lincoln High School. We got along because we were weirdos and had a mutual friend; a connector if you will.
 
@@ -11,9 +17,7 @@ Anyway, Danny was a friend and one day we headed up to the Met Museum. I think w
 
 “I dunno,” I said as I skulked around.
 
-***
-
-After a short while we left. As I walked out the doors and stepped down onto the stairs of the museum, I felt the afternoon sun, air and sky and — most of all — I felt free.
+After a short while we left. As I walked out the doors and stepped down onto the stairs of the museum, I felt the afternoon sun, air and sky and — most of all — I felt free.
 
 “Let’s get out of here,” I said.
 
@@ -38,8 +42,6 @@ With that we got on the subway.
 I just simply shrugged and say back in my seat and let that pass.
 
 We decided to skip heading over to the Village and headed back home on the D train. Danny got off at Avenue J and I stayed on to head back to Ocean Parkway.
-
-***
 
 A few weeks pass and I get a call from Danny on a Saturday afternoon.
 
@@ -83,7 +85,7 @@ Then some security guard came by and told us to move.
 
 Danny got a bit tense… And then got dramatic… “Well okay then!” he blurted out at the guard.
 
-Me and the guard both were taken aback a bit but I stood up — and so did Danny — and we walked away.
+Me and the guard both were taken aback a bit but I stood up — and so did Danny — and we walked away.
 
 I tried to be as cordial to the guard as possible to try to keep things calm, but Danny looked like he was about to burst out of his own skin. Which was weird because I’m usually the tense one.
 
@@ -102,7 +104,3 @@ By the time we got to Avenue J, he stood up… I said, “Goodnight!”
 He grumbled a meet “Goodnight…” in response and headed out the door and down the stairs.
 
 I headed back out to Ocean Parkway. The sun was mostly set, but the sky still glowed a bit.
-
-***
-
-*Brunch at the Met (c) Copyright by Jack Szwergold; written on August 31, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

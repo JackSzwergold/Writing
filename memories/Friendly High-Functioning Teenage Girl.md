@@ -1,5 +1,11 @@
-# Friendly High-Functioning Teenage Girl
-## About the time I was waiting for the bus in 2017 or so.
+<!-----
+title: Friendly Teenaged High-Functioning Girl
+description: About the time I was waiting for the bus in 2017 or so.
+date: '2020-01-21T01:59:24.438Z'
+slug: f0da1beab207
+----->
+
+![](img/1__XDpwESRV__VUKWR4SP__Ho4g.jpeg)
 
 She ran across the street to the bus stop to meet someone at the bus stop. That person looked like an older version than her.
 
@@ -10,7 +16,3 @@ When she finishes the sentence, she turns around to look at me and says, “Sorr
 Then the younger girl taps me on the shoulder and says, “Can I go I front of you?” I say yes and she does.
 
 On the bus the younger girl is completely fascinated with the rain coming down. It’s a downpour and the streets are instantly flooded. “Wow!” she keeps on saying as the bus drives along.
-
-***
-
-*Friendly High-Functioning Teenage Girl (c) Copyright by Jack Szwergold; written on January 20, 2020. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

@@ -1,8 +1,13 @@
-# 9-11 Memories
+<!-----
+title: 9–11 Memories
+description: Recalling My Memories of Being in NYC during the 9–11 Attacks on the World Trade Center
+date: '2021-09-12T17:32:40.526Z'
+slug: ac0c03fb6fc5
+----->
 
-## Recalling My Memories of Being in NYC during the 9-11 Attacks on the World Trade Center
+![](img/1__3hY__Y__FsGAk5cURqD2Z0Og.jpeg)
 
-On the morning of 9-11 my phone rang. An actual old school rotary phone. I had a cell phone, but used that land line as my main number. I stayed in bed and let the answering machine pick it up.
+On the morning of 9–11 my phone rang. An actual old school rotary phone. I had a cell phone, but used that land line as my main number. I stayed in bed and let the answering machine pick it up.
 
 A friend left me a message on my answering machine telling me something crazy happened and a plane crashed into the World Trade Center and I should turn on my TV to see it.
 
@@ -25,7 +30,3 @@ I walked to the Brooklyn Heights Promenade. It was filled with people just stari
 I walked over the Brooklyn Bridge in the pedestrian walkway while the Brooklyn bound roadway below was filled with people walking back into Brooklyn. Some were covered in dust. Papers, dust and smoke filled the air.
 
 When I got to the City Hall side, I was turned back by NYPD. Everyone was stunned. I couldn’t help, but I did take pictures.
-
-***
-
-*9-11 Memories (c) Copyright by Jack Szwergold; written on September 12, 2021. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

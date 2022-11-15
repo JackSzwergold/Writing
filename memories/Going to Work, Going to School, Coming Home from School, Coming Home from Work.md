@@ -1,7 +1,11 @@
-## Going to Work, Going to School, Coming Home from School, Coming Home from Work
-### Memories of My Parents Going to Work and Me Going to School and the Reverse at the End of the Day
+<!-----
+title: 'Going to Work, Going to School, Coming Home from School, Coming Home from Work'
+description: Memories of My Parents Going to Work and Me Going to School and the Reverse at the End of the Day
+date: '2019-01-01T01:12:07.030Z'
+slug: 57db73182618
+----->
 
-By Jack Szwergold
+![](img/1__TEbsbed5PeoEZ5sckO__sMw.jpeg)
 
 My parents both worked factory jobs at different times of their lives in the family and never really talked much about it. Kinda typical for any working class family I guess; forget the past and keep on moving forward to some kind of better future.
 
@@ -11,7 +15,7 @@ TV back then consisted mostly of an endless stream of “The Little Rascals” r
 
 For whatever reason my parents really didn’t turn on any house lights past the basics early in the morning. So it was always a tad dark in the apartment. Only the blue glow of the black and white TV in the living room mixed with the light of one lone table lamp in the living room and kitchen would mix with small blobs of sunlight that would leak through the edges of the window shade at dawn.
 
-I remember sitting on my mom’s lap and eating cereal—and maybe a banana if we had one—as we both watched TV. At some point my dad would come into the living room, and say something to my mom—in English, Polish, Yiddish or some mix of them—and then I would get a kiss on the cheek goodbye from him as my mom set me down on the couch to eat and watch TV alone.
+I remember sitting on my mom’s lap and eating cereal — and maybe a banana if we had one — as we both watched TV. At some point my dad would come into the living room, and say something to my mom — in English, Polish, Yiddish or some mix of them — and then I would get a kiss on the cheek goodbye from him as my mom set me down on the couch to eat and watch TV alone.
 
 I sat on the couch as my mom and dad went to the front door, my mom bid my dad farewell and then locked the apartment door and headed back to the living room.
 
@@ -20,8 +24,6 @@ Then it was my turn to finish up eating, wash up, get dressed, get ready and hea
 When I was younger, my mom would walk me to school. When I got older, I happily braved the streets on my own.
 
 Whatever anyone wants to say about NYC in the 1970s, I always found walking in the streets early in the morning to be fun. It was always quieter than anytime later in the day yet always busy in it’s own way with newspapers, groceries and other stuff being delivered to local shops while kids like me headed off to school, and adults headed off to wherever.
-
-***
 
 About a decade later I was in high school. Lincoln High school to be specific which was about 4 blocks away from where I lived. So outside of playing video games or grabbing a slice of pizza with friends after school, I was usually home by 4:00pm tops on most days.
 
@@ -45,8 +47,4 @@ She’d then take a bath or shower, head to bed or maybe even head outside to go
 
 But by the time 10:00pm came around, she and my dad would basically be in bed and I might still be up with the door to my room locked and I would be up until I felt tired enough to conk out for the night as well.
 
-And then all that would happen again—the same way but slightly different—the next day.
-
-***
-
-*Going to Work, Going to School, Coming Home from School, Coming Home from Work (c) Copyright by Jack Szwergold; written on July 14, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
+And then all that would happen again — the same way but slightly different — the next day.

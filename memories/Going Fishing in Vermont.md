@@ -1,25 +1,27 @@
-# Going Fishing in Vermont
-### About the First Time I Went Fishing as Kid
+<!-----
+title: Going Fishing in Vermont
+description: About the First Time I Went Fishing as Kid
+date: '2019-07-28T23:19:25.662Z'
+slug: e496f6f19884
+----->
 
-Some friends of mine from P.S. 253 had a vacation home in Vermont. This was weird and kinda entitled in the 1970s since most—if not all—of the people who lived in Brighton Beach were poor, working class and were lucky enough to live a few blocks away from the beach let alone own a second vacation home out of state.
+![](img/1__iiLUhhEPddaeKtttKynnbw.jpeg)
 
-The way I understood it is my friend’s parents both worked for the city—the mom was a social worker and the dad was a school guidance counselor—so they managed to know someone who knew someone who sold them a small vacation home in Vermont.
+Some friends of mine from P.S. 253 had a vacation home in Vermont. This was weird and kinda entitled in the 1970s since most — if not all — of the people who lived in Brighton Beach were poor, working class and were lucky enough to live a few blocks away from the beach let alone own a second vacation home out of state.
 
-Anyway, sometime in 4th or 5th grade they invited me to visit them up in Vermont. It was a cool, kind and generous invitation extended to me and my city-kid life. But my parents were older and didn’t drive. Which meant it was up to my brother—who is 20 years older than me—to be my vacation partner.
+The way I understood it is my friend’s parents both worked for the city — the mom was a social worker and the dad was a school guidance counselor — so they managed to know someone who knew someone who sold them a small vacation home in Vermont.
+
+Anyway, sometime in 4th or 5th grade they invited me to visit them up in Vermont. It was a cool, kind and generous invitation extended to me and my city-kid life. But my parents were older and didn’t drive. Which meant it was up to my brother — who is 20 years older than me — to be my vacation partner.
 
 Truth be told, my brother wasn’t manifesting himself as a complete jerk at that time. But this trip would slowly reveal shades of his nasty side I had not really seen yet.
-
-***
 
 The trip up to Vermont was actually fun. Never went on a significant road trip until then and even driving past Bear Mountain in upstate New York was it’s own thrill.
 
 We got to stop at cool rest stops and I marveled at the wood paneling and orange seats; they looked like a very “good” and well maintained McDonald’s but more WASPy. Never saw so many pickup trucks in nice shape as well as vending machines that sold smoking monkeys and other silly novelties as well. But like every trip with my brother I could never actually purchase anything I liked without a headache inducing fight.
 
-“Why do you want this garbage?” he asked as I started to put money in the machine to get a smoking monkey. “Because I like it,” I responded and as I was about to shove some quarters into the machine he would grab me and say “There’s no time. We have to go.” And without that I would be literally dragged kicking and screaming away from the machine to the front door of the rest stop. “We can buy better toys when we get back,” he said which triggered it’s own unique anxiety in me.  Nothing was worse than having my brother and his stupid wife—who hated mainstream mass-marketed toys and had a Bank Street College degree to assert her biases against mainstream mass-marketed toys—drag me to an “educational” toy store.
+“Why do you want this garbage?” he asked as I started to put money in the machine to get a smoking monkey. “Because I like it,” I responded and as I was about to shove some quarters into the machine he would grab me and say “There’s no time. We have to go.” And without that I would be literally dragged kicking and screaming away from the machine to the front door of the rest stop. “We can buy better toys when we get back,” he said which triggered it’s own unique anxiety in me. Nothing was worse than having my brother and his stupid wife — who hated mainstream mass-marketed toys and had a Bank Street College degree to assert her biases against mainstream mass-marketed toys — drag me to an “educational” toy store.
 
-But that was neither here nor there since—thankfully—my brother was forgetful of unwanted promises like that and after a decent trip to Vermont he would definitely forget it. And soon enough we would be back on the road and headed up to Vermont.
-
-***
+But that was neither here nor there since — thankfully — my brother was forgetful of unwanted promises like that and after a decent trip to Vermont he would definitely forget it. And soon enough we would be back on the road and headed up to Vermont.
 
 When we got to my friend’s place it was cool and comfortable. It was a humble little house; not exactly a shack, but not exactly a mansion either. Just a basic and rustic little two story structure and near a stream.
 
@@ -27,23 +29,19 @@ We spent days doing tons of useful nothing things like exploring the woods or ru
 
 Unfortunately we couldn’t get that rusty car out of the junkyard to bring it back to the cabin, so we had to do other things to bide our lazy summer childhood time during the summer. Like going fishing.
 
-***
-
-Much like a lot of my city childhood memories, fishing wasn’t anything city kids really did. When it came to fishing, I mainly saw middle-aged to older guys either fishing on the rocks of beach in Brighton Beach or fishing off of the pier near the parachute jump in Coney Island. The only time I ever saw kids fishing were in TV shows  like “The Andy Griffith Show” or old Little Rascals reruns and stuff like that.
+Much like a lot of my city childhood memories, fishing wasn’t anything city kids really did. When it came to fishing, I mainly saw middle-aged to older guys either fishing on the rocks of beach in Brighton Beach or fishing off of the pier near the parachute jump in Coney Island. The only time I ever saw kids fishing were in TV shows like “The Andy Griffith Show” or old Little Rascals reruns and stuff like that.
 
 So this whole “gone fishing” thing was a learning experience for me.
 
-First—and most importantly—this was a “no adults” outing. Which was great! We simply—and pretty impulsively—grabbed some fishing poles from the closet, grabbed a pocket knife, and headed down the country road near us to the nearby lake.
+First — and most importantly — this was a “no adults” outing. Which was great! We simply — and pretty impulsively — grabbed some fishing poles from the closet, grabbed a pocket knife, and headed down the country road near us to the nearby lake.
 
-We passed by some fields with old fashioned stake and wire fences and cows behind them. Don’t know if they were working farms, but the cows were cool. After a while—just about when the walk was getting boring, tedious and tiresome—we arrived in town.
+We passed by some fields with old fashioned stake and wire fences and cows behind them. Don’t know if they were working farms, but the cows were cool. After a while — just about when the walk was getting boring, tedious and tiresome — we arrived in town.
 
 This “town” consisted of a strip of maybe six to seven buildings at most. Only a few of them were shops of any kind. I mainly remember a gas station, general store and maybe a junk store of some kind mixed in there. Even as a kid I knew this town was clearly fading away, if it ever shone at all. But was not a complete tourist trap or discarded memory yet so it was a comfortable sort of limbo to meander around.
 
-We walked into the general store and asked about worms. The guy behind the counter pointed to the cooler case in front of the register. Asking about worms was weird enough, but it blew my city kid’s mind when I peered into to cooler case: Right there—next to the ice cream and cups of ice—were small styrofoam cups filled with dirt and worms. The cups were covered in some kind of plastic wrap (with air holes punched) and that was held in place with a rubber band. Nothing fancy; just cups of cooler chilled worms up for sale.
+We walked into the general store and asked about worms. The guy behind the counter pointed to the cooler case in front of the register. Asking about worms was weird enough, but it blew my city kid’s mind when I peered into to cooler case: Right there — next to the ice cream and cups of ice — were small styrofoam cups filled with dirt and worms. The cups were covered in some kind of plastic wrap (with air holes punched) and that was held in place with a rubber band. Nothing fancy; just cups of cooler chilled worms up for sale.
 
 We opened up the cooler, randomly picked a cup of worms, paid he guy for the works and just walked over to the lake.
-
-***
 
 It was a bright and sunny day; not too warm and not too hot with just enough of a breeze to cool you off every now and the. We sat down near the paved edge of the lake, opened up the cup of worms and grabbed one lucky worm who had the honor to be the first worm to be used as fishing bait.
 
@@ -57,7 +55,7 @@ So with that he pulled out his pocket knife and I put the worm down on the cemen
 
 It writhed around a bit and I said, “Okay, cut him.” But my friend chickened out and handed me the knife. “You do it,” he said. And I guess that became my job for the day.
 
-I looked at the knife and—like all kids pocket knives—the blade was kinda shiny but still looked dull; I guess pocket knife manufacturers didn’t want kids stabbing each other. That said, in took the knife in my hand, held onto the worm, pressed that dull knife as hard as I could onto it, and sliced it in half. “Ewww,” my friend said as I took a squirming half of the worm in my hand and poked it through the hook. With that I stood up, positioned the pole behind me and flung the weighted hook into the lake.
+I looked at the knife and — like all kids pocket knives — the blade was kinda shiny but still looked dull; I guess pocket knife manufacturers didn’t want kids stabbing each other. That said, in took the knife in my hand, held onto the worm, pressed that dull knife as hard as I could onto it, and sliced it in half. “Ewww,” my friend said as I took a squirming half of the worm in my hand and poked it through the hook. With that I stood up, positioned the pole behind me and flung the weighted hook into the lake.
 
 My line landed in the lake, and the floater bobbed a bit as it settled. My friend did the same thing with the other half of the worm and his pole.
 
@@ -85,13 +83,9 @@ My friend found a paper bag nearby, and I tossed the flopping fish inside of it.
 
 “Let’s go home,” I said and with that we packed up our gear and headed back to his family’s summer home.
 
-***
-
 When we got back I showed off my catch. Everyone was impressed. I walked over to the kitchen sink to wash it off and someone suggested we eat it. I shouted, “No!” as I laid it down on the counter near the sink.
 
 That said, I looked at it on the counter and wondered what to do with it. My friend’s dad said he would wrap it in plastic and put it in the fridge which made sense to me so that’s what we did and we called it a night.
-
-***
 
 The next day it was time for me and my brother to head home to Brooklyn.
 
@@ -105,11 +99,7 @@ He proceeded to wrap it in aluminum foil, then put it in a towel and unceremonio
 
 “No!” I screamed. “What about the ice?” I added. “Don’t worry,” he said. “It would all be fine,” he added. But I was still concerned. Even my friend’s dad asked, “You sure you don’t want any ice?” To which my brother shouted, “No!” And then looked at me and said, “Let’s go.” And with that I said my goodbyes to my friend and their family, got into the car and headed home.
 
-***
-
 On the drive home I occasionally asked about the fish and my brother would dismiss my concerns even when we stopped at rest stops and I felt hot surface of the outside of the trunk with my hand. It was clearly hot on the outside, so it had to be hot on the inside, right? But maybe my brother knew something I didn’t know.
-
-***
 
 After a few hours of driving we were back in Brooklyn.
 
@@ -132,7 +122,3 @@ He gently tapped me with a “We’re cool, right?” tap on my shoulder, stood 
 I was happy to see him drive off; the tension of his presence slipped away as the car sped off in the distance.
 
 I went upstairs to put my all my stuff back and then headed outside to play a bit with neighborhood kids. I told them about the fish I caught, but with nothing to show it was just at story at that point.
-
-***
-
-*Going Fishing in Vermont (c) Copyright by Jack Szwergold; written on July 28, 2019. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

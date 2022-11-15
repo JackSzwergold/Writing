@@ -1,23 +1,25 @@
-## High Functioning Comedy Genius in an Ape Suit Enjoys the Bacchanal
-### About the Time I Went a House Party and Watched a Co-Worker Molest a Catatonic Woman
+<!-----
+title: High Functioning Comedy Genius in an Ape Suit Enjoys the Bacchanal
+description: About the Time I Went a House Party and Watched a Co-Worker Molest a Catatonic Woman
+date: '2018-07-15T23:27:48.739Z'
+slug: 2bb9851d8f9d
+----->
 
-By Jack Szwergold
+![](img/1__Gc8nK__bVSIkGy5UeAekIuQ.jpeg)
 
-The party was weird because it was fun. It was honestly the first real house party I had been too in Madison, Wisconsin that wasn’t just a bunch of people drinking beers and smoking up at the hipster “Paper Towel Museum.” It was also weird because Rob—our newspaper’s managing editor—actually showed up and was actually drinking and seemed to be acting like a normal human being for once.
+The party was weird because it was fun. It was honestly the first real house party I had been to in Madison, Wisconsin that wasn’t just a bunch of people drinking beers and smoking up at the hipster “Paper Towel Museum.” It was also weird because Rob — our newspaper’s managing editor — actually showed up and was actually drinking and seemed to be acting like a normal human being for once.
 
 I wandered about and checked out the scene: The ground floor was like every other party with the obligatory keg, tons of people and some crappy piles of snacks in paper plates on a table. I grabbed a red plastic cup and a handful of pretzels and walked downstairs to the basement.
 
-The basement scene consisted of some shitty noise DJ playing and lights blinking and not much else. Once my eyes adjusted, in the corner—near what seemed to be the entrance to a laundry room—was DJ DangerBear or MouseHead or some bullshit DJ name like that. He was simply standing there and tweaking some mixers and effects boxes to a room of of mostly nobody. Well, there was technically at least a few “somebodies” there: I was there and so was a fellow staffer at the newspaper, Todd.
+The basement scene consisted of some shitty noise DJ playing and lights blinking and not much else. Once my eyes adjusted, in the corner — near what seemed to be the entrance to a laundry room — was DJ DangerBear or MouseHead or some bullshit DJ name like that. He was simply standing there and tweaking some mixers and effects boxes to a room of of mostly nobody. Well, there was technically at least a few “somebodies” there: I was there and so was a fellow staffer at the newspaper, Todd.
 
-Todd was dressed up in some improvised garbage hipster outfit that consisted of the body of an ape suit with the front unzipped and no ape head: Just his sweaty long-haired head and face bobbing up and down in its place. 
+Todd was dressed up in some improvised garbage hipster outfit that consisted of the body of an ape suit with the front unzipped and no ape head: Just his sweaty long-haired head and face bobbing up and down in its place.
 
 “Isn’t this great!!!” he said while bobbing arrhythmically the distorted electronic skronk playing through the sound system. I turned around and saw some people come downstairs, look around and then head back upstairs and was contemplating their quick wisdom.
 
 It seemed that Todd and I were DJ WhatTheFucks’ only audience at that moment. “I can’t believe they got him!!!” he said, bobbing his head some more and taking some drags off of the cigarette in his driving glove covered hand.
 
 I nodded politely and then headed back upstairs.
-
-***
 
 Upstairs, it was a bit more crowded, but not that bad. I spotted Rob and he was drunk which was amazing because I really can’t recall ever seeing Rob be drunk or even drinking before this party.
 
@@ -31,8 +33,6 @@ The pregnant, awkward pause went on a few beats longer than expected so I said, 
 
 Make no mistake, this wasn’t a romantic invitation by a long shot. I just needed a change of pace and needed to see what was happening on the second floor of this house.
 
-***
-
 The second floor was pretty chill. Kind of like the scene on the first floor but with more seating, better lighting and a wee bit less bullshit.
 
 That said, while there was a huge room with a lot of open space, there wasn’t a lot of room to actually sit. So Rob and I sat out on a bench in the hallway near the bathroom.
@@ -45,17 +45,17 @@ As I walked in I spotted Todd again, standing around and endlessly yammering abo
 
 “Cool,” the person he was talking to said and then followed up by saying, “Hey! There’s Anne!”
 
-I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from *Scooby Doo*—or Enid from *Ghost World*—which easily describes about 70% of the indie/punk/D.I.Y. ladies out there.
+I had no idea who this “Anne” was but turned around and saw Anne herself. She looked like an indie/punk/D.I.Y. version of Velma from _Scooby Doo_ — or Enid from _Ghost World_ — which easily describes about 70% of the indie/punk/D.I.Y. ladies out there.
 
 She walked over and said “Hey!” to us all but was noticeably a bit stiff. I soon found out she was a local zinester; meaning she put out a zine. And in this case the zine was called something like “Baby Food” so her zine hipster name was “Baby Food Anne.”
 
 We chatted for a bit and then I noticed something magical: Two people had gotten up from two chairs. So I went in sat down in one of them.
 
-The chairs were simple, old school living room chairs. Kinda like the ones that Archie and Edith sat in on *All in the Family*. Todd didn’t sit down, but Rob—who somehow wandered into the room—did and we had an odd mumbling conversation.
+The chairs were simple, old school living room chairs. Kinda like the ones that Archie and Edith sat in on _All in the Family_. Todd didn’t sit down, but Rob — who somehow wandered into the room — did and we had an odd mumbling conversation.
 
 I mainly nodded at him and laughed a bit, but had no clue what his mumbling drunk mouth was talking about. Better just go along with a rambling drunks conversation than not, right?
 
-After some time passed—maybe 5 or 10 minutes—I turned around and saw Anne standing there… But she was acting weird. She was stiffer than before—but clearly still conscious—and was catatonic and staring out into nowhere.
+After some time passed — maybe 5 or 10 minutes — I turned around and saw Anne standing there… But she was acting weird. She was stiffer than before — but clearly still conscious — and was catatonic and staring out into nowhere.
 
 I stood up and stood right in front of her and she barely moved. Her head and eyes twitched a bit but in general seemed to stand there like a stiff, malfunctioning robot.
 
@@ -67,10 +67,6 @@ Todd looked at her and then just said, “So what? It’s no big deal,” pushed
 
 He pulled his head away and said, “It’s no big deal…” again, put down his drink on a small side table in-between the two chairs and then went back to kissing her. But this time his right hand was headed straight to third base, right down the front of her jeans.
 
-I took a few steps back and didn’t know what to do. Or if doing anything would have mattered at this point. I looked at Rob drunkenly staring out into space—oblivious to what was happening right behind him—saw the chair I was sitting in was empty and sat down.
+I took a few steps back and didn’t know what to do. Or if doing anything would have mattered at this point. I looked at Rob drunkenly staring out into space — oblivious to what was happening right behind him — saw the chair I was sitting in was empty and sat down.
 
 It was about 2:00am and I was ready to go. But still couldn’t pull myself out of the chair. So I just sat there, looked out the second floor windows and waited for a bit before standing up, heading downstairs and walking back to my place.
-
-***
-
-*High Functioning Comedy Genius in an Ape Suit Enjoys the Bacchanal (c) Copyright by Jack Szwergold; written on May 19, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*

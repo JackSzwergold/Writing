@@ -1,22 +1,27 @@
-## Being Dragged to See the Pharaoh
-### About the Time my Brother Got Tickets to See the King Tut Exhibition at the Metropolitan Museum of Art in 1979 and How He
-By Jack Szwergold
+<!-----
+title: Being Dragged to See the Pharaoh
+description: About the Time my Brother Got Tickets to See the King Tut Exhibition at the Metropolitan Museum of Art in 1979 and How He
+date: '2018-04-01T01:02:57.837Z'
+slug: 20acf4e2f55d
+----->
+
+![](img/1__TiBVp3o50kvDF__gwgjJw__Q.jpeg)
 
 My first memory of what happened was my brother showing up on the weekend for a “surprise” unannounced visit like he usually did. To be fair, sometimes he would tell us he would show up, but many times he simply showed up out of nowhere without warning.
 
-I knew when he was coming because he would buzz the front door of the building, my dad would run over to answer buzzer and then my dad would come to the front door of the apartment—that was situated near my room—to open it up.
+I knew when he was coming because he would buzz the front door of the building, my dad would run over to answer buzzer and then my dad would come to the front door of the apartment — that was situated near my room — to open it up.
 
 “Ben is coming,” my dad would say to me matter of factly in my room as he waited for Ben to come upstairs. I nodded politely, got back to doing whatever I was doing and waited…
 
 Ben arrived and was very happy. He said hello to me, and then walked into the living room and plopped himself onto the couch.
 
-That visit seemed to be a good visit since my brother didn’t insist on forcing himself into my room or dragging me to the living room to have “fun” with him. What that fun usually consisted of was simply dragging me—as if I was some some pet, toy or inanimate object—to the living room so he could simply see me and ask me tons of horseshit questions to form what he believed was a conversation.
+That visit seemed to be a good visit since my brother didn’t insist on forcing himself into my room or dragging me to the living room to have “fun” with him. What that fun usually consisted of was simply dragging me — as if I was some some pet, toy or inanimate object — to the living room so he could simply see me and ask me tons of horseshit questions to form what he believed was a conversation.
 
 So I considered that day a good day since I was left alone in my room to do whatever I wanted.
 
 After the initial bustle of his magical arrival subsided, I carefully closed the door to block him out… But I didn’t completely close the door since that would make it seem obvious that I wanted to block him. So I closed just wide enough so there was a slight gap that would let sounds in and not much else. Just wide enough to send him message that this 9 year old kid had no interest in dealing with the 29 year old, anger-filled entity that was my brother.
 
-I played around, futzed around and did whatever fun bullshit 9 year old a kid does to kill time on the weekend when suddenly  it happened yet again: An argument broke out between my brother and whichever of our parents said something that upset him. I wasn’t exactly too sure what the fight was about because fights with my brother tended to never be in English; it was always in Polish, Yiddish, Hebrew or some mix of them all. To my 9 year old ears it just sounded like endless, intelligible human barking.
+I played around, futzed around and did whatever fun bullshit 9 year old a kid does to kill time on the weekend when suddenly it happened yet again: An argument broke out between my brother and whichever of our parents said something that upset him. I wasn’t exactly too sure what the fight was about because fights with my brother tended to never be in English; it was always in Polish, Yiddish, Hebrew or some mix of them all. To my 9 year old ears it just sounded like endless, intelligible human barking.
 
 But this time the argument was really bad. So bad that my dad showed up at the doorway to my room, cracked open the door and calmly asked, “Do you want anything to eat?” Which was his passive way of saying, “Do you believe this shit?” I simply shook my head and responded “No…” to indicate I was not hungry and then my dad exasperatedly said, “I don’t understand what he wants!” to which I just shrugged my shoulders as he walked away closing the door behind him.
 
@@ -32,7 +37,7 @@ Then I went into the kitchen and saw my dad warming up latkes or blintzes or som
 
 By the time I got back to my room I could hear the sounds of my brother finishing up their business in a bathroom; it didn’t seem like a lot of time passed but then again perhaps the stress of the moment was screwing around with my sense of time.
 
-Anyway, I’m in my room, playing around on the floor, doing whatever I was doing to entertain myself when my brother showed up, pushed open the door without warning and then blurted out some stream of anger. He was rambling ceaselessly to me—a 9 year old kid—something about how much time and effort he spent getting tickets to the King Tut exhibit at the Metropolitan Museum of Art and how our parents didn’t care. For some odd reason me—as a 9 year old kid—was supposed to commiserate about this with him and “care” about his being upset so I did what I always did when faced with his behavior: I just shrugged, squeezed out some minor words and noises that I hoped would make him feel good and—generally—just went along with it.
+Anyway, I’m in my room, playing around on the floor, doing whatever I was doing to entertain myself when my brother showed up, pushed open the door without warning and then blurted out some stream of anger. He was rambling ceaselessly to me — a 9 year old kid — something about how much time and effort he spent getting tickets to the King Tut exhibit at the Metropolitan Museum of Art and how our parents didn’t care. For some odd reason me — as a 9 year old kid — was supposed to commiserate about this with him and “care” about his being upset so I did what I always did when faced with his behavior: I just shrugged, squeezed out some minor words and noises that I hoped would make him feel good and — generally — just went along with it.
 
 “Come! We are going to go!” my brother said to me as if I had no choice. “Where are we going?” I asked. “To see the King Tut exhibit!” I’m not too sure what made him think I would want to see this, but in his mind bullying into doing something good was intrinsically a good thing. His behavior was scary and I didn’t want to make him any more upset than he already was. And boy was he upset!
 
@@ -42,7 +47,7 @@ I immediately said, “Yes…” despite the fact that all I knew about King Tut
 
 Anyway, my brother was rambling on and on about how he’s going to take me to see King Tut and how I should get ready, and my father comes out and states, “Why are you making such a big deal about this?” But despite all of the bullshit, I put on my jacket and got ready to go.
 
-I really didn’t want to go to see King Tut, but the thing  I learned in my short life at the time was that saying “No!” to my brother was a very risky thing to do. He was—and is—a very violent person and giving him a sacrifice of agreeing to do what he asked to do was somewhat better than the other option which would often result in him simply violently verbally abusing me—and other members of his own family—for the rest of whatever amount of time he decided to spend with us.
+I really didn’t want to go to see King Tut, but the thing I learned in my short life at the time was that saying “No!” to my brother was a very risky thing to do. He was — and is — a very violent person and giving him a sacrifice of agreeing to do what he asked to do was somewhat better than the other option which would often result in him simply violently verbally abusing me — and other members of his own family — for the rest of whatever amount of time he decided to spend with us.
 
 “Come on!” my brother shouted, “Let’s go!” he added as he stormed out of the apartment and into the hallway. “I’ll be downstairs!” I shouted yet again as if I didn’t hear him shouting before. As I walked to the front door, I turned to my dad to say goodbye. He bundled me up a bit, gave me a small kiss on the head and I said, “Bye!” as I walked out the door.
 
@@ -62,19 +67,19 @@ By the time we got to the Brooklyn Bridge I was relieved since the bridge had th
 
 That all ended when we got to the Manhattan side of the bridge and the peaceful hum ended, yet my brother was still rambling on incessantly at a mile a minute. One could only hope we’d pass some construction site or a guy jack-hammering the sidewalk somewhere.
 
-While I never knew what the concept of repression—or dissociation—was back as a kid, but I did know at a certain point in dealing with the endless pile of abusive bullshit my brother would dish out, my brain would seemingly become numb and shut down. While I knew I was physically there—wherever that “there” happened to be—my brain would be numb as if I was in a dream.
+While I never knew what the concept of repression — or dissociation — was back as a kid, but I did know at a certain point in dealing with the endless pile of abusive bullshit my brother would dish out, my brain would seemingly become numb and shut down. While I knew I was physically there — wherever that “there” happened to be — my brain would be numb as if I was in a dream.
 
 After some more driving, before I knew it we were somehow on 5th Avenue in right front of the Metropolitan Museum of Art. I had never been to any museum in my life at the time past the Museum of Natural History, so this was technically my first step into a larger world of so-called “culture”…
 
-The thing is—thanks to my brother’s abusive behavior—I was so numb and detached from it all at the time that all that stupid place represented to me was yet another place where my brother—in his seemingly endless quest to “improve” my supposedly bad childhood—would drag me to.
+The thing is — thanks to my brother’s abusive behavior — I was so numb and detached from it all at the time that all that stupid place represented to me was yet another place where my brother — in his seemingly endless quest to “improve” my supposedly bad childhood — would drag me to.
 
-I remember getting out of the car as my brother went to park the car and meeting up with his wife at the time who was waiting for us outside of the meeting. She was a bit of a patronizing—and condescending—hippie feminist narcissist. She hated my brother and treated him like shit, and would insist that he drag me to cultural events she approved of in some bizarrely dysfunctional circle of codependency that strengthened their shitty relationship.
+I remember getting out of the car as my brother went to park the car and meeting up with his wife at the time who was waiting for us outside of the meeting. She was a bit of a patronizing — and condescending — hippie feminist narcissist. She hated my brother and treated him like shit, and would insist that he drag me to cultural events she approved of in some bizarrely dysfunctional circle of codependency that strengthened their shitty relationship.
 
 All I remember of the movement was me having to wait in line with her and her asking me tons of nonsense questions and me trying to answer them in any way to make her seem happy. I was never happy in the scenarios but always seemed to need to make these two self-important adults happy.
 
-We were approaching the front of the line as she started to complain about where my brother was when he finally showed up. He was breathless and said something to the effect of implying that somehow I was worried about where he was when he ran off. I never actually cared since I never understood why I need to be there for this thing. I mean if he wants to go on a date with his wife to a museum, go for it… But why was I—a kid—dragged along as if I would enjoy being a third wheel on a shitty date between two people who hated each other?
+We were approaching the front of the line as she started to complain about where my brother was when he finally showed up. He was breathless and said something to the effect of implying that somehow I was worried about where he was when he ran off. I never actually cared since I never understood why I need to be there for this thing. I mean if he wants to go on a date with his wife to a museum, go for it… But why was I — a kid — dragged along as if I would enjoy being a third wheel on a shitty date between two people who hated each other?
 
-Anyway, before you knew it we were in the museum. I liked the little tin admission tag they gave me and rubbed it as we walked around. But I have literally no memory of ever seeing King Tut, but apparently I did. All I remember is being whisked around like a dog on a leash from room to room, and having my brother and his wife lean over to overbearingly explain things to me, and me nodding politely to push things along. Every once in a while someone my brother and his wife knew—who apparently tagged along on the trip—would lean in to talk to me this way as well as if it was some game and I went along with them as well.
+Anyway, before you knew it we were in the museum. I liked the little tin admission tag they gave me and rubbed it as we walked around. But I have literally no memory of ever seeing King Tut, but apparently I did. All I remember is being whisked around like a dog on a leash from room to room, and having my brother and his wife lean over to overbearingly explain things to me, and me nodding politely to push things along. Every once in a while someone my brother and his wife knew — who apparently tagged along on the trip — would lean in to talk to me this way as well as if it was some game and I went along with them as well.
 
 Where did they come from? Were they in line with us? Did they meet us inside? I have no clue. The whole experience was so disjointed, dissociated and unpleasant that I didn’t keep track of who was who and didn’t care; a helpful sparrow could have landed on my shoulder at that moment to tell me about how they mummified King Tut and I would not care.
 
@@ -82,17 +87,17 @@ Before you knew it, a wonderful thing happened… We were ready to leave! I reme
 
 I remember at that moment, one of my brother’s friends knelt down near me and started talking about the hieroglyphics. I looked at him and heard him speak, but I didn’t care about what he was saying. I wasn’t dissociated, but just didn’t care and just waited for him to stop talking.
 
-And when he did, I looked past him and saw some sign on the wall that had a street number on it. I believe it was the 81st Street exit or something like that. I made a mental note of the street number since I wanted to look it up on a map to figure out what subway station was nearby so—in the case I was dragged to this place again—I could just sneak out while my brother wasn’t looking and take the subway back home.
+And when he did, I looked past him and saw some sign on the wall that had a street number on it. I believe it was the 81st Street exit or something like that. I made a mental note of the street number since I wanted to look it up on a map to figure out what subway station was nearby so — in the case I was dragged to this place again — I could just sneak out while my brother wasn’t looking and take the subway back home.
 
 Before you knew it, whoever was in the bathroom was out and we were all headed outside.
 
-My brother said we would both go to get the car while his wife—and those random friends of theirs—waved goodbye to me. Have no idea who they were and have no idea why they were there.
+My brother said we would both go to get the car while his wife — and those random friends of theirs — waved goodbye to me. Have no idea who they were and have no idea why they were there.
 
 We neared the car, he opened up the passenger door and I got in.
 
-As I sat in the passenger seat my brother turned to me and said, “Shhh… This is a big surprise!” I have no idea what he was talking about, but then he pulled out some steering wheel cover/grip he had bought from some store. When? I don’t know. Why? No clue. But apparently this was some big secret surprise he was sharing with me as if I gave a shit.
+As I sat in the passenger seat my brother turned to me and said, “Shhh… This is a big surprise!” I have no idea what he was talking about, but then he pulled out some steering wheel cover/grip he had bought from some store. When? I don’t know. Why? No clue. But apparently this was some big secret surprise he was sharing with me as if I gave a shit.
 
-It was a basic steering wheel grip but to him it was a big deal. He pulled it out of its packaging and putting it on the steering wheel itself as he talked to me and explained how I should not talk to his wife about this. I quietly said, “Okay…” while trying to understand how I—a 9 year old kid—was supposed to keep something that was visually obvious as a steering wheel cover a “secret” from his wife. I mean, he just put it on in their car, right? And she would surely notice it right away if not later on when she was driving it?
+It was a basic steering wheel grip but to him it was a big deal. He pulled it out of its packaging and putting it on the steering wheel itself as he talked to me and explained how I should not talk to his wife about this. I quietly said, “Okay…” while trying to understand how I — a 9 year old kid — was supposed to keep something that was visually obvious as a steering wheel cover a “secret” from his wife. I mean, he just put it on in their car, right? And she would surely notice it right away if not later on when she was driving it?
 
 As he continued to talk to me about how his wife wouldn’t like it, she suddenly showed up and stuck her head into the driver’s side window, condescendingly pushed her finger on the steering wheel cover and started to argue with him in Hebrew.
 
@@ -100,30 +105,24 @@ And there I am, sitting in this car parked on 86th Street and blankly staring do
 
 But who was I kidding? I had no idea how the trains worked over here wherever I was. So I sat in the car, stared blankly out the window and waited for their fight to subside. Soon enough it was getting dark and dusky outside, my brother’s wife got into the car and we drove off.
 
-As we drove off, both my brother and his wife asked me some generic questions about King Tut and whether I liked the exhibit of not. I nodded and said, “Yeah…” and generally went along with it despite the fact I genuinely remembered nothing.
+As we drove off, both my brother and his wife asked me some generic questions about King Tut and whether I liked the exhibit of not. I nodded and said, “Yeah…” and generally went along with it despite the fact I genuinely remembered nothing.
 
 We got back to my home on Ocean Parkway and I ran out of the car and headed upstairs. I could hear the sound of the subway, ocean and seagulls overhead as I approached the building and it all felt like home. Soon enough, the numbing non-pain pain of dissociation and confusion lifted.
 
-My brother and his wife—who were still in the car—shouted at me to wait, but I didn’t care. I was already at the front door and I just buzzed the buzzer, waited for my dad to answer it, ran upstairs and headed into my room.
+My brother and his wife — who were still in the car — shouted at me to wait, but I didn’t care. I was already at the front door and I just buzzed the buzzer, waited for my dad to answer it, ran upstairs and headed into my room.
 
 “Where’s Ben?” my dad asked as I took off my jacket. “I don’t know…” I said as I headed to my room.
 
 I turned on the TV, closed the door and settled in. I finally felt comfortable.
 
-My brother and his wife came upstairs and—for a brief, stressful moment—there was a little fight. I could feel my brain clench a bit but then my father knocked at the door and said “Ben and Karen want to say goodbye…” They both peeked their heads into my room and said goodbye. So I said goodbye to them.
+My brother and his wife came upstairs and — for a brief, stressful moment — there was a little fight. I could feel my brain clench a bit but then my father knocked at the door and said “Ben and Karen want to say goodbye…” They both peeked their heads into my room and said goodbye. So I said goodbye to them.
 
-The door was closed and they left. While I wasn’t exactly ready for bed yet, I laid down on the floor and started to fall into a short—but comfortable—nap knowing they were both gone and it would be at least a week before I ran the risk of running into them again.
+The door was closed and they left. While I wasn’t exactly ready for bed yet, I laid down on the floor and started to fall into a short — but comfortable — nap knowing they were both gone and it would be at least a week before I ran the risk of running into them again.
 
-***
-
-**Epilogue**: Later in 1979 during Hanukkah, my brother’s wife’s parents—technically my in-laws though they never allowed me to call them that since I was some weird “born late in life kid”—gave me an odd holiday gift: A program from the British museum when they went to see the Rosetta stone. Somehow the fact I was dragged to a King Tut exhibit earlier that year meant that somehow I loved that exhibit and thus I would love to have this odd family artifact.
+**Epilogue**: Later in 1979 during Hanukkah, my brother’s wife’s parents — technically my in-laws though they never allowed me to call them that since I was some weird “born late in life kid” — gave me an odd holiday gift: A program from the British museum when they went to see the Rosetta stone. Somehow the fact I was dragged to a King Tut exhibit earlier that year meant that somehow I loved that exhibit and thus I would love to have this odd family artifact.
 
 The program was old, musty and nicely printed but I never liked it and never felt comfortable with it. I had no idea what to do with it. I did not like being dragged to see King Tut and now I did not like having this odd family heirloom passed onto me. Unlike other gifts I could give to others, break or even just throw in the garbage, this gift was extremely loaded. So for years I awkwardly carried it around; not wanting it but seemingly forever burdened to keep it. Who gives a 9 year old kid something like this?
 
-But then in the late-1990s as news about more and more abuse and dysfunction arose in my family—abuse, delusion, born-again Jewish evangelical nonsense—I looked at this thing and decided it was not my burden. It was given to me as a gift for me to do as I pleased with it when I was 9 years old, and returning it to my brother’s wife’s parents seemed impossible to do without starting more conflict and dysfunction. So I did the only thing I thought I could do: I ripped it to shreds, put it in a tin coffee can and burned it.
+But then in the late-1990s as news about more and more abuse and dysfunction arose in my family — abuse, delusion, born-again Jewish evangelical nonsense — I looked at this thing and decided it was not my burden. It was given to me as a gift for me to do as I pleased with it when I was 9 years old, and returning it to my brother’s wife’s parents seemed impossible to do without starting more conflict and dysfunction. So I did the only thing I thought I could do: I ripped it to shreds, put it in a tin coffee can and burned it.
 
 Sometimes I have regrets about destroying this family artifact, but at the end of the day, nobody asked me about it, these people did not respect my family, our lives, our choices or anything. At the end of the day a piece of paper is a piece of paper; lives are more important.
-
-***
-
-*Being Dragged to See the Pharaoh (c) Copyright by Jack Szwergold; written on March 31, 2018. This work is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License (CC-BY-NC-SA-4.0).*
