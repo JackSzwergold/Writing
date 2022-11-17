@@ -1,9 +1,9 @@
----
+<!-----
 title: Scene Upon Stupid Scene
 description: About Not Seeing Star Wars for the Third Time
 date: '2016-10-14T00:17:51.243Z'
-slug: @jackszwergold/scene-upon-stupid-scene-4d574cdf3f1b
----
+slug: 4d574cdf3f1b
+----->
 
 The third time I was apparently going to see _Star Wars_ was with my sister her husband. It was the summer of 1977 and they came by my parents place in Brighton Beach and her husband just impulsively said, “You want to go see _Star Wars_?” I said immediately, “Yeah, but I saw it already in camp and with my brother.” This time I made sure they at least knew I saw the film so I didn’t end up in the same mess as the last time with my brother. He said, “So what? We’ll go see it again.” Which seemed friendly and honest enough of a response, so why not? So we headed to the subway at Ocean Parkway, hopped on a train and about an hour later we got off at Bryant Park on 42nd Street near Times Square.
 
