@@ -1,9 +1,9 @@
----
+<!-----
 title: 'Shadows, Shapes and Sand'
 description: Jumping Off of the Boardwalk into the Sand
 date: '2016-10-13T02:25:50.308Z'
 slug: c8a25d0446a4
----
+----->
 
 I was hanging out with some friends on the boardwalk near Ocean Parkway one day in the late 1970s. I remember it being a bit overcast so it could have been the end of summer or fall. It was definitely near the end of the day.
 
