@@ -5,7 +5,7 @@ date: '2018-04-01T01:20:05.799Z'
 slug: 975f599bfc4a
 ----->
 
-![](../img/1__gtQ42ytdImXvV1KR2N1KgA.jpeg)
+![](../img/Finding-My-First-Job.jpg)
 
 I was about 14 years old and wanted a summer job. Every other friend of mine had a summer job doing something somewhere, and I wanted one too. I wanted the independence, the freedom but — most of all — I wanted the money a job would give me.
 

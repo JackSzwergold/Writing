@@ -5,7 +5,7 @@ date: '2020-01-21T01:59:24.438Z'
 slug: f0da1beab207
 ----->
 
-![](../img/1__XDpwESRV__VUKWR4SP__Ho4g.jpeg)
+![](../img/Friendly-Teenaged-High-Functioning-Girl.jpg)
 
 She ran across the street to the bus stop to meet someone at the bus stop. That person looked like an older version than her.
 

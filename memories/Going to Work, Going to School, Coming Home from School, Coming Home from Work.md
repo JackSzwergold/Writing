@@ -1,11 +1,11 @@
 <!-----
-title: 'Going to Work, Going to School, Coming Home from School, Coming Home from Work'
+title: Going to Work, Going to School, Coming Home from School, Coming Home from Work
 description: Memories of My Parents Going to Work and Me Going to School and the Reverse at the End of the Day
 date: '2019-01-01T01:12:07.030Z'
 slug: 57db73182618
 ----->
 
-![](../img/1__TEbsbed5PeoEZ5sckO__sMw.jpeg)
+![](../img/Going-to-Work-Going-to-School-Coming-Home-from-School-Coming-Home-from-Work.jpg)
 
 My parents both worked factory jobs at different times of their lives in the family and never really talked much about it. Kinda typical for any working class family I guess; forget the past and keep on moving forward to some kind of better future.
 
