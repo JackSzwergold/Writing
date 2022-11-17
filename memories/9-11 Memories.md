@@ -5,7 +5,7 @@ date: '2021-09-12T17:32:40.526Z'
 slug: ac0c03fb6fc5
 ----->
 
-![](../img/1__3hY__Y__FsGAk5cURqD2Z0Og.jpeg)
+![](../img/911-Memories-01.jpg)
 
 On the morning of 9–11 my phone rang. An actual old school rotary phone. I had a cell phone, but used that land line as my main number. I stayed in bed and let the answering machine pick it up.
 

@@ -5,7 +5,7 @@ date: '2021-09-12T17:39:08.439Z'
 slug: dd2296a6a385
 ----->
 
-![](../img/1____Sl6__RV9qKtb13bEVvEcIQ.jpeg)
+![](../img/912-Memories-01.jpg)
 
 The day after 9–11 was oddly calm and quiet. Everyone was in the same boat. Everyone was bonded in that crazy way only disaster could bring people together.
 
