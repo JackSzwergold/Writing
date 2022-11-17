@@ -1,9 +1,9 @@
----
+<!-----
 title: Walking Home Alone From Elementary School
 description: The Time I Decided to Walk Home By Myself from School
 date: '2016-10-13T02:18:42.425Z'
 slug: fb7b80e56b38
----
+----->
 
 I went to P.S. 100 up until 2nd grade. P.S. 100 was an elementary school located in the middle of Trump Village near Brighton Beach Avenue on the other side of Ocean Parkway. I technically wasn’t zoned for P.S. 100, but it was supposedly a better school than the one I was officially zoned for: P.S. 253. So my parents managed to somehow get me onto the P.S. 100 roster. Which was good… I guess?
 
