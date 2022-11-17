@@ -5,7 +5,7 @@ date: '2016-10-22T17:31:50.103Z'
 slug: a081f2feb887
 ----->
 
-![](../img/1__v8WIPqsGDMP3MtaC07mNlQ.jpeg)
+![](../img/Playing-Donkey-Kong.jpg)
 
 The first time I ever played _Donkey Kong_ was at Met Food in 1981/82; it was supermarket across the street from my home on Brighton Beach Avenue and Ocean Parkway in Brooklyn.
 

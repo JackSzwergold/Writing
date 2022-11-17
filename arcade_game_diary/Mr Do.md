@@ -5,7 +5,7 @@ date: '2016-10-22T02:59:07.815Z'
 slug: 232ddfaf3d5
 ----->
 
-![](../img/1__83h46grWFGpAO85nFVOTBA.jpeg)
+![](../img/Me-and-Mr-Do.jpg)
 
 Of all of the video games I ever played as a kid, _Mr. Do_ was the one I was truly most obsessed with.
 

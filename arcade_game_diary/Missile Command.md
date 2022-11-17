@@ -1,11 +1,11 @@
----
+<!-----
 title: Discovering Missile Command
 description: A brief memory of an arcade game from 1980
 date: '2016-10-22T15:47:33.469Z'
-slug: missile-command-943fe5c73975
----
+slug: 943fe5c73975
+----->
 
-![](../img/1__DLWPOGhMq2Q4ChIYphH5wA.jpeg)
+![](../img/Discovering-Missile-Command-01.jpg)
 
 The first time I played _Missile Command_ was at this arcade called _Captain’s Quarters_ that opened up on Brighton Beach Avenue near Coney Island Avenue in Brooklyn; just down the block from _Forty Thieves_. In fact it might have been the first game I ever played at _Captain’s Quarters_.
 
@@ -13,4 +13,4 @@ The great appeal of the game was using the huge trackball to move your target ac
 
 Not a “feel good” for a kid growing up in the middle of the Cold War in the 1970s/1980s, but still a fun game.
 
-![](../img/1__ktGfR1zKno1gtKkxyuGbTQ.jpeg)
+![](../img/Discovering-Missile-Command-02.jpg)

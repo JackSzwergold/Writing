@@ -3,6 +3,8 @@
 
 By Jack Szwergold
 
+![](../img/Winning-an-Atari-Centipede-Contest-at-Macys.jpg)
+
 It was the fall of 1981 and I was flipping through the *Daily News* one  Sunday when I saw it: An ad for some kinda of “CityKids” Atari-related contest happening at the main Macy’s flagship location at 34th Street in Manhattan. And according to the ad, there were prizes to be won! The first prize was an Atari 400 and the second prize was the new Atari *Centipede* game for the Atari home computers.
 
 My jaw dropped: *Centipede* was a really popular arcade game, and the release of a home computer version was pretty exciting. Besides, I barely had my Atari 400 for a year and was already bored with playing the few pirated games I had.
