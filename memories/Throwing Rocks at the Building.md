@@ -5,7 +5,7 @@ date: '2018-07-28T05:04:19.902Z'
 slug: 815c227c5e37
 ----->
 
-![](../img/1__NayHYiQm2__IaY__x6c9OY3w.jpeg)
+![](../img/Throwing-Rocks-at-the-Building.jpg)
 
 The window of my bedroom in the apartment I grew up in faced the elevated subway station. It wasn’t like the trains were literally right outside my window, but there was nothing between me and the station other than a low-rise retail building that was about as long and deep in length and depth as my building.
 

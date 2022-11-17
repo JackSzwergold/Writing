@@ -5,7 +5,7 @@ date: '2020-02-24T00:58:49.496Z'
 slug: aa2ff2536971
 ----->
 
-![](../img/1__NtgtfyMs2gbM88cQMIUf9g.jpeg)
+![](../img/Trying-to-Steal-a-Hubcap.jpg)
 
 It was the mid 1980s. Maybe 1986 or so. For argument’s sake I’ll say it was an evening during the summer of 1986 because it was the year most everyone was graduating from high school and going off to wherever.
 

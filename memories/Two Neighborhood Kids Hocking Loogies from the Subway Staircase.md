@@ -5,7 +5,7 @@ date: '2018-11-25T01:17:23.240Z'
 slug: a6252b1d0e6
 ----->
 
-![](../img/1__e1UJ__bUYThNqtD82bbil3Q.jpeg)
+![](../img/Two-Neighborhood-Kids-Hocking-Loogies-from-the-Subway-Staircase.jpg)
 
 I don’t know if it was a Saturday, a Sunday or a holiday, but I remember it being Fall-ish kind of afternoon — but it could have still been Spring for all I remember — and I was sitting at my desk in my room not doing anything much but playing around with stuff and occasionally looking out the window.
 
