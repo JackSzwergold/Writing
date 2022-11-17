@@ -5,7 +5,7 @@ date: '2018-05-13T18:53:53.758Z'
 slug: fd75a8918fe5
 ----->
 
-![](../img/1__XLxGtnFdlckuJqpCmN0tVg.png)
+![](../img/Not-Learning-How-to-Program-But-Learning-How-to-Pirate.png)
 
 Weeks — possibly months — had passed since I received that Atari 400 for my 13th birthday. While I had not seen hide nor hair of this “magical” BASIC cartridge my brother was endlessly talking about, I had moved up the ranks in _Star Raiders_ from “Garbage Scow Captain” to “Warrior.” It was a proud achievement of mine — and even my dad — but not to my brother. He saw games as nothing more than a distraction from the real purpose of a computer: Endlessly looking at lines of code to program something. Which was something I could not do — and didn’t even sound like fun — until I got that confounded BASIC cartridge.
 

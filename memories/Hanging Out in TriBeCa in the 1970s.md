@@ -5,7 +5,7 @@ date: '2019-06-17T03:02:34.604Z'
 slug: fb5894ef728c
 ----->
 
-![](../img/1__ZLpjnX7xWSKztNmoG2dWKA.jpeg)
+![](../img/Hanging-Out-in-TriBeCa-in-the-1970s.jpg)
 
 If you want to call me a cool kid, please do. You see, back in 1975 or 1976 — when I was 7 or 8 years old — I visited TriBeCa for the first time… With my mom and dad.
 

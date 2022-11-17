@@ -5,7 +5,7 @@ date: '2018-07-15T23:27:48.739Z'
 slug: 2bb9851d8f9d
 ----->
 
-![](../img/1__Gc8nK__bVSIkGy5UeAekIuQ.jpeg)
+![](../img/High-Functioning-Comedy-Genius-in-an-Ape-Suit-Enjoys-the-Bacchanal.jpg)
 
 The party was weird because it was fun. It was honestly the first real house party I had been to in Madison, Wisconsin that wasn’t just a bunch of people drinking beers and smoking up at the hipster “Paper Towel Museum.” It was also weird because Rob — our newspaper’s managing editor — actually showed up and was actually drinking and seemed to be acting like a normal human being for once.
 

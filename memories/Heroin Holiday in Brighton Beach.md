@@ -5,7 +5,7 @@ date: '2019-12-28T00:38:43.097Z'
 slug: 88639a101c2a
 ----->
 
-![](../img/1__vRGHmimW9jxN2WSulwCnhg.jpeg)
+![](../img/Heroin-Holiday-in-Brighton-Beach.jpg)
 
 I wasn’t at rock bottom but I sure wasn’t at the top either.
 
