@@ -5,7 +5,7 @@ date: '2019-03-03T02:15:19.994Z'
 slug: a06bb0d007d6
 ----->
 
-![](../img/1__cbBEBCIqxruwlCpK2__5Rng.jpeg)
+![](../img/Post-Traumatic-Data-Recovery-Stress.jpg)
 
 It was a spring or summerish day in the late 1990s. I would guess it was 1999 or so. And for the record, all of this happened over the span of 15 to 20 minutes or so; so hey.
 
