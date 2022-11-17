@@ -5,7 +5,7 @@ date: '2018-04-01T01:02:57.837Z'
 slug: 20acf4e2f55d
 ----->
 
-![](../img/1__TiBVp3o50kvDF__gwgjJw__Q.jpeg)
+![](../img/Being-Dragged-to-See-the-Pharaoh.jpg)
 
 My first memory of what happened was my brother showing up on the weekend for a “surprise” unannounced visit like he usually did. To be fair, sometimes he would tell us he would show up, but many times he simply showed up out of nowhere without warning.
 

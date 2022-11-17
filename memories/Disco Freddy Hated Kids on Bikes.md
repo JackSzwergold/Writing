@@ -5,7 +5,7 @@ date: '2019-12-29T06:09:53.036Z'
 slug: 3119ca8ab564
 ----->
 
-![](../img/1__gXAql8UBlgtmRGTXgtQW__Q.jpeg)
+![](../img/Disco-Freddy-Hated-Kids-on-Bikes.jpg)
 
 Everyone knows New York City was a dump in the 1970s and 1980s. But there were a few pluses — mixed in with all the minuses — to living in some neighborhoods at that time.
 
