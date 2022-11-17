@@ -1,11 +1,11 @@
 <!-----
-title: The Time I Shoplifted a Matchbox Cars from the Te-Amo
+title: The Time I Shoplifted Matchbox Cars from the Te-Amo
 description: About the Time I Shoplifted a Matchbox Car from a Local Te-Amo Newsstand Because the New Owners Were Jerks
 date: '2018-08-06T00:39:55.808Z'
 slug: 3a6fcc9ad88c
 ----->
 
-![](../img/1__eIfHAn5rnjLXw6BY__jfvZg.jpeg)
+![](../img/The-Time-I-Shoplifted-Matchbox-Cars-from-the-Te-Amo.jpg)
 
 We all called the store “the Te-Amo” but it was basically a junky — but beloved — neighborhood newsstand and candy store.
 

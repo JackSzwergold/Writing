@@ -6,7 +6,7 @@ date: '2018-10-08T00:24:19.443Z'
 slug: 5fd9f453d14a
 ----->
 
-![](../img/1__9klCuRYZytcovzVioLQpPw.jpeg)
+![](../img/The-Day-the-Vietnam-Vet-on-the-Fourth-Floor-Flipped-Out.jpg)
 
 This all happened sometime in the the mid-1980s. Not too sure I remember if the building went co-op and the new owners (aka: Overseas Investment Corp.) were in charge yet since the building was still in decent shape and new people were moving in every now and then. It was a healthy, normal flow of a lower class rental economy.
 
