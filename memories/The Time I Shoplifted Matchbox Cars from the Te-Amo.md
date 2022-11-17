@@ -59,7 +59,7 @@ I told my dad what happened and he went out with me the next day to see if he co
 
 Me and my dad left the place and my dad said that they were acting crazy. “Why don’t they want to sell it to you? The money is the same!” my dad said as we walked back down the avenue.
 
-\*\*\*
+***
 
 After that incident, I began to consciously and deliberately boycott the Te-Amo. If they were going to be jerks, I wouldn’t give them the pleasure of getting the 5 to 25 cents I might occasionally spend on them for candy and trading cards.
 

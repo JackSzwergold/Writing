@@ -21,7 +21,7 @@ Anyway, I kept on walking and was around Brighton 6th Street when I ran across s
 
 And despite the fact I was getting sand in my sneakers — which annoyed me only when I slowed down enough to notice it — playing around with this motley crew was a fun time. And other than a few random seagulls and old people sitting on benches, we were on our own: The boardwalk and the beach were both calm and quiet and this small bunch of kids was having fun.
 
-\*\*\*
+***
 
 At some point a ball came flying my way and flew straight over my head and right into the area under the boardwalk.
 
