@@ -6,6 +6,7 @@ slug: 8ee33d95db1e
 ----->
 
 ![](../img/Brunch-at-the-Met.jpg)
+<!--A photo of the front steps of the Met Museum. (Photo by Jack Szwergold; Taken May 23, 2021)-->
 
 Danny was a high school friend of a friend from Midwood. He lived on East 15th Street near Avenue J. He lived in Midwood and went to Midwood High School. I lived in Brighton Beach and went to Abraham Lincoln High School. We got along because we were weirdos and had a mutual friend; a connector if you will.
 

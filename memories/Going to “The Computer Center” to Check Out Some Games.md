@@ -6,6 +6,7 @@ slug: ef293502383
 ----->
 
 ![](../img/Going-to-The-Computer-Center-to-Check-Out-Some-Games.jpg)
+<!--A screenshot of “Baja Buggies,” the first video game I was desperate to purchase for my Atari 400 home computer. (Screenshot by Jack Szwergold; Taken May 13, 2018)-->
 
 Weeks would pass and slowly some of my friends would end up getting computers as well. It seemed weirdly coincidental at the time but, in retrospect, Atari was making a big “educational” push in the burgeoning personal computer market so these so-called “computers” were being marketed as a smarter/more thoughtful alternative to video games to the “educated” parent. And some of those people were friends of mine.
 

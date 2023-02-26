@@ -6,6 +6,7 @@ slug: 57db73182618
 ----->
 
 ![](../img/Going-to-Work-Going-to-School-Coming-Home-from-School-Coming-Home-from-Work.jpg)
+<!--The view from the Coney Island bound platform at the Ocean Parkway subway station which is featured in this story. (Photo by Jack Szwergold; Taken December 31, 2018)-->
 
 My parents both worked factory jobs at different times of their lives in the family and never really talked much about it. Kinda typical for any working class family I guess; forget the past and keep on moving forward to some kind of better future.
 

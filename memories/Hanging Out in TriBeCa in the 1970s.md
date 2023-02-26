@@ -6,6 +6,7 @@ slug: fb5894ef728c
 ----->
 
 ![](../img/Hanging-Out-in-TriBeCa-in-the-1970s.jpg)
+<!--The view down Broadway from Canal Street on the north end of TriBeCa. (Photo by Jack Szwergold; Taken June 16, 2019)-->
 
 If you want to call me a cool kid, please do. You see, back in 1975 or 1976 — when I was 7 or 8 years old — I visited TriBeCa for the first time… With my mom and dad.
 

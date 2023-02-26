@@ -6,6 +6,7 @@ slug: d1ec9ffb9bd3
 ----->
 
 ![](../img/Fire-in-the-Wood-Shop.jpg)
+<!--A photo of East 14th Side of James J. Reynolds JHS. (Photo by Jack Szwergold; Taken June 19, 2016)-->
 
 It was a bright, sunny, spring-ish day in 1983 in Sheepshead Bay and I was working as a student aide in some school office in James J. Reynolds JHS. Filing, running errands, opening mail, etc… Basic office bullshit like that. I did that kind of work because what else could I do to kill free time other than be some kind of lackey for my last year on junior high.
 

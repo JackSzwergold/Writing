@@ -6,6 +6,7 @@ slug: 88639a101c2a
 ----->
 
 ![](../img/Heroin-Holiday-in-Brighton-Beach.jpg)
+<!--A shot of some tasteful lights hanging in front of as restaurant in Park Slope, Brooklyn. (Photo by Jack Szwergold; Taken December 27, 2019)-->
 
 I wasn’t at rock bottom but I sure wasn’t at the top either.
 

@@ -8,6 +8,7 @@ slug: 3c0321a525b3
 ----->
 
 ![](../img/Fixing-the-Roof-Antenna.jpg)
+<!--A shot of a “Tree of Heaven” (ailanthus altissima) spotted — similar to the one mentioned in this piece — on President Street in Gowanus, Brooklyn. (Photo by Jack Szwergold; Taken September 14, 2019)-->
 
 It was the late 1970s or early 1980s. Honestly, it doesn’t mater much what period in time it was. All you need to know is that it was Brooklyn in the 1970s and nobody who was poor had cable. Heck, if you were poor and in the ass end of a Brooklyn there was no cable to be gotten if you wanted it. All TV was received by crappy antennas; either glorified wire hangars hanging off the back of your TV or — if you had roof access — a roof antenna of some kind. And in my family’s case it was received by a roof antenna.
 

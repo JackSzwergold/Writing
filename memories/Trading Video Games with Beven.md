@@ -5,7 +5,7 @@ date: '2018-02-19T00:02:43.454Z'
 slug: 5f4e249ce619
 ----->
 
-![](../img/ Trading-Video-Games-with-Beven.jpg)
+![](../img/Trading-Video-Games-with-Beven.jpg)
 
 Beven was a new kid in Junior High School. I didn’t really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky. Like the basic way he carried and composed himself, stains on his clothes and — most notably — the odd, beat up briefcase he carried around with him at all times.
 

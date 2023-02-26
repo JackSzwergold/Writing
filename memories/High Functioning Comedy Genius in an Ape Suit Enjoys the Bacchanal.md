@@ -6,6 +6,7 @@ slug: 2bb9851d8f9d
 ----->
 
 ![](../img/High-Functioning-Comedy-Genius-in-an-Ape-Suit-Enjoys-the-Bacchanal.jpg)
+<!--A photo a crushed red beer cup on a stoop. (Photo by Jack Szwergold; Taken July 15, 2018)-->
 
 The party was weird because it was fun. It was honestly the first real house party I had been to in Madison, Wisconsin that wasn’t just a bunch of people drinking beers and smoking up at the hipster “Paper Towel Museum.” It was also weird because Rob — our newspaper’s managing editor — actually showed up and was actually drinking and seemed to be acting like a normal human being for once.
 

@@ -6,6 +6,7 @@ slug: dd2296a6a385
 ----->
 
 ![](../img/912-Memories-01.jpg)
+<!--The view of Lower Manhattan from the Brooklyn Heights Promenade in the days after 9–11. (Photo by Jack Szwergold; Taken in September 2001)-->
 
 The day after 9–11 was oddly calm and quiet. Everyone was in the same boat. Everyone was bonded in that crazy way only disaster could bring people together.
 

@@ -6,6 +6,7 @@ slug: 527739b215e9
 ----->
 
 ![](../img/Going-to-a-Slopie-Party-in-the-1980s.jpg)
+<!--A view down a Park Slope street. (Photo by Jack Szwergold; Taken June 16, 2019)-->
 
 PerIt was sometime in the 1980s. I want to say 1984 or 1985 since I was in high school and I heard about this party from neighborhood friends of mine who were going to Midwood High School. Midwood was kinda the yuppie “magnet” high school in Brooklyn. I went to Abraham Lincoln High School where all the non-special, non-magnetized students went to.
 

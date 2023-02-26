@@ -6,6 +6,7 @@ slug: 4da44bb4b6c2
 ----->
 
 ![](../img/Drowned-Car-Near-Nellie-Bly.jpg)
+<!--Watery “pond” at Calvert Vaux Park in Gravesend. (Photo by Jack Szwergold; Taken June 22, 2019)-->
 
 It was the summer. Not too sure what day it was or what time of the summer it was, but my brother was around and wanted to take me out to have some “fun.” This kind of stuff was tedious and a bit pandering but it was undoubtedly predictable. The summer was around and my brother was making one of his, “Check in With the Family” visits and — invariably — I would somehow be dragged into one of his hare-brained schemes to have “fun” with me.
 

@@ -6,6 +6,7 @@ slug: 975f599bfc4a
 ----->
 
 ![](../img/Finding-My-First-Job.jpg)
+<!--A photo a bunch of money. (Photo by Jack Szwergold; Taken March 31, 2018)-->
 
 I was about 14 years old and wanted a summer job. Every other friend of mine had a summer job doing something somewhere, and I wanted one too. I wanted the independence, the freedom but — most of all — I wanted the money a job would give me.
 

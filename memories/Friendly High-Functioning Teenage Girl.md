@@ -6,6 +6,7 @@ slug: f0da1beab207
 ----->
 
 ![](../img/Friendly-Teenaged-High-Functioning-Girl.jpg)
+<!--The bus stop signage where the events in this story happened. (Photo by Jack Szwergold; Taken January 20, 2020)-->
 
 She ran across the street to the bus stop to meet someone at the bus stop. That person looked like an older version than her.
 

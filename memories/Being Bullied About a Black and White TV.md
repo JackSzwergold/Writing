@@ -6,6 +6,7 @@ slug: 5011c715ca3
 ----->
 
 ![](../img/Being-Bullied-About-a-Black-and-White-TV.jpg)
+<!--The facade of P.S. 253 on Ocean Avenue in Brighton Beach. (Photo by Jack Szwergold; Taken April 24, 2004)-->
 
 I was a new kid at P.S. 253 and people didn’t know what to make of me. Teachers, students… I was always treated as a little bit odd when I showed up.
 

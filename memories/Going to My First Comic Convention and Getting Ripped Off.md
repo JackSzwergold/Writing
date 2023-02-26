@@ -6,6 +6,7 @@ slug: 22d6cec40dc0
 ----->
 
 ![](../img/Going-to-My-First-Comic-Convention-and-Getting-Ripped-Off.jpg)
+<!--A photo of a bunch of comics piled up in a bin at a thrift shop. (Photo by Jack Szwergold; Taken October 5, 2018)-->
 
 It was the 1970s, I was in elementary school, had a meager $2 a week allowance and liked to buy comics. I wasn’t some hardcore collector of any kind but I just liked to buy comics that caught my eye at the time.
 

@@ -6,6 +6,7 @@ slug: 3119ca8ab564
 ----->
 
 ![](../img/Disco-Freddy-Hated-Kids-on-Bikes.jpg)
+<!--An old beach water fountain in Coney Island near the boardwalk. (Photo by Jack Szwergold; Taken sometime in the early 1990s)-->
 
 Everyone knows New York City was a dump in the 1970s and 1980s. But there were a few pluses — mixed in with all the minuses — to living in some neighborhoods at that time.
 

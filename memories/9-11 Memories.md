@@ -7,6 +7,8 @@ slug: ac0c03fb6fc5
 
 ![](../img/911-Memories-01.jpg)
 
+<!--The view from the Manhattan side of the Brooklyn Bridge around noon on 9–11. (Photo by Jack Szwergold; Taken September 11, 2001)-->
+
 On the morning of 9–11 my phone rang. An actual old school rotary phone. I had a cell phone, but used that land line as my main number. I stayed in bed and let the answering machine pick it up.
 
 A friend left me a message on my answering machine telling me something crazy happened and a plane crashed into the World Trade Center and I should turn on my TV to see it.

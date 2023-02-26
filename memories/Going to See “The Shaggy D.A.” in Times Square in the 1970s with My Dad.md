@@ -6,6 +6,7 @@ slug: dc96237e490f
 ----->
 
 ![](../img/Going-to-See-The-Shaggy-DA-in-Times-Square-in-the-1970s-with-My-Dad.jpg)
+<!--Tim Conway and a dog at a bar in the 1976 Disney classic, “The Shaggy D.A.” (Promotional still from the film as found on IMDb)-->
 
 I really liked reading the Sunday newspaper in the 1970s. And by “reading” I mean “flipping through.” And by “Sunday newspaper” I mean _The New York Daily News_. _The Daily News_ was the only newspaper in our home back in the 1970s.
 

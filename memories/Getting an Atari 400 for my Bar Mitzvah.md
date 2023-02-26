@@ -6,6 +6,7 @@ slug: 35693e21faa9
 ----->
 
 ![](../img/Getting-an-Atari-400-for-my-Bar-Mitzvah.png)
+<!--A screenshot of the “Atari Computer — Memo Pad” screen you thrillingly saw when you first powered on an Atari computer back in the day. (Screenshot by Jack Szwergold; Taken May 13, 2018)-->
 
 It was 1980, I was 12 years old going on 13, and old enough to head off into Junior High School and boy oh boy, was I obsessed with video games. _Space Invaders_, _GORF_ and _Bite Monster_ were my favorites because they were the only video games I had access to in the scratch and dent storefronts in Brighton Beach.
 

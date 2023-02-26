@@ -6,6 +6,7 @@ slug: e8d158d4428c
 ----->
 
 ![](../img/Bag-of-Slugs-01.jpg)
+<!--A photo of a small coin purse — with coins; not slugs — that is similar to the one mentioned in this piece. (Photo by Jack Szwergold; Taken January 1, 2020)-->
 
 It was a Saturday in the early 1980s; maybe 1981 or 1982. The day was nice and non-eventful and I was putzing around in my room doing not much of anything when I heard something which was not much at all: It was an odd hush around the apartment.
 

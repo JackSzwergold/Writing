@@ -8,6 +8,7 @@ slug: a99fd04892e8
 ----->
 
 ![](../img/Carlos-the-Cleaner-Posed-for-Porn.jpg)
+<!--A shot of some porn magazines on a shelf in a thrift shop in Gramercy. (Photo by Jack Szwergold; Taken August 4, 2019)-->
 
 One of the first jobs I had in late 1980s working for a comic book company called Castilian Communications. I was still in college — and wasn’t an artist or anything — but I was basically a “worker” working in the shipping department, taking orders, doing data entry, and all that. General small company office bullshit.
 
