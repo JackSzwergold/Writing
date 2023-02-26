@@ -6,7 +6,8 @@ slug: 7a376b41426e
 ----->
 
 ![](../img/Look-at-What-You-Can-Do.jpg)
-
+<!--A pic of stuff on my desk at the wacky weekly local newspaper. (Photo by Jack Szwergold; Taken December 1998)
+-->
 It was sometime in the late 1990s. Maybe 1997 or 1998. I was still living in the midwest and still working for the wacky weekly local newspaper; which was a thing back in the late 1990s.
 
 I think it was fall or winter, but I remember it was dark and I was working late on a Friday at the publication’s office on ass end of State Street; right near the capitol and across the street from the porn shop. It was only Rob and I in the office with Rob next door in his tiny — yet powerful — “I’m the editor!” office and me in the larger production office that would usually be crammed with 3 people during most days.

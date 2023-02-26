@@ -6,6 +6,7 @@ slug: 3656b45bb8fe
 ----->
 
 ![](../img/Phil-Howard-at-Castilian-Communications.jpg)
+<!--An orange flower placed in a scafolding near 19th Street and Broadway; close to where I worked back in 1991. (Photo by Jack Szwergold; Taken April 10, 2017)-->
 
 Phil was a co-worker or mine at Castilian Communications. I worked there in the late 1980s and early 1990s. They were a publisher of European graphic novels and such that they translated into English. It was a small scale operation that operated out of the owner’s loft on East 19th Street near Park Avenue South in Gramercy. The pay was decent and it was better than working at a fast food joint or some other menial job.
 

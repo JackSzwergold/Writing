@@ -6,6 +6,7 @@ slug: 17157c601f4e
 ----->
 
 ![](../img/The-Time-I-Shoplifted-from-Speedway-Drugs.jpg)
+<!--The side of the retail space that once housed Speedway Drugs; it’s now a Duane Reade and medical center. That door near the center of the picture is about where the old Speedway Drugs side door—that I used for exiting after grabbing stuff—used to be. (Photo by Jack Szwergold; Taken November 24, 2018)-->
 
 It was another boring day in 1975 or 1976 and I — as a kid — was doing what I normally did on such a day: Play around with neighborhood kids on our block with occasional breaks to do something else.
 

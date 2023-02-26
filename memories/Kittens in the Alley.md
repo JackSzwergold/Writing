@@ -6,6 +6,7 @@ slug: daa45cf726ac
 ----->
 
 ![](../img/Kittens-in-the-Alley.jpg)
+<!--Entrance to the basement of old tenement building that is similar to the one mentioned in this piece. (Photo by Jack Szwergold; Taken April 19, 2016)-->
 
 It was sometime in the mid 1970s and one of my favorite childhood pastimes was getting out of the apartment and running around outside. Literally just that: Getting out of the apartment, emerging into the outside world of Ocean Parkway and running around; playing with other kids and all that.
 

@@ -6,6 +6,7 @@ slug: 5f7cb69edcd3
 ----->
 
 ![](../img/The-Time-I-Met-a-Family-Friend-Who-Liked-The-Beatles-01.jpg)
+<!--A view of one of the buildings in Luna Park. (Photo by Jack Szwergold; Taken July 6, 2019)-->
 
 One of the problems with being the child of old parents was nothing my parents did or liked was hip or cool.
 

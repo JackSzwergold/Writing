@@ -6,6 +6,7 @@ slug: 934e5f58c0b0
 ----->
 
 ![](../img/The-Bibliophilic-Comedian-Gets-Questioned-by-the-Police.jpg)
+<!--A photo of a bookcase filled with books. (Photo by Jack Szwergold; Taken July 22, 2018)-->
 
 The first time I met John people told me how he had previously headed to New York City to make it big at MTV or Comedy Central. He’s one of the few people from that newspaper who decided it was time for him to take the show on the road and “make it” (whatever that means) in New York City by moving his whole life out there based on some spec freelance work and not much else.
 

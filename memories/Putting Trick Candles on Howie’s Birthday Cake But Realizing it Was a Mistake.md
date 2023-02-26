@@ -6,6 +6,7 @@ slug: 5c491cc56572
 ----->
 
 ![](../img/Putting-Trick-Candles-on-Howies-Birthday-Cake-But-Realizing-it-Was-a-Mistake.jpg)
+<!--Burning some birthday candles in memory of Howie, wherever he is. (Photo by Jack Szwergold; Taken December 31, 2018)-->
 
 In the 1970s, Howie was a good neighborhood friend. I didn’t go to school with him — like most of the other kids I knew at the time — but we saw each other pretty much every day during that small slide of outdoor “play in the streets” time that existed between 3:00pm-ish and 6:00pm-ish each day.
 

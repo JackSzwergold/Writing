@@ -6,6 +6,7 @@ slug: 719887892680
 ----->
 
 ![](../img/The-Last-Passover-I-Had-With-My-Family.jpg)
+<!--A cropped photo of my brother and nephew taken about one hour afrer the incidents described in this story. (Photo scanned by Jack Szwergold; Taken April 5, 2004)-->
 
 While my parents were Jewish, the home my parents raised me in was secular. My parents weren’t in denial of our Jewish background, but rather simply aware of the basics and not much else. To his literal death my father would say that religion was “bullshit” and would often ascribe what he defined as “bullshit” to the way God treated the Jewish people during the Holocaust. If there is a God, why would he/she/it ever allow such a tragedy to happen? As a child I often wondered if my parents were somehow faithful before World War II and then suddenly dropped their religion after the war. But as an adult whose learned some more about my own family’s history over the years, I’ve grown to realize there’s no history of religious faith or deep belief in my family past the usual, “This is our community and this is what we do…” mentality. My family is historically secular.
 

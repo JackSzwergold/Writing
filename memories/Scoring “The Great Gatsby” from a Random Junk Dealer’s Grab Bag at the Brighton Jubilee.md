@@ -6,7 +6,8 @@ slug: a94d17716730
 ----->
 
 ![](../img/Scoring-The-Great-Gatsby-from-a-Random-Junk-Dealers-Grab-Bag-at-the-Brighton-Jubilee.jpg)
-
+<!--A copy of “The Great Gatsby” (The Scribner Library 1953 version) that’s just like the one I found as a kid. (Photo by Jack Szwergold; Taken June 29, 2018)
+-->
 The Brighton Jubilee was a street fair started by a local Brighton Beach neighborhood association back in the mid-1970s to help promote the neighborhood. And the neighborhood needed a good promotional effort — if not a friendly slap on the back and some basic reassurance — at the time since as much as I loved it, it was indeed a depressing craphole in many ways.
 
 And unlike modern street fairs that seem like cookie cutter affairs filled with the same or similar vendors selling the same or similar stuff, the Brighton Jubilee — at least in it’s early years — was truly more of a local neighborhood affair. Lots of local vendors and shops setup card tables and sold whatever they thought they could sell. And if you kept your eyes peeled, you might find a true cool bargain.

@@ -6,6 +6,7 @@ slug: 815c227c5e37
 ----->
 
 ![](../img/Throwing-Rocks-at-the-Building.jpg)
+<!--A view of the Ocean Parkway subway station from my bedroom window. (Photo by Jack Szwergold; Taken sometime in the early 1990s)-->
 
 The window of my bedroom in the apartment I grew up in faced the elevated subway station. It wasn’t like the trains were literally right outside my window, but there was nothing between me and the station other than a low-rise retail building that was about as long and deep in length and depth as my building.
 

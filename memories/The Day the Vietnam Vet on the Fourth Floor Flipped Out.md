@@ -7,6 +7,7 @@ slug: 5fd9f453d14a
 ----->
 
 ![](../img/The-Day-the-Vietnam-Vet-on-the-Fourth-Floor-Flipped-Out.jpg)
+<!--The view up a tenement stairwell similar to the stairwell described in this story. (Photo by Jack Szwergold; Taken October 7, 2018)-->
 
 This all happened sometime in the the mid-1980s. Not too sure I remember if the building went co-op and the new owners (aka: Overseas Investment Corp.) were in charge yet since the building was still in decent shape and new people were moving in every now and then. It was a healthy, normal flow of a lower class rental economy.
 

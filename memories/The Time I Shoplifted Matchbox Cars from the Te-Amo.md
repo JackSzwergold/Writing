@@ -6,6 +6,7 @@ slug: 3a6fcc9ad88c
 ----->
 
 ![](../img/The-Time-I-Shoplifted-Matchbox-Cars-from-the-Te-Amo.jpg)
+<!--A photo of a 1979/80 Matchbox car catalog opened up to the page that featured car number 21, a Renault 5 TL.(Photo by Jack Szwergold; Taken August 5, 2018)-->
 
 We all called the store “the Te-Amo” but it was basically a junky — but beloved — neighborhood newsstand and candy store.
 

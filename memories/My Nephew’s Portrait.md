@@ -6,6 +6,7 @@ slug: c9311df80837
 ----->
 
 ![](../img/My-Nephews-Portrait.jpg)
+<!--A cropped version of the portrait of my nephew as mentioned in the story. (Photo scanned by Jack Szwergold; Taken January 12, 1985)-->
 
 It was an odd period in the family in the mid-1980s: My sister, her husband and children moved back to Brooklyn a few years before. They lived on Ocean Avenue near Neck Road. The apartment was decent, but one day — while walking back home from running errands — my sister saw a splatter of blood on the sidewalk near a payphone on the corner and flipped out. She desperately needed to move.
 

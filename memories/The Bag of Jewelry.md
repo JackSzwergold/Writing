@@ -6,6 +6,7 @@ slug:2dee5c4e34aa
 ----->
 
 ![](../img/The-Bag-of-Jewelry.jpg)
+<!--A shot of a purple Crown Royal bag similar to the one mentioned in this piece. (Photo by Jack Szwergold; Taken August 24, 2019)-->
 
 It was sometime in the 1980s in Brighton Beach, and my mom wanted to go out to get something from the supermarket across the avenue. It was either called Met Foods or Speedway; don’t remember when the name switch happened but it was still the same supermarket even with branding changes. Larger than a corner store and smaller than a “good” supermarket like Waldbaum’s or Pathmark. Whatever the size it was my family’s supermarket.
 

@@ -6,6 +6,7 @@ slug: a06bb0d007d6
 ----->
 
 ![](../img/Post-Traumatic-Data-Recovery-Stress.jpg)
+<!--Some vintage 3.5" floppy disks similar to the kind mentioned in this piece. (Photo by Jack Szwergold; Taken March 2, 2019)-->
 
 It was a spring or summerish day in the late 1990s. I would guess it was 1999 or so. And for the record, all of this happened over the span of 15 to 20 minutes or so; so hey.
 

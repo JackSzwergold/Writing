@@ -6,6 +6,7 @@ slug: 8710c9347cf7
 ----->
 
 ![](../img/The-Time-I-Discovered-a-Cool-Toy-Store-on-Bleecker-Street.jpg)
+<!--A view of the outside of the building on Cornelia Street near West 4th Street where my brother-in-law lived; a few steps away from Allan Block’s famous sandal shop. (Photo by Jack Szwergold; Taken November 16, 2018)-->
 
 I don’t remember the exact year this all happened, but I do know it was 1978 or 1979 and I was in Greenwich Village with my sister, her husband and her husband’s brother on another one of their horse-shit adventures.
 

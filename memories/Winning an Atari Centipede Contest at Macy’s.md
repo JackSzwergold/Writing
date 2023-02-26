@@ -6,10 +6,7 @@ slug: 1ffb5f526d13
 ----->
 
 ![](../img/Winning-an-Atari-Centipede-Contest-at-Macys.jpg)
-
-*A picture of the artwork on the official Atari home computers Centipede game t-shirt I won. (Photo by Jack Szwergold; Taken December 28, 2018)*
-
-***
+<!--A picture of the artwork on the official Atari home computers Centipede game t-shirt I won. (Photo by Jack Szwergold; Taken December 28, 2018)-->
 
 It was the fall of 1981 and I was flipping through the _Daily News_ one Sunday when I saw it: An ad for some kinda of “CityKids” Atari-related contest happening at the main Macy’s flagship location at 34th Street in Manhattan. And according to the ad, there were prizes to be won! The first prize was an Atari 400 and the second prize was the new Atari _Centipede_ game for the Atari home computers.
 

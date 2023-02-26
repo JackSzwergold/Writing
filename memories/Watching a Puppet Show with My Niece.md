@@ -6,6 +6,7 @@ slug: 11d1b6cf39c8
 ----->
 
 ![](../img/Watching-a-Puppet-Show-with-My-Niece.jpg)
+<!--A pic of me and my niece in my room back in 1979. Window and chair are pretty much 100% the same as they were a few years later at the time of the events described in this piece. (Photo taken in June 1979)-->
 
 It was a family visit on a spring or summer day in the late 1970s or early 1980s. Maybe it was a birthday or something like that. All I know is my brother and sister — and their mutual families — had invaded our Brighton Beach home.
 

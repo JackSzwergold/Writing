@@ -6,6 +6,7 @@ slug: 70076f6b8dba
 ----->
 
 ![](../img/The-First-Time-Any-Gal-Saw-My-Junk.jpg)
+<!--Details of the cover of the Summer 1977 “Tiger Beat Annual” my classmate was flipping through. (Cropped from a image of the issue found on Amazon or eBay.)-->
 
 It was the fall of 1977 and every kid in the neighborhood either had seen _Star Wars_ already or knew what _Star Wars_ was in some way.
 

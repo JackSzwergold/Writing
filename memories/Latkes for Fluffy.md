@@ -6,6 +6,7 @@ slug: fc6ae8ca9ccf
 ----->
 
 ![](../img/Latkes-for-Fluffy.jpg)
+<!--The view down the airway of a tenement building similar to the airway described in this story. (Photo by Jack Szwergold; Taken October 7, 2018)-->
 
 While our family didn’t formally eat meals like a family, eating food and making food was a constant thing around the home.
 

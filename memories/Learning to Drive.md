@@ -6,6 +6,7 @@ slug: baf7c93e8c5b
 ----->
 
 ![](../img/Learning-to-Drive.jpg)
+<!--The sidewalk next to Sea Breeze Park that is mentioned in this story. (Photo by Jack Szwergold; Taken July 6, 2019)-->
 
 It was 1983 and as luck would have it, I was given an opportunity to learn how to drive. Well, when I say “opportunity” I meant that one of the gym teachers I had in high school let us all know he was offering driving classes to us for a nominal fee.
 

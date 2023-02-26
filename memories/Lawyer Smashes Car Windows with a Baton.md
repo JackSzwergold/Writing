@@ -6,6 +6,7 @@ slug: 9a41f78ee666
 ----->
 
 ![](../img/Lawyer-Smashes-Car-Windows-with-a-Baton.jpg)
+<!--Shattered glass in Brooklyn, NY. (Photo by Jack Szwergold; Taken July 24, 2018)-->
 
 His name was Kevin. God was that guy a dick, a tool, an asshole and all of the above and then some. But most of all we at the wacky weekly newspaper knew him as our lawyer.
 

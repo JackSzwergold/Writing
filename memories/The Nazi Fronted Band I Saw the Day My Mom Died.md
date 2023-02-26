@@ -6,6 +6,7 @@ slug: 89f44b83c758
 ----->
 
 ![](../img/The-Nazi-Fronted-Band-I-Saw-the-Day-My-Mom-Died-01.jpg)
+<!--A flyer for a Buttress show at the “Down Below Lounge” on July 7, 1992 in Madison, WI.-->
 
 On the night of May 29, 1993 my mom — a Holocaust survivor — died. Earlier that day I flew out to Madison, Wisconsin to visit friends and to take a break from weeks of going to Coney Island Hospital — pretty much daily — to visit and care for her.
 
@@ -34,3 +35,4 @@ The band logo was one thing… But when Greg P. in Buttress referred to me as �
 Oh, and here’s another flyer I found for reference; they sure as hell loved fascist imagery!
 
 ![](../img/The-Nazi-Fronted-Band-I-Saw-the-Day-My-Mom-Died-02.jpg)
+<!--A flyer for a Buttress show at the “Down Below Lounge” on July 7, 1992 in Madison, WI.-->

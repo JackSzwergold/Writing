@@ -6,6 +6,7 @@ slug: 7dd6aa6eb88f
 ----->
 
 ![](../img/Running-Errands-for-MrDubinsky.jpg)
+<!--A small brown bottle of hydrogen peroxide. (Photo by Jack Szwergold; Taken December 22, 2018)-->
 
 It was the 1970s and I was maybe 8 or 9 years old at the time. I didn’t necessarily want or need a job — my $2 a week allowance worked well for my humble needs at the time — but my dad would get me to run errands every now and then and let me keep some of the left-over change from the transaction.
 

@@ -6,6 +6,7 @@ slug: a6252b1d0e6
 ----->
 
 ![](../img/Two-Neighborhood-Kids-Hocking-Loogies-from-the-Subway-Staircase.jpg)
+<!--The open area near the staircase of the elevated subway stop at Ocean Parkway where I spotted the two kids mentioned in this story from my childhood apartment window. (Photo by Jack Szwergold; Taken November 24, 2018)-->
 
 I don’t know if it was a Saturday, a Sunday or a holiday, but I remember it being Fall-ish kind of afternoon — but it could have still been Spring for all I remember — and I was sitting at my desk in my room not doing anything much but playing around with stuff and occasionally looking out the window.
 

@@ -6,6 +6,7 @@ slug: 99a4574618b0
 ----->
 
 ![](../img/Iron-Maiden-Guns-and-Video-Games.jpg)
+<!--A photo of some detail on the cover of Iron Maiden’s “Number of the Beast” (Photo by Jack Szwergold; Taken February 27, 2018)-->
 
 I was hanging out at a neighborhood friend’s house in the early 1980s. We both had Atari computers — I had an Atari 400 and he had an Atari 800 — and we spent time copying games and trying to figure out how to play games we copied.
 
