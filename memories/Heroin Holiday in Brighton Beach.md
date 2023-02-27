@@ -18,6 +18,8 @@ The wacky weekly newspaper only became famous because of their content, not thei
 
 I mean seriously, the wacky weekly newspaper literally just cut a few deals with a major movie and TV studios and part of the reason they moved to New York in the first place was to take advantage of that synergy to grow the brand. Despite all of that, the pothead sub shop king of Milwaukee was always looking for ways to sell the brand — and his staff — short.
 
+***
+
 Anyway I was unceremoniously canned from the gig that made my career and was — for all intents and purposes — blacklisted from certain media world. I couldn’t get a basic “Yes he worked here and did this…” reference from the wacky weekly newspaper to save my life and I was desperate. If their goal was to destroy me, my career and my life they were close to doing so. My parents were dead, my siblings were born again Jews who opposed my secular life and I had nowhere to turn to.
 
 Happily — through friends of friends — I got a job as an all-purpose “web guy” at a fancy design and home decor magazine. I really couldn’t relate to much of their content, but it was a decent place to work because — despite their implied snootiness — the people I worked with directly were relatively down to earth. Yeah, some treated me as a redneck deep Brooklyn bumpkin, but it was a paying job at a place with a good name and I could have done worse.

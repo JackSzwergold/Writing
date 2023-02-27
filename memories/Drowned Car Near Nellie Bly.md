@@ -32,9 +32,13 @@ When he did show up he chastised me for running out ahead of him while he was fi
 
 He opened up the passenger side door and I leaned over to unlock the driver’s side door. “You don’t have to do that,” he said as he opened the door and got into the car himself. I just shrugged, put on my seatbelt and got ready for the ride down the Belt Parkway to the armpit of Gravesend that Nellie Bly was located in.
 
+***
+
 Nellie Bly was a weird amusement park that was not easily walkable even if you lived near it. It was located on the side of a service road nobody really drove down near the edge of New York Harbor. Years later I discovered it was formerly the site of a construction company. When the owner of the place got tired of the construction business, he decided to use the land to create a small amusement park. And while it was considered a kiddie park, it still had some cool rides adults could enjoy as well as some cool arcade games and such.
 
 But I didn’t care about that stuff. I lived near Coney Island and could ride rides and play games whenever. I wanted to play miniature golf.
+
+***
 
 After a short drive, we arrived at Nellie Bly. It was kinda dead, but there were still some people around. My brother was kind of impressed with the place. It was quiet and small and because of it’s relative isolation from the rest of Brooklyn it felt like we really took a trip away from “the city.”
 
@@ -45,6 +49,8 @@ Playing miniature golf with my brother was genuinely fun. No kidding. For some r
 After a while, we both finished the course and neither one of us got a golf ball in the clown’s mouth — to win something cool — so the game was officially over.
 
 We both grabbed a soda from a concession stand, got back in the car and got ready to go back home.
+
+***
 
 As we pulled out of the parking lot and onto Shore Parkway, he flicked the blinkers on to make a right. I knew that was a problem and said so.
 

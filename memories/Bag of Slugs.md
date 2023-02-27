@@ -32,6 +32,8 @@ I told my dad who stood up and looked out the window with me. As we tried to see
 
 “What could be in it?” I asked and he just said, “Don’t touch it!” almost reading my pre-teen mind as we stared down at the purse.
 
+***
+
 I looked at him, looked at the purse and ran back to my room. He followed me close behind and asked “Where are you going?” And as I put on my sneakers I said, “I’m getting that purse.”
 
 “No!” he said as I stood up, grabbed my keys and headed to the door. “It will be quick. Don’t worry,” I said as I bolted down the stairs.
@@ -47,6 +49,8 @@ As I ran back to the air shaft I could hear the sound of Johnny and his whole fa
 My dad was waiting for me right there, hanging outside the apartment door and simply said, “Come! Come inside! Quick!” as he held the door open and I jogged back inside.
 
 I ran to my room and my dad followed.
+
+***
 
 I put the purse down on the table and took a breath or two before opening it up. What was in it? It felt bulky but oddly light.
 
@@ -65,6 +69,8 @@ I responded “I can use them in candy machines.” Candy and prize machines wer
 “Okay, but be careful!” he said.
 
 With that I headed outside with a few of the slugs.
+
+***
 
 I wanted to test them out but not too close to home. So that ruled out Met Food or the Speedway drugstore machines. So I headed over to Brighton 6th Street and put a quarter I one of the machines, carefully turned the handle and to my own amazement… It worked! I got someone thing.
 

@@ -34,6 +34,8 @@ The pregnant, awkward pause went on a few beats longer than expected so I said, 
 
 Make no mistake, this wasn’t a romantic invitation by a long shot. I just needed a change of pace and needed to see what was happening on the second floor of this house.
 
+***
+
 The second floor was pretty chill. Kind of like the scene on the first floor but with more seating, better lighting and a wee bit less bullshit.
 
 That said, while there was a huge room with a lot of open space, there wasn’t a lot of room to actually sit. So Rob and I sat out on a bench in the hallway near the bathroom.

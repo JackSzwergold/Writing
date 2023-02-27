@@ -22,11 +22,15 @@ Neighborhood characters were basically people you saw in the neighborhood all th
 
 Disco Freddy was one of those classic neighborhood characters.
 
+***
+
 Disco Freddy — who was also know as “Sensational” to some — showed up on the boardwalk fairly regularly in the late 1970s and early 1980s and was uniquely memorable among neighborhood characters. He was relatively young, clean and kinda looked like Kramer from _Seinfeld_; a tall and lanky hipster doofus. But he was more tan and lean; almost middle eastern looking with his slicked back Semitic hair. And on his own you wouldn’t really consider him too much of a character.
 
 But when he was in performer mode, look out! As a “performer,” he would his regale the crowd with “amazing feats of strength and agility.” Feats of strength such as jumping over small sandwich sized paper bags and radios on the boardwalk.
 
 Seriously.
+
+***
 
 The way pretty much everyone knew him was when he hung out on the boardwalk between Brighton 2nd Street and Brighton 4th Street and put on his memorable, yet “facacta,” act. It was a joke of a show at best, but it also wasn’t a joke at all.
 

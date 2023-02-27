@@ -18,6 +18,8 @@ Anyway, Danny was a friend and one day we headed up to the Met Museum. I think w
 
 “I dunno,” I said as I skulked around.
 
+***
+
 After a short while we left. As I walked out the doors and stepped down onto the stairs of the museum, I felt the afternoon sun, air and sky and — most of all — I felt free.
 
 “Let’s get out of here,” I said.
@@ -43,6 +45,8 @@ With that we got on the subway.
 I just simply shrugged and say back in my seat and let that pass.
 
 We decided to skip heading over to the Village and headed back home on the D train. Danny got off at Avenue J and I stayed on to head back to Ocean Parkway.
+
+***
 
 A few weeks pass and I get a call from Danny on a Saturday afternoon.
 

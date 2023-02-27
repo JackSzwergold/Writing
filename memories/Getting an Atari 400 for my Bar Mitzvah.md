@@ -36,6 +36,8 @@ So the idea of a “Color Computer” boggled my mind. And better yet… There w
 
 While those dreams floated in my head, the most tangible reality of them I could hold onto was that Radio Shack supplement. And I carefully kept that supplement in my desk drawer to look at and reference every now and then.
 
+***
+
 One weekend a few weeks later — as I was daydreaming on the floor of my room with some toys, comics and that supplement near me — my brother showed up seemingly out of nowhere.
 
 He was acting odd… Almost strange… There was no shouting or fighting as he walked into my room — which was strange for him — kneeled down and started to talk to me in some patronizing sing-songy voice.
@@ -53,6 +55,8 @@ I nodded, “Yes…” as I started to explain what the game was and what a Radi
 I nodded, but was confused. While my brother wasn’t mean all the time, the kind of niceness he was was expressing during this interaction was somewhat creepy. His tone of voice sounded a bit off as well; as if he was forcing himself to be nice in that way that people who weren’t nice did when they tried to be nice.
 
 But I accepted it for what it was worth and soon he was gone.
+
+***
 
 A few months later — in June — my Bar Mitzvah came and it happened and that is the absolute best that can be said about. My family wasn’t religious so the actual Bar Mitzvah itself was cursory “paint by numbers” exercise at best rather than anything memorable. In retrospect that Bar Mitzvah should not have ever have happened and maybe a basic birthday party with some pizza and ice cream would have been a more honest reflection of who I was and how my family approached religious affairs at the time.
 

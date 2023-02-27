@@ -22,11 +22,15 @@ As I took a step inside, people from upstairs ran down past me; some jumping dow
 
 I waited on the landing a short while hoping for the crowd to get smaller, but it never happened. So I ran back up the stairs, ran past the smoky hallway and ran across the building to the stairwell that lead to the main exit of the building.
 
+***
+
 I had no problem jumping down the stairs in bunches two or three at a time and hit the ground floor near the main entrance in less than a minute or so.
 
 But when I got there it was pretty desolate; the school security guards were gone and the front doors were wide open. The sun was pouring in as sounds of fire engines echoed through the streets outside.
 
 I jogged out the front door and saw some teachers, staff and security mingling around, waved at them, and then saw friends and classmates gathered across the street near Sheepshead Bay itself. I waved at them, they waved back, and then sprinted across Emmons Avenue to meet up with them.
+
+***
 
 The second I hit the pavement on the other side someone shouted “Let’s cut!” “Cut to where?” I said, “All of our stuff is in the school.” We all shrugged in agreement and just casually walked down the way to the rickety bridge around Sheepshead Bay Road.
 
@@ -77,6 +81,8 @@ A few minutes passed and some kid from one of the special ed. classes walked by,
 “Why you doing that? You get in trouble or something?” he asked. And I responded, “Yeah, I guess I did.” To which he responded to in a high pitched laugh.
 
 He stood up, still laughing and walked away as I continued to scrub the door.
+
+***
 
 The next day I got to school early and hung outside with some friends. One of them, Alex casually said he had seen the smoke and fire in the wood shop when it happened.
 

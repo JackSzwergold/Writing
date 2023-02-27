@@ -42,6 +42,8 @@ While it was in some ways similar to the dumpy neighborhood theaters I had seen 
 
 In contrast this dumpy Times Square theater seemed be actively beat up and vandalized on a regular basis as a part of normal business. But as dumpy and dingy as it was, I didn’t feel unsafe there; just unimpressed that this would be the place where I would meet the legendary Goofy himself in person.
 
+***
+
 After buying tickets at the beat up box office, my dad and I walked in, found some seats and got ready to watch the film. A quick glance around the place showed that the makeup of the audience was a similar array of parents and kids scattered all over the place for the same reason: To see the film and to meet the legendary Goofy in person.
 
 That said, it wasn’t clear whether Goofy would come out before or after the film. So we all sat and waited. And then — with little to no fanfare — the film began. And you know what? It really stunk. I have no idea to this day what the plot was but will say this: The second the dog lawyer appeared on the screen, I was totally into it. And when that dog lawyer was nowhere to be seen? I didn’t care. And since the film was filled with too many scenes that didn’t have a dog lawyer doing something on screen, I couldn’t wait for the film to end.

@@ -16,6 +16,8 @@ Former Onion colleagues who all lived around the same general area of 8th Ave. a
 
 And I was invited to join them.
 
+***
+
 The brunch was at Dizzy’s Diner on 9th St. and 8th Ave. I got on the F train at Bergen St. near Boerum Hill, where I lived at the time, to head over.
 
 The trains ran fine. The F train line ran nowhere near Lower Manhattan so it was not affected by anything related to 9–11.
@@ -51,6 +53,8 @@ At some point I mentioned I tried to walk into Manhattan over the Brooklyn Bridg
 The dude heard that, and blurted out, “So you walked over to take pictures?” It was said in a condescending tone that implied I was just there to take pictures as a novelty.
 
 I let that just float in the air and let it fade away.
+
+***
 
 Yeah, I took pictures. But I also attempted to get into Manhattan because I knew friends and family might have been there and wanted to help if I could.
 

@@ -21,4 +21,6 @@ When it came to be my turn to do what you gotta do to play Simon, follow the lig
 
 After a few more rounds of Simon, the class ended and when I went to pick up the Simon to take it home, I felt anxiousness in my hands and eyes. Pretty confident my vision and mind blanked out then — and before — when I tried to play the game. I was dissociating. My mind knew that I didn’t like any of this, but unable to stop things from happening my senses attempted to protect me by blacking out when I needed to not be there.
 
+***
+
 When the weekend came around, my brother came by on one of his seemingly never ending weekend visits. So I returned the Simon to my him while he smugly asked, “So did your friends like it?” to which I simply responded “Yes!” to. How else could I respond to a toxically loaded question asked by an abusive 32 year old to a 12 year old? After I passed it back to him and he left to head back to his home in Washington Heights, and I went back to my room to crawl into my bed and bury my head in the corner and turn off the world for a while.

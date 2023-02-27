@@ -22,6 +22,8 @@ So anyway, one weekend I get a call from one of my friends. I thought he was cal
 
 So with that, I headed outside to hang out in front of the building on Ocean Parkway and wait for my ride. Which was always awkward at best.
 
+***
+
 You see, while other buildings had actual security systems, doormen and even dogs, our building had a classic Brighton Beach improvised security system: A bunch of old gossipy Yentas just sitting outside on their folding chairs watching the world pass by. They sat around, had some fresh air, gossiped — and judged others — in Yiddish and stood (sat?) watch.
 
 And while I have some nostalgia for those Yentas, it was all kind of excruciating to be honest.
@@ -59,6 +61,8 @@ Some people were sitting around on a nearby couch and there were a few others on
 “Well, I guess this is it,” I said to my friend. We then both looked around and shrugged and decided to see what was happening upstairs.
 
 As we walked towards the stairs the guitar guy on the steps blocked us and said, “Can’t go up there. Nothing is happening up there.” And with that we headed over to the bowls of chips and pretzels, grabbed a beer and just stood around.
+
+***
 
 After a while my other friend — who was parking the car — showed up. “So what’s happening?” And we all looked at each other and said, “This is it.” The trio of us checked the room, checked each other and collectively shrugged.
 

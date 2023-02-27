@@ -16,6 +16,8 @@ Anyway, sometime in 4th or 5th grade they invited me to visit them up in Vermont
 
 Truth be told, my brother wasn’t manifesting himself as a complete jerk at that time. But this trip would slowly reveal shades of his nasty side I had not really seen yet.
 
+***
+
 The trip up to Vermont was actually fun. Never went on a significant road trip until then and even driving past Bear Mountain in upstate New York was it’s own thrill.
 
 We got to stop at cool rest stops and I marveled at the wood paneling and orange seats; they looked like a very “good” and well maintained McDonald’s but more WASPy. Never saw so many pickup trucks in nice shape as well as vending machines that sold smoking monkeys and other silly novelties as well. But like every trip with my brother I could never actually purchase anything I liked without a headache inducing fight.
@@ -23,6 +25,8 @@ We got to stop at cool rest stops and I marveled at the wood paneling and orange
 “Why do you want this garbage?” he asked as I started to put money in the machine to get a smoking monkey. “Because I like it,” I responded and as I was about to shove some quarters into the machine he would grab me and say “There’s no time. We have to go.” And without that I would be literally dragged kicking and screaming away from the machine to the front door of the rest stop. “We can buy better toys when we get back,” he said which triggered it’s own unique anxiety in me. Nothing was worse than having my brother and his stupid wife — who hated mainstream mass-marketed toys and had a Bank Street College degree to assert her biases against mainstream mass-marketed toys — drag me to an “educational” toy store.
 
 But that was neither here nor there since — thankfully — my brother was forgetful of unwanted promises like that and after a decent trip to Vermont he would definitely forget it. And soon enough we would be back on the road and headed up to Vermont.
+
+***
 
 When we got to my friend’s place it was cool and comfortable. It was a humble little house; not exactly a shack, but not exactly a mansion either. Just a basic and rustic little two story structure and near a stream.
 
@@ -43,6 +47,8 @@ This “town” consisted of a strip of maybe six to seven buildings at most. On
 We walked into the general store and asked about worms. The guy behind the counter pointed to the cooler case in front of the register. Asking about worms was weird enough, but it blew my city kid’s mind when I peered into to cooler case: Right there — next to the ice cream and cups of ice — were small styrofoam cups filled with dirt and worms. The cups were covered in some kind of plastic wrap (with air holes punched) and that was held in place with a rubber band. Nothing fancy; just cups of cooler chilled worms up for sale.
 
 We opened up the cooler, randomly picked a cup of worms, paid he guy for the works and just walked over to the lake.
+
+***
 
 It was a bright and sunny day; not too warm and not too hot with just enough of a breeze to cool you off every now and the. We sat down near the paved edge of the lake, opened up the cup of worms and grabbed one lucky worm who had the honor to be the first worm to be used as fishing bait.
 
@@ -84,6 +90,8 @@ My friend found a paper bag nearby, and I tossed the flopping fish inside of it.
 
 “Let’s go home,” I said and with that we packed up our gear and headed back to his family’s summer home.
 
+***
+
 When we got back I showed off my catch. Everyone was impressed. I walked over to the kitchen sink to wash it off and someone suggested we eat it. I shouted, “No!” as I laid it down on the counter near the sink.
 
 That said, I looked at it on the counter and wondered what to do with it. My friend’s dad said he would wrap it in plastic and put it in the fridge which made sense to me so that’s what we did and we called it a night.
@@ -100,7 +108,11 @@ He proceeded to wrap it in aluminum foil, then put it in a towel and unceremonio
 
 “No!” I screamed. “What about the ice?” I added. “Don’t worry,” he said. “It would all be fine,” he added. But I was still concerned. Even my friend’s dad asked, “You sure you don’t want any ice?” To which my brother shouted, “No!” And then looked at me and said, “Let’s go.” And with that I said my goodbyes to my friend and their family, got into the car and headed home.
 
+***
+
 On the drive home I occasionally asked about the fish and my brother would dismiss my concerns even when we stopped at rest stops and I felt hot surface of the outside of the trunk with my hand. It was clearly hot on the outside, so it had to be hot on the inside, right? But maybe my brother knew something I didn’t know.
+
+***
 
 After a few hours of driving we were back in Brooklyn.
 

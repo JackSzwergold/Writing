@@ -26,6 +26,8 @@ When I was younger, my mom would walk me to school. When I got older, I happily 
 
 Whatever anyone wants to say about NYC in the 1970s, I always found walking in the streets early in the morning to be fun. It was always quieter than anytime later in the day yet always busy in it’s own way with newspapers, groceries and other stuff being delivered to local shops while kids like me headed off to school, and adults headed off to wherever.
 
+***
+
 About a decade later I was in high school. Lincoln High school to be specific which was about 4 blocks away from where I lived. So outside of playing video games or grabbing a slice of pizza with friends after school, I was usually home by 4:00pm tops on most days.
 
 A lot of times when I came home, my dad would be in my room and looking out the window at the subway station platform. My dad wasn’t working at that point in his life. At some point during the mid 1970s, my dad suffered a heart attack and had to quit his job at the box factory because of it. That’s when my mom took over the job of being the one in the family to have a job that could support the family.
