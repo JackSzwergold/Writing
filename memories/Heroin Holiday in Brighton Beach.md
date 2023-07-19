@@ -46,6 +46,6 @@ And soon — as if our internal “time to leave” party clocks were all in
 
 As we all walked out into the dark, cool December night, a few co-workers talked about going to see the new Spider-Man movie. They qualified it all by saying it was a stupid superhero film but they heard it was good so why not?
 
-Being welcome and being a part of the group were two different things. And knowing I was a relatively new member off this magazine’s staff, I demurred and said good night.
+Being welcome and being a part of the group were two different things. And knowing I was a relatively new member of this magazine’s staff, I demurred and said good night.
 
 I bid farewells and as we approached Park Avenue I split off from the pack and headed to the subway to head back home to Brooklyn.
