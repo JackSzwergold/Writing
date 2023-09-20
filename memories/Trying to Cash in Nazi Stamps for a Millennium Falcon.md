@@ -23,6 +23,15 @@ As we all waited for my dad to show up, I decided to kill some time by going int
 
 A few minutes later my dad showed up, “So do you have the stamps?” I asked him. And he said, “No… No… Don’t be silly. All these years, nobody came up with the idea to sell them. Why? Come home. Come.” He wasn’t angry about the situation; in fact he was smiling a bit about it. But it was clear my idea to sell the stamps wasn’t happening.
 
+Why? Who knows. Perhaps it was a respect for the personal property of my brother? Despite all the tensions between my brother, and pretty much anyone and everyone in my family, my dad did respect him and respect his property.
+
 So I said goodbye to my friends and walked back home with my dad.
 
 When me and my dad got back home, I went to my room and the books of Nazi stamps were still there sitting on the shelf. I took a few of my _Star Wars_ action figures and played around with with them as I flipped through one of the book of stamps. As I looked at the dozens of Hitler stamps that filled the pages of the book I wondered, “Why not sell at least one of them? Who cares about Hitler.”
+
+After our parents died in 1993, my brother and I were clearing out their apartment and stumbled across the books of Nazi stamps. My brother asked me if I wanted to keep them, but I refused. He asked again insitently, and I literally pushed them away from me and said, “No!”
+
+And with that, he took them away and tucked them in the pile of items he would take from the apartment.
+
+My brother is still alive, but I have no idea what happened to the stamps. Did he keep them? Did he sell them? Who knows. All I know was at least I didn’t have to ever see tiny pictures of Hitler and various Swastikas in stamp form ever again.
+
