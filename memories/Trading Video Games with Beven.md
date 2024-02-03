@@ -8,7 +8,7 @@ slug: 5f4e249ce619
 ![](../img/Trading-Video-Games-with-Beven.jpg)
 <!--Some second hand furniture spotted in a resale shop in Brooklyn. (Photo by Jack Szwergold; Taken February 18, 2018)-->
 
-Beven was a new kid in Junior High School. I didn’t really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky. Like the basic way he carried and composed himself, stains on his clothes and — most notably — the odd, beat up briefcase he carried around with him at all times.
+It was 1982 and I was in Junior High School. Beven was a new kid in Junior High School and I didn’t really know him much past seeing him in class. He seemed normal-ish but had signs of being quirky. Like the basic way he carried and composed himself, stains on his clothes and — most notably — the odd, beat up briefcase he carried around with him at all times.
 
 While the rest of us had some of basic kid backpack — like a Jansport or an Eastpack or some generic olive drab Musette bag — this guy came to class with a beat-up, dark brown leather briefcase that looked like it was discarded on a pile of trash. It was beat to hell — and the frayed seams made you wonder if the leather was real or some kind fake crap — but he liked it and used it. Whenever he came to class he’d nonchalantly just place it on a desk, pop the clasps and open it up to reveal… A pile of papers and related school supply crap. He also liked to use beat-up legal pads instead of regular notebooks but that’s another story entirely.
 
