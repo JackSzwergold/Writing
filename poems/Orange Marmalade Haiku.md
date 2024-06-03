@@ -4,8 +4,8 @@ By Jack Szwergold
 
 ***
 
-Orange marmalade<br />
-spreads smoothly<br />
+Orange marmalade  
+spreads smoothly  
 over burnt, shitty toast
 
 ***
