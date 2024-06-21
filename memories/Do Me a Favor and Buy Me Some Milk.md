@@ -5,7 +5,7 @@ date: '2016-10-14T19:31:39.139Z'
 slug: aa674a0960b9
 ----->
 
-I got the scalper’s number from a neighborhood friend who worked for him. I wanted some tickets for _Rush_’s 1984 “Grace Under Pressure” tour and this scalper was the guy who could help.
+I got the scalper’s number from a neighborhood friend who worked for him. I wanted some tickets for _Rush_’s 1986 “Power Windows” tour and this scalper was the guy who could help.
 
 I called him up and immediately it was one of these frantic and sketchy “Who are you? Why are you calling” calls. I mentioned my friend’s name and he started to calm down a bit. I gave him my phone number, told him I lived nearby, wanted to buy a few _Rush_ tickets and already had the money on me for the tickets.
 
