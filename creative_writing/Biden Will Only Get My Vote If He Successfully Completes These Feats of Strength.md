@@ -4,7 +4,7 @@ As a lifelong America and fan of democracy, I too was disappointed with Joe Bide
 
 It pains me to say this, but I hearby state I will personally withhold my vote for him until he fulfills at least 2 to 3 of the feats of strength outlined below. We, as a nation, need a strong President and I believe each of these feats of strength would prove President Biden’s ability to handle a second term in office.
 
-* **Drags a Train or a Truck with his Teeth**. Joe Biden gets to pull a significantly weighed down train or truck with his teeth. His choice. He has to pull it for one yard. Kamala Harris and Jill Biden can pump up the crowds.
+* **Drags a Train or a Truck with his Teeth**: Joe Biden gets to pull a significantly weighed down train or truck with his teeth. His choice. He has to pull it for one yard. Kamala Harris and Jill Biden can pump up the crowds.
 * **Cannonball is Shot at his Stomach**: Much like venerated vaudeville star, Frank Richards, Joe Biden will allow a cannonball to be shot at his stomach at fairly close range. The contest is won if he survives the blow and walks away on his own two feet.
 * **Base Jumps Off of the Freedom Tower**: While a band plays the Star Spangled Banner, Joe Biden will base jump off of the highest point of the Freedom Tower in NYC; 1,776 feet up. If successful he will gracefully land — via parachute — to the ground below.
 * **Wrestles a Grizzly Bear or a Shark**: The choice of bear or shark is up the President Biden himself. While Biden will most likely be injured or scathed in the ensuing battle, victory will be judged if he can pummel the bear or shark into submission.
