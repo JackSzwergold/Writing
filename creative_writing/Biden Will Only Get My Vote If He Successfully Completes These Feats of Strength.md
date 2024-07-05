@@ -9,9 +9,9 @@
 * **Crush a Full Can (Soda, Beer, Beans, etc…) With One Hand**: Simple as that. Joe Biden grabs a can of some food item — soda, beer, beans, etc… — and crushes it with one hand.
 * **Bends a Steel Bar with His Bare Hands and/or Teeth**: As stated, Joe Biden will grab a steel bar and bends it with his hands or teeth. Bonus points are given for using his teeth.
 * **Tears a Deck of Cards in Two with his Bare Hands**: Possibly the easiest feat of strengh: Grabs a deck of cards and tears them in half with his bare hands.
-* **Juggle a Set of Weights**: Weight can be determined, b
-* **Drive nails into a piece of wood with his bare hands.**
-* **Carry a piano up a set of stairs.**
-* **Tear a phone book or two.** But since phone books aren’t as big as they once were, tear a copy of “Infinite Jest” or the “Power Broker” in two.
+* **Juggle a Set of Weights**: Weight can be determined, but perhaps a set of 20 pound or 50 pound weights. He should be able to juggle them without dropping them for 2-3 minutes.
+* **Drive Nails into a Piece of Wood with His Bare Hands**: The human hammer! Biden grabs a piece of wood and drives nails into the wood with his bare hands. Time is not a factor, but he should be able to drive in at least 6 nails with his bare hands.
+* **Carry a Piano Up a Set of Stairs**: Look out Laurel and Hardy! You’ve got some competition! Biden should be able to carry a piano up a set of stairs. To be fair, he shlould be able to carry them up a set of 3 landings separated by 8 stairs a piece for breathing roo.
+* **Tears a Phone Book in Half**: Much like tearing a pack of cards in half, Biden should be able to tear a decent sized phone book in half. Since phone books aren’t as common — or as big — as they once were, tearing a copy of David Foster Wallace’s “Infinite Jest” or Robert Caro’s the “Power Broker” in two would count as well.
 * **Eats a can of spinach and does 20 oush-ups in the oval office.** Just like Popeye, Biden will sit and eat a can of spinach in the oval office. When hie finishes, he stands and takes off his shirt to reveal he new pumped up physique. Then, an impersonator dressed as Donald Trump enters the oval office, says some nonsense and is immediately knocked out by Biden. Then Biden hits the ground and does a series of push ups; some one handed and a few with claps mixed in.
 
