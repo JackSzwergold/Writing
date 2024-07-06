@@ -1,6 +1,6 @@
 # Biden Will Only Get My Vote If He Successfully Completes These Feats of Strength
 
-As a lifelong America and fan of democracy, I too was disappointed with Joe Biden’s lackluster debate performance on June 27, 2024. President Joe Biden failed to convey the strength and fortitude I perosnally expect from a President of the United States of America.
+As a lifelong American and fan of democracy, I too was disappointed with Joe Biden’s lackluster debate performance on June 27, 2024. President Joe Biden failed to convey the strength and fortitude I perosnally expect from a President of the United States of America.
 
 It pains me to say this, but I hearby state I will personally withhold my vote for him until he fulfills at least 2 to 3 of the feats of strength outlined below. We, as a nation, need a strong President and I believe each of these feats of strength would prove President Biden’s ability to handle a second term in office.
 
