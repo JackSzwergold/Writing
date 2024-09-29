@@ -9,7 +9,7 @@ slug: 424633a8676e
 <!--Looking down the alley to where I rescued my Big Wheel from the sons of a drug dealer who lived in a shack behind this building in the 1970s. The alley has definitely been redone since the way I remember it back in the day. (Photo by Jack Szwergold; Taken November 24, 2018)
 -->
 
-I was 1978 or 1979 and I was 10 or 11 years old. A little bit vague on the exact year and age, but whatever the year was or my age was, I was definitely aware of the fact I was too old to ride my Big Wheel around the block. But I still did because I liked to do it.
+It was 1978 or 1979 and I was 10 or 11 years old. A little bit vague on the exact year and age, but whatever the year was or my age was, I was definitely aware of the fact I was too old to ride my Big Wheel around the block. But I still did because I liked to do it.
 
 Yeah, I might have caught myself in the reflection of the windows of Speedway Drugs as I scooted around and realized I looked slightly ridiculous, but I didn’t care. I liked riding that Big Wheel.
 
