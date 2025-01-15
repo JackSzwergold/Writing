@@ -48,7 +48,7 @@ Just then — as if on cue — I heard the sound of someone coming out o
 
 “Pa!” my friend said, “Come on?” he added a bit frantically.
 
-“Don’t worry! Done’t worry!” he said, “Jack come here let me show you something,” he said as he walked into the bedroom next door.
+“Don’t worry! Don’t worry!” he said, “Jack come here let me show you something,” he said as he walked into the bedroom next door.
 
 I followed and as I walked in, I saw him rummage through a nightstand next to the bed. The bedroom itself was decorated in what could only be described as basic, aspirational Russian gaudy. That meant it was all tricked out with all of the kinds of ornate and over-decorated flourishes that aspires to make the place seem as if it was a fancy, luxurious mansion despite the fact that — when all is said and done — it was actually a small bedroom in a dumpy medium-sized post-war apartment building next to an equally dumpy highway off-ramp.
 
