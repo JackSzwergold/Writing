@@ -13,7 +13,7 @@ First, we were going to Manhattan to see the film which was out of the norm to s
 
 We all got into the yellow school buses, headed to Manhattan and were dropped off in front of the theater in Times Square. It was a sunny, spring day and camp counsellors lined us up under the marquee while they got the tickets from the box office. Then they let us goof around and hang out in the alleyway next to the theater between 44th and 45th Street while we all waited for the theater to open. It was clearly the first showing of the day.
 
-In the alleyway, everyone gravitated to their own tween cliques as usual. I sat down with this kid named Rob. We got along because we were both oddballs that didn’t live in Trump Village like the rest of the kids yet still went to the day camp run out of Trump Village.
+In the alleyway, everyone gravitated to their own pre-tween cliques as usual. I sat down with this kid named Rob. We got along because we were both oddballs that didn’t live in Trump Village like the rest of the kids yet still went to the day camp run out of Trump Village.
 
 With our backs pressed against the alley wall and our knees folded, we both stared intently at the lobby cards in the glass display case just outside the theater door. The lobby cards were placed in the display case with no particular magic, rhyme or reason; they were just generic pictures of scenes from _Star Wars_ with a nice border of tinsel or glitter around them. One shot showed the first appearance of Darth Vader at the beginning of the film; standing there with hands on his hips, surrounded by dead Rebel soldiers and Stomtroopers after just boarding the captured Rebel ship.
 
@@ -27,7 +27,7 @@ Everyone sat down and the typical horsing around and bullshit happened. The kids
 
 The screen was easily the biggest screen I ever saw in my young life; which made sense since the theater itself was so huge. But still the impact of actually seeing that screen light up was tremendous.
 
-Before the movie started — but while the screen was lit up with a trailer, teaser or something — there was still some horsing around happening. That horsing around continued a bit during the 20th Century Fox opening fanfare. But when the main titles hit — with the big “Lucasfilm Limited” in green letters — the tone changed. Everyone’s eyes were fixed on the screen.
+Before the movie started — but while the screen was lit up with a trailer, teaser or something — there was still some horsing around happening. That horsing around continued a bit during the 20th Century Fox opening fanfare. But when the main titles hit — with the big “Lucasfilm Limited” text projected in green letters — the tone changed. Everyone’s eyes were fixed on the screen.
 
 Then when the huge, yellow “Star Wars” text blew onto the screen followed by the opening crawl absolutely everyone was into it and sat still. This was literally the first film where everyone — kids and counsellors — shut up and paid attention to the film right from the outset. Then when the film actually began and the tiny rebel ship was being chased by the gigantic Star Destroyer that filled the whole screen, that settled it. Everyone was 1,000,000% into the film.
 
