@@ -5,7 +5,7 @@ date: '2016-10-13T02:27:12.734Z'
 slug: 98892163fcb0
 ----->
 
-The first time I saw _Star Wars_ was via the NYC Department of Parks and Recreation day camp that was run out of the P.S. 100 playground in nearby Trump Village. I was 9 years old in 1977 and the camp counsellors were just neighborhood high school kids and part of our “summer camp experience” — along with playing in the same exact playgrounds we already had free access to — was being taken on buses to see movies as a group.
+The first time I saw _Star Wars_ was via the NYC Department of Parks and Recreation day camp that was run out of the P.S. 100 playground in nearby Trump Village. I just turned 9 years old in June 1977 and the camp counsellors were basically just neighborhood high school kids and part of our “summer camp experience” — along with playing in the same exact playgrounds we already had free access to — was being taken on buses to see movies as a group.
 
 Since it was the 1970s they took us to any science fiction — or even light horror — film was out in theaters at the time. I saw _Godzilla versus Megalon_ (the one with Jet Jaguar) at the Trump Village Theater, _Squirm_ (the movie about killer worms) at the Benson Theater in Bensonhurst, _King Kong_ (the version at the World Trade Center) at the Alpine in Bay Ridge, _Bug_ (the one about killer cockroaches) at the Trump Village Theater and at some point I also saw _Futureworld_ in the theaters at King’s Plaza thanks to that dysfuctional day camp. All of those films sucked for different reasons; the list of literal crap we saw was endless. But seeing _Star Wars_ was different experience from the get go.
 
