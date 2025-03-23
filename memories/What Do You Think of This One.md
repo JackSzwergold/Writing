@@ -41,8 +41,8 @@ I never saw a movie program before. These specifically were about the size of a 
 
 When we left the theater, the sun on the street was bright and there was another table out on the sidewalk with more stuff for sale. It didn’t seem like an officially sanctioned souvenir stand, but just something some fans decided to do on a whim. The table itself was yet another crappy card table, but I remember it being covered with a gingham tablecloth and filled with buttons and metal jewelry inspired by _Star Wars_. The guy behind the table looked like a hippie, but was a bit cleaner. Some of the stuff he was selling looked cool, but nothing really appealed to me. So I got back on the bus with everyone else, grabbed a window seat and we all headed back to Brooklyn.
 
-When I got home, I was really excited to tell dad about _Star Wars_. He knew about the film since it was making some small buzz on the news. From that day forward, anytime he caught something on TV that showed scenes from _Star Wars_ — even if it was just a commercial — he let me know so I could run into the living room to see it.
+When I got home, I was really excited to tell dad about _Star Wars_. He knew about the film since it was making some small buzz on the news which he practically watched all day. From that day forward, anytime he caught something on TV that showed scenes from _Star Wars_ — even if it was just a commercial — he let me know so I could run into the living room to see it on our “fancy” 20" color TV.
 
 The next day wasn’t a camp day; maybe it was the weekend? Anyway, on one of my trips to the corner newsstand to check out comics I remember seeing packs of _Star Wars_ bubble gum trading cards for 25 cents a piece. I could afford that! So instead of buying a comic, I got two packs of trading cards for 50 cents.
 
-The gum was horrible, but the pictures and stickers brought back memories.
+The gum was horrible, but the pictures and stickers brought back memories of the one film the camp counsellors took us to that wasn’t literal crap.
