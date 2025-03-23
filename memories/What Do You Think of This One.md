@@ -13,7 +13,7 @@ First, we were going to Manhattan to see the film which was out of the norm to s
 
 We all got into the yellow school buses, headed to Manhattan and were dropped off in front of the theater in Times Square. It was a sunny, spring day and camp counsellors lined us up under the marquee while they got the tickets from the box office. Then they let us goof around and hang out in the alleyway next to the theater between 44th and 45th Street while we all waited for the theater to open. It was clearly the first showing of the day.
 
-In the alleyway, everyone gravitated to their own groups as usual. I sat down with this kid named Rob. We got along because we were both oddballs that didn’t live in Trump Village like the rest of the kids yet still went to the day camp run out of Trump Village.
+In the alleyway, everyone gravitated to their own tween cliques as usual. I sat down with this kid named Rob. We got along because we were both oddballs that didn’t live in Trump Village like the rest of the kids yet still went to the day camp run out of Trump Village.
 
 With our backs pressed against the alley wall and our knees folded, we both stared intently at the lobby cards in the glass display case just outside the theater door. The lobby cards were stacked in the display case with no particular magic, rhyme or reason; they were just pictures of scenes from _Star Wars_ with a nice border of tinsel or glitter around them. One shot showed the first appearance of Darth Vader at the beginning of the film; standing there with hands on his hips, surrounded by dead bodies after just boarding the captured Rebel ship.
 
