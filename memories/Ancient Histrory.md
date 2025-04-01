@@ -9,12 +9,18 @@ Silver Star Comics
 3554 Nostrand Avenue
 Brooklyn, NY 11229
 718-648-2112
+```
 
+I utterly hated college. Brooklyn College sucked. I should have never have went. But occassional stops at Silver Star Comics was a lifeline. But it was only a superficial balm. I would obsessively buy comics — and try to find bargains — but I barely read or remembered any of them. I was simply trying to relieve the thrill of rumaging through old comics at Nostrand Books on Brighton Beach Avenue in elemetaerty school but now as a young adult in college.
+
+```
 Discount Books Warehouse 
 3735 Nostrand Avenue
 Brooklyn, NY 11235
 718-646-5225
+```
 
+```
 Bob's Book Store
 1908 Avenue U
 Brooklyn, NY 11229
