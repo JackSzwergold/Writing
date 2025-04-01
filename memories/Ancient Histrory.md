@@ -20,11 +20,17 @@ Brooklyn, NY 11235
 718-646-5225
 ```
 
+A junky huge store I went to to mainly get old back issues of Antic and SoftSide magazine. Was kind of like a junkier, Brooklyn version of Ruby’s books on Chamber’s Street.
+
 ```
 Bob's Book Store
 1908 Avenue U
 Brooklyn, NY 11229
-718-743-1836  Comic Book Scene
+718-743-1836 ```
+
+Cool crammed place. Staff up on a high counter. I scored a copy of Reid Fleming’s “Flaming Carrot” #1 and other 1980s idependent oddballs. I also remember they oddly had copies of some hardcover books on the rock band “Blackfoot.”
+
+``` Comic Book Scene
 2133 Coney Island Avenue
 Brooklyn, NY 11223
 718-998-9377
