@@ -15,7 +15,7 @@ It was the end of the day, we were all waiting to be sent home and just running 
 
 The closet was one of those shallow closets with sliding doors that everyone hung their stuff in. The closet was mostly empty since it was the end of the day and everyone had their stuff at their desks already.
 
-The right side of head landed hard on the wood that held the coat hooks and just inches away from a metal jacket hook that was right in front of my face. My hands managed to brace the rest of my body against the plaster wall; slowing me down a bit not much. The black kid I was playing with landed a few feet down from me in the closet. He was facing me when he landed and seemed to hit his head the same way I did.
+The right side of my head landed hard on the wood that held the coat hooks and just inches away from a metal jacket hook that was right in front of my face. My hands managed to brace the rest of my body against the plaster wall; slowing me down a bit not much. The black kid I was playing with landed a few feet down from me in the closet. He was facing me when he landed and seemed to hit his head the same way I did.
 
 We both started screaming and crying as she quickly slid the door closed. It was dark with some light from the outside coming it, but mostly dark. The other students outside were quiet with only the occasional noise of shuffling or coughing. She kept us locked in the closet until school ended 5 minutes later. Then she let us out as if nothing happened.
 
