@@ -14,7 +14,7 @@ I walked back home, but was still upset. I was upset at my dad not fighting back
 
 Without those two assholes, I could have convinced my dad to come with me to get the sweater back. But with their meddling and narcissistic interference, a childhood trauma was repressed because my brother was an Ivy League graduate and his wife was an education major at the Bank Street School.
 
-Who can a kid turn too when two over educated hippie asses overwhelm common sense and reason in a family?
+Who can a kid turn too when two over-educated hippie asses overwhelm common sense and reason in a family?
 
 ***
 
