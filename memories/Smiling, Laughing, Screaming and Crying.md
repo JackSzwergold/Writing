@@ -9,9 +9,9 @@ P.S. 100 was located in the smack dab of Trump Village. It was a relatively smal
 
 The seven buildings of Trump Village stood as monuments to middle class aspirations and dellusions. Each building topped out at 23 stories, their bland designs were only slightly ameliorated by designer Morris Lapidus slught attempts mid-centry Florida chic. Which consisted of “stylish” playgrounds with modern-ish takes on such staples as monkey bars, turtles you climbed on and the occisional horse you would ride.
 
-Nobody every played in them. Rarely did the elders of the community sit on the wooden benches that surronded them either.
+Nobody every played in the playground. Rarely did the elders of the community sit on the wooden benches that surronded them either. Such was the reality of any housing complex that consisted of 23 stories accesible mainly by elevator; people chose to keep to themselves and getting the occasinal fresh air from the dozens of private terraces that spotted the fronts of each building.
 
-She was my second grade teacher at P.S. 100 and she was abusive.
+She was my second grade teacher at P.S. 100, she was abusive and her names, as us kids knew it, was Mrs. Brody.
 
 It was 1976, I was barely 8 years old and one day when I was playing with one of the other oddball kids in the class — who happened to be a black kid — she freaked out.
 
