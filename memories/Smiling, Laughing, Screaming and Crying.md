@@ -5,6 +5,8 @@ date: '2016-10-13T02:19:49.355Z'
 slug: a8dbe69276a9
 ----->
 
+P.S. 100 was located in the smack drab of Trump Village. 
+
 She was my second grade teacher at P.S. 100 and she was abusive.
 
 It was 1976, I was barely 8 years old and one day when I was playing with one of the other oddball kids in the class — who happened to be a black kid — she freaked out.
