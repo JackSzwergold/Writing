@@ -7,7 +7,7 @@ slug: a8dbe69276a9
 
 She was my second grade teacher at P.S. 100 and she was abusive. But please, let me set the scene.
 
-P.S. 100 was located in the smack dab of the working class Jewish, predominantly white, ghetto known as Trump Village. It was a relatively small, 4-story pink bricked monument to elementary school education and a remnant of a neighborhood lost long ago when Fred Trump, Donald Trump’s dad, decided to redevelop the area as a middle class monument to mid-century design and working class living.
+P.S. 100 was located in the smack dab of the working class, secular Jewish, predominantly white, ghetto known as Trump Village. It was a relatively small, 4-story pink bricked monument to elementary school education and a remnant of a neighborhood lost long ago when Fred Trump, Donald Trump’s dad, decided to redevelop the area as a middle class monument to mid-century design and working class living.
 
 P.S. 100 was located between West 2nd Street and West 3rd Street, it’s location was a remnant of the old neighborhood grid that was effectively wiped away with the creation of the new mega-block grid Trump Village required.
 
