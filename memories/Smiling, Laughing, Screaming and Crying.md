@@ -7,6 +7,8 @@ slug: a8dbe69276a9
 
 P.S. 100 was located in the smack dab of Trump Village. It was a pink bricked monument to elementary school education and a remnant of a neighborhood lost long ago when Fred Trump, Donald Trump’s dad, decided to redevelop the area as a middle class monumemnt to mid-century design and wokring class living.
 
+The seven buildings of Trump Village.
+
 She was my second grade teacher at P.S. 100 and she was abusive.
 
 It was 1976, I was barely 8 years old and one day when I was playing with one of the other oddball kids in the class — who happened to be a black kid — she freaked out.
