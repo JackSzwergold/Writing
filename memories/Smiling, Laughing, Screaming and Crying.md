@@ -5,7 +5,7 @@ date: '2016-10-13T02:19:49.355Z'
 slug: a8dbe69276a9
 ----->
 
-She was my second grade teacher at P.S. 100, she was abusive and her name, as us kids knew it, was Mrs. Brody. But please, let me set the scene.
+She was my second grade teacher at P.S. 100, she was abusive. But please, let me set the scene.
 
 P.S. 100 was located in the smack dab of Trump Village. It was a relatively small, 4-story pink bricked monument to elementary school education and a remnant of a neighborhood lost long ago when Fred Trump, Donald Trump’s dad, decided to redevelop the area as a middle class monumemnt to mid-century design and wokring class living.
 
