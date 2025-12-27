@@ -13,7 +13,7 @@ The seven buildings of Trump Village stood as monuments to middle class aspirati
 
 Nobody ever played in the playgrounds of Trump Village. Rarely did the elders of the community sit on the wooden benches that surronded them either. Such was the reality of any housing complex that consisted of 23 stories accesible mainly by elevator; people chose to keep to themselves and getting the occasinal fresh air from the dozens of private terraces that spotted the fronts of each building.
 
-She was my second grade teacher at P.S. 100, she was abusive and her names, as us kids knew it, was Mrs. Brody.
+She was my second grade teacher at P.S. 100, she was abusive and her name, as us kids knew it, was Mrs. Brody.
 
 It was 1976, I was barely 8 years old and one day when I was playing with one of the other oddball kids in the class — who happened to be a black kid — she freaked out.
 
