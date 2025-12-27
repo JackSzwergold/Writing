@@ -9,9 +9,9 @@ P.S. 100 was located in the smack dab of Trump Village. It was a relatively smal
 
 Located between West 2nd Street and West 3rd Street, it’s location was a remnant of the old neighborhood grid that was effectively wiped away with the creation of the new mega-block grid Trump Village required.
 
-The seven buildings of Trump Village stood as monuments to middle class aspirations and dellusions. Each building topped out at 23 stories, their bland designs were only slightly ameliorated by designer Morris Lapidus slight attempts mid-centry Florida chic. Which consisted of “stylish” playgrounds with modern-ish takes on such staples as monkey bars, turtles you climbed on and the occisional horse you would ride.
+The seven buildings of Trump Village stood as monuments to middle class aspirations and dellusions. Each building topped out at 23 stories, their bland designs were only slightly ameliorated by designer Morris Lapidus slight attempts mid-centry Florida chic. Which consisted of “stylish” playgrounds with modern-ish takes on such staples as monkey bars, turtles you climbed on and the occisional horse you would ride. While he is best known for designing The Fontainebleau Hotel in Miami Beach, none of that garrish sophistication graced his utilitarian Trump Village buildings. They we truly housing blocks in the tradition of the megablocks that Robert Moses dreamed of. 
 
-Nobody every played in the playground. Rarely did the elders of the community sit on the wooden benches that surronded them either. Such was the reality of any housing complex that consisted of 23 stories accesible mainly by elevator; people chose to keep to themselves and getting the occasinal fresh air from the dozens of private terraces that spotted the fronts of each building.
+Nobody ever played in the playgrounds of Trump Village. Rarely did the elders of the community sit on the wooden benches that surronded them either. Such was the reality of any housing complex that consisted of 23 stories accesible mainly by elevator; people chose to keep to themselves and getting the occasinal fresh air from the dozens of private terraces that spotted the fronts of each building.
 
 She was my second grade teacher at P.S. 100, she was abusive and her names, as us kids knew it, was Mrs. Brody.
 
