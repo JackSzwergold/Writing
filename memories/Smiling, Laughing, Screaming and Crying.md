@@ -5,7 +5,7 @@ date: '2016-10-13T02:19:49.355Z'
 slug: a8dbe69276a9
 ----->
 
-She was my second grade teacher at P.S. 100 and she was abusive. But please, let me set the scene.
+It was 1976, she was my second grade teacher at P.S. 100 and she was abusive. But please, let me set the scene.
 
 P.S. 100 was located in the smack dab of the working class, secular Jewish, predominantly white, ghetto known as Trump Village. It was a relatively small, 4-story pink bricked monument to elementary school education and a remnant of a neighborhood lost long ago when Fred Trump, Donald Trump’s dad, decided to redevelop the area as a middle class monument to mid-century design and working class living.
 
@@ -13,9 +13,9 @@ P.S. 100 was located between West 2nd Street and West 3rd Street, it’s locatio
 
 The seven buildings of Trump Village stood as monuments to middle class American aspirations in the 1960s. Each building topped out at 23 stories, their bland designs were only slightly ameliorated by designer/architect Morris Lapidus’ slight attempts mid-century Florida chic. While he is best known for designing such stunners like The Fontainebleau Hotel in Miami Beach, none of that garish sophistication graced his utilitarian Trump Village buildings. They we truly housing blocks in the tradition of the mega blocks that Robert Moses dreamed of: Bland, cookie cutter human storage towers filled with working class families.
 
-Nobody ever played in the neighboring playgrounds of Trump Village buildings. Yeah, they were “stylish” with modern-ish takes on such staples as monkey bars, turtles you climbed on and the occisional horse you would ride. But nobody really played on them. And rarely did the elders of the community sit on the wooden benches that surronded them either. Such was the reality of any housing complex that consisted of 23 stories accesible mainly by elevator; people chose to keep to themselves and getting the occasinal fresh air from the dozens of private terraces that spotted the outsides of each building.
+Nobody ever played in the neighboring playgrounds of Trump Village buildings. Yeah, they were “stylish” with modern-ish takes on such staples as monkey bars, turtles you climbed on and the occasional horse you would ride. But nobody really played on them. And rarely did the elders of the community sit on the wooden benches that surrounded them either. Such was the reality of any housing complex that consisted of 23 stories accessible mainly by elevator; people chose to keep to themselves and getting the occasional fresh air from the dozens of private terraces that spotted the outsides of each building.
 
-Anyway, enough about the milleau and onto the meat of this piece!
+Anyway, enough about the milieu and onto the meat of this piece!
 
 ***
 
