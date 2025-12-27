@@ -15,6 +15,8 @@ The seven buildings of Trump Village stood as monuments to middle class American
 
 Nobody ever played in the neighboring playgrounds of Trump Village buildings. Yeah, they were “stylish” with modern-ish takes on such staples as monkey bars, turtles you climbed on and the occisional horse you would ride. But nobody really played on them. And rarely did the elders of the community sit on the wooden benches that surronded them either. Such was the reality of any housing complex that consisted of 23 stories accesible mainly by elevator; people chose to keep to themselves and getting the occasinal fresh air from the dozens of private terraces that spotted the fronts of each building.
 
+Anyway, enough about the milleau and onto the meat of this piece!
+
 It was 1976, I was barely 8 years old and one day when I was playing with one of the other oddball kids in the class — who happened to be a black kid — she freaked out.
 
 When I say “oddball,” I mean the school was predominantly filled with white, middle-class, secular Jewish kids from Trump Village and not “freaks” like me: A white, secular Jewish kid who came from a poor immigrant family living in a tenement in Brighton Beach. Or a black kid who was poor and lived in Coney Island like the kid I was playing with. Heck, I don’t even know if she was freaking out because I was a white kid playing with a black kid or because we wouldn’t just sit down and be quiet, but she freaked out.
