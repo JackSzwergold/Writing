@@ -5,15 +5,15 @@ date: '2016-10-13T02:19:49.355Z'
 slug: a8dbe69276a9
 ----->
 
+She was my second grade teacher at P.S. 100, she was abusive and her name, as us kids knew it, was Mrs. Brody. But please, let me set the scene.
+
 P.S. 100 was located in the smack dab of Trump Village. It was a relatively small, 4-story pink bricked monument to elementary school education and a remnant of a neighborhood lost long ago when Fred Trump, Donald Trump’s dad, decided to redevelop the area as a middle class monumemnt to mid-century design and wokring class living.
 
-Located between West 2nd Street and West 3rd Street, it’s location was a remnant of the old neighborhood grid that was effectively wiped away with the creation of the new mega-block grid Trump Village required.
+P.S. 100 was located between West 2nd Street and West 3rd Street, it’s location was a remnant of the old neighborhood grid that was effectively wiped away with the creation of the new mega-block grid Trump Village required.
 
-The seven buildings of Trump Village stood as monuments to middle class American aspirations. Each building topped out at 23 stories, their bland designs were only slightly ameliorated by designer/architect Morris Lapidus’ slight attempts mid-centry Florida chic. While he is best known for designing The Fontainebleau Hotel in Miami Beach, none of that garrish sophistication graced his utilitarian Trump Village buildings. They we truly housing blocks in the tradition of the megablocks that Robert Moses dreamed of: Bland, cookie cutter human storage towers filled with working class families.
+The seven buildings of Trump Village stood as monuments to middle class American aspirations. Each building topped out at 23 stories, their bland designs were only slightly ameliorated by designer/architect Morris Lapidus’ slight attempts mid-centry Florida chic. While he is best known for designing such stunners like The Fontainebleau Hotel in Miami Beach, none of that garrish sophistication graced his utilitarian Trump Village buildings. They we truly housing blocks in the tradition of the megablocks that Robert Moses dreamed of: Bland, cookie cutter human storage towers filled with working class families.
 
 Nobody ever played in the playgrounds of Trump Village. Yeah, they were “stylish” with modern-ish takes on such staples as monkey bars, turtles you climbed on and the occisional horse you would ride. But nobody really played on them. And rarely did the elders of the community sit on the wooden benches that surronded them either. Such was the reality of any housing complex that consisted of 23 stories accesible mainly by elevator; people chose to keep to themselves and getting the occasinal fresh air from the dozens of private terraces that spotted the fronts of each building.
-
-She was my second grade teacher at P.S. 100, she was abusive and her name, as us kids knew it, was Mrs. Brody.
 
 It was 1976, I was barely 8 years old and one day when I was playing with one of the other oddball kids in the class — who happened to be a black kid — she freaked out.
 
