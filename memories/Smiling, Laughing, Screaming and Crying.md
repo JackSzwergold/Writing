@@ -5,9 +5,11 @@ date: '2016-10-13T02:19:49.355Z'
 slug: a8dbe69276a9
 ----->
 
-P.S. 100 was located in the smack dab of Trump Village. It was a pink bricked monument to elementary school education and a remnant of a neighborhood lost long ago when Fred Trump, Donald Trump’s dad, decided to redevelop the area as a middle class monumemnt to mid-century design and wokring class living.
+P.S. 100 was located in the smack dab of Trump Village. It was a relatively small, 4-story pink bricked monument to elementary school education and a remnant of a neighborhood lost long ago when Fred Trump, Donald Trump’s dad, decided to redevelop the area as a middle class monumemnt to mid-century design and wokring class living.
 
-The seven buildings of Trump Village.
+The seven buildings of Trump Village stood as monuments to middle class aspirations and dellusions. Each building topped out at 23 stories, their bland designs were only slightly ameliorated by designer Morris Lapidus slught attempts mid-centry Florida chic. Which consisted of “stylish” playgrounds with modern-ish takes on such staples as monkey bars, turtles you climbed on and the occisional horse you would ride.
+
+Nobody every played in them. Rarely did the elders of the community sit on the wooden benches that surronded them either.
 
 She was my second grade teacher at P.S. 100 and she was abusive.
 
